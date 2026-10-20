@@ -9,6 +9,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | # | Arquivo | O que é | Status |
 |---|---|---|---|
 | 00 | `00_base/` | Base herdada: transcrições EN/PT das 3 VSLs validadas (Soda Horse, Horse Jelly, Alpha Erec), análises e provas da VSL 1, prompt de tradução ED | ✅ |
+| 01a | `01a_Analise_Padronizada_3_VSLs_Base.xlsx` + `.md` | As 3 VSLs validadas (Soda Horse, Alpha Erec, Horse Jelly) na planilha padrão da casa: Formato, Big Idea, Lead, Background, Emotional, Discovery, Tese (MUP/MUF/MUS), Build Up, Oferta, Fechamento. Cópia no Drive (Google Sheet) | ✅ |
 | 01 | `01_Mercado_O_que_Escala.md` | Mapa do que escala agora em ED: o que as 3 validadas + Bull Soda Rise têm em comum, o que satura, onde há espaço | ⏳ |
 | 02 | `02_Avatar_Deep_Psychology.md` | Psicologia profunda do homem 45–70 com ED: dores, vergonhas, linguagem, cenas de reconhecimento ainda não usadas | ⏳ |
 | 03 | `03_Mecanismos_Candidatos.md` | 3–5 mecanismos de problema/solução com estudo real, demo de bancada e "fonte com endereço", sem canibalizar cimento/glifosato | ⏳ |
@@ -34,6 +35,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | Data | Decisão | Onde |
 |---|---|---|
 | 19/10/2026 | Repositório criado; estrutura e base herdada da VSL 1 | README |
+| 20/10/2026 | Análise das 3 VSLs base no padrão da planilha "Análise das VSL's Escaladas ED (EUA)" e do doc "Padronização de Análise da VSL" | 01a |
 
 ## Pendências
 
