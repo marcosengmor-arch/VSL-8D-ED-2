@@ -20,7 +20,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 08 | `08_Estrutura_VSL_Blocos.md` | Bloco a bloco com metas de palavras e minutos (régua: $49 entre 53 e 56 min) | ⏳ |
 | — | `copy/` | Copy PT por bloco e revisões | ⏳ |
 | — | `traducao/` | EN-US por bloco (prompt `00_base/PROMPT_Traducao_VSL_ED_EN-US.md`) | ⏳ |
-| — | `briefing/` | Briefing de edição no template do coordenador (`_gerar_briefing_no_template.py` preenche o docx modelo) | ⏳ |
+| — | `briefing/` | Templates do coordenador e geradores: `_gerar_brief_oferta_no_template.py` preenche `_template_brief_de_oferta.docx` com o brief em md (layout BRIEF DE OFERTA / Pesquisa – Marcos Moreira); `_gerar_briefing_no_template.py` preenche o briefing de edição | ✅ brief / ⏳ edição |
 
 ## Régua herdada das 3 VSLs validadas (palavras EN até o $49)
 
