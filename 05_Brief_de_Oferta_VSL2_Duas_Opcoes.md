@@ -20,7 +20,7 @@ Legenda: `[VALIDADO]` está em 2+ VSLs do corpus · `[NOVO]` decisão desta ofer
 
 ### Promessa principal
 
-- **`[OP1]`:** Uma colher de mel com uma pitada de bicarbonato, do jeito que os criadores de bode do Hill Country jogam no cocho na época da monta, dissolve o cimento que está secando dentro do seu pau há 30 anos. Duro feito pedra sob comando, sem Viagra, em 14 dias. E devolve as polegadas que o cimento roubou: 2 a 3 polegadas em 30 dias. "A mesma erva do frasco de $14 que você já comprou; só que a flor, não o talo, e do jeito que o bode come." `[VALIDADO]` promessa 14x Viagra / toalha / polegadas (Soda Horse).
+- **`[OP1]`:** Uma colher de mel com uma pitada de bicarbonato, do jeito que os criadores de bode do Hill Country jogam no cocho na época da monta, dissolve o cimento que está secando dentro do seu pau há 30 anos. Duro feito pedra sob comando, sem Viagra, em 14 dias. E devolve as polegadas que o cimento roubou: 2 a 3 polegadas em 30 dias. "A mesma erva do frasco de $14 que você já comprou; só que a flor, não o talo, e do jeito que o bode que cobre 100 fêmeas come." `[VALIDADO]` promessa 14x Viagra / toalha / polegadas (Soda Horse).
 - **`[OP2]`:** Uma colher de gelatina de veludo de alce com uma pitada de bicarbonato reconstrói a esponja que a fibrose transformou em cicatriz. O único tecido na Terra que cresce uma polegada por dia, dentro do seu pau. Duro feito pedra em 14 dias, 2 a 3 polegadas em 30 dias. `[VALIDADO]` promessa Horse Jelly (342% de expansão, 2 polegadas na 2ª semana).
 
 ### Transformação esperada (marcos, as duas)
@@ -50,7 +50,7 @@ Legenda: `[VALIDADO]` está em 2+ VSLs do corpus · `[NOVO]` decisão desta ofer
 
 ### Ideia 1 `[OP1]`: O velho bode que ainda monta (Goat Honey Trick)
 
-- **Descrição:** No Hill Country, o bode reprodutor de 12 anos (um homem de 80) entra no curral e as fêmeas entram no cio só de sentir o cheiro dele. Ele come o mesmo capim com o mesmo veneno que está no seu bife, e não cimenta. O criador tem um balde escrito SODA ao lado do cocho (verdade checável: tampão de rúmen) e um pote de mel escuro na prateleira do curral. Na época da monta, uma colher daquele mel, uma pitada daquele pó, água morna, no cocho. Pergunta paradoxal: "Se a erva do bode está em todo Walmart por $14, por que você continua mole e o bode monta aos 12?" Resposta: o frasco tem o talo; o bode come a flor, em mel, com o pó que impede o estômago de destruir.
+- **Descrição:** No Hill Country, um único bode reprodutor cobre **100 fêmeas em 45 dias**. Cem. Daí nascem 180 cabritos, e o criador conta isso em dinheiro: "$54 mil por ano, o pau de um bode". Ele faz isso aos 12 anos (um homem de 80), e as fêmeas entram no cio só de sentir o cheiro dele quando entra no curral (efeito do macho, veterinária). Ele come o mesmo capim com o mesmo veneno que está no seu bife, e não cimenta. Na fazenda de bode não existe Viagra: bode que amolece vai pro leilão de segunda e vira churrasco de domingo. O criador tem um balde escrito SODA ao lado do cocho (verdade checável: tampão de rúmen) e um pote de mel escuro na prateleira do curral. Na época da monta, uma colher daquele mel, uma pitada daquele pó, água morna, no cocho. Pergunta paradoxal: "Se a erva do bode está em todo Walmart por $14, por que você não aguenta uma mulher e o bode cobre cem aos 12?" Resposta: o frasco tem o talo; o bode come a flor, em mel, com o pó que impede o estômago de destruir.
 - **Por que pode funcionar:** junta a crença instalada mais forte do nicho (lenda do pastor, "old goat", "randy as a goat"), a busca mais viva ("horny goat weed" +350%, "vs Viagra" +3.300%), o maior cluster de anúncios (mel, ~4.200) e o único inimigo que o prospect tem no armário (o frasco de $14). A inviabilização da prateleira pelo nome é o buraco que nenhuma das 3 base preencheu. Bicarbonato no cocho de bode é prática real. `[VALIDADO]` estrutura (organismo que escapa do veneno) · `[NOVO]` animal, veículo e inimigo.
 
 ### Ideia 2 `[OP2]`: O tecido que renasce uma polegada por dia (Antler Jelly Trick)
@@ -286,7 +286,7 @@ Análise completa na planilha `01a_Analise_Padronizada_3_VSLs_Base.xlsx`.
 
 ### Onde entra na lead (3 opções)
 
-- **A) Lead "o frasco errado / o animal errado" (Hyman) — PRINCIPAL.** Entra pela exceção improvável em 20 s; no segundo minuto desmonta a prateleira e o cavalo: "Você já comprou o frasco. Você já viu o vídeo do garanhão. Não foi você. Foi o talo errado, o animal errado e o estômago errado."
+- **A) Lead "o frasco errado / o animal errado" (Hyman) — PRINCIPAL.** Entra pela exceção improvável em 20 s (`[OP1]` "um bode, cem fêmeas, 45 dias, aos 12 anos"; `[OP2]` "40 libras de tecido novo em 90 dias, aos 12 anos"); no segundo minuto desmonta a prateleira e o cavalo: "Você já comprou o frasco. Você já viu o vídeo do garanhão. Não foi você. Foi o talo errado, o animal errado e o estômago errado."
 - **B) Micro-lead "3 mentiras" (padrão Jelly Fil / Max).** Mentira 1: o garanhão cobre égua aos 28. Mentira 2: o frasco de $14 tem a erva do bode `[OP1]` / o pote tem colágeno que chega `[OP2]`. Mentira 3: bicarbonato puro funciona. Candidata a micro-lead antes da lead principal.
 - **C) Cold open do Gupta (Ideia 3).** "Vou dizer uma coisa que provavelmente me demite da CNN."
 
