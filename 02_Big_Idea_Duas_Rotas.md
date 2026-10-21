@@ -133,10 +133,12 @@ Régua: só nome que o homem de 50+ reconhece em 1 segundo, com história públi
 |---|---|---|---|
 | Expert 1 (a VSL inteira: lead, background, tese, build-up, oferta, close) | **Dr. Mark Hyman** (65, MD) | O médico da comida como veneno e do mel cru; encaixe perfeito com MUP cimento tóxico + Goat Honey Trick. Narra com laudo: "100 mil exames por ano na Function Health, o marcador subindo nos homens de 50" | Ex-Cleveland Clinic (Center for Functional Medicine), 15 bestsellers do NYT, podcast The Doctor's Farmacy, co-fundador da Function Health, especiais na PBS. Mora em Austin, Texas (checar) |
 | Expert 2 (investigação e MUS) | **Dr. Sanjay Gupta** (56, neurocirurgião) | O 3º médico mais famoso dos EUA (atrás de Oz e Phil), repórter investigativo há 20 anos. É ele quem acha: gravando um documentário no Texas, encontra **a única fazenda nos EUA** que faz o que o cocho mostra, liga pro Hyman e intermedeia a descoberta. Alternativo narra, mainstream valida | Correspondente-chefe de medicina da CNN, Emory, Emmy. **Confissão pronta:** pedido de desculpas ao vivo em 2013 sobre maconha medicinal ("fui enganado"). "Brought to you by Pfizer": toda matéria de ED que ele fez tinha patrocínio farmacêutico |
-| Famoso traído (emotional story) | **Michael Douglas** (81) | Símbolo sexual dos anos 80 e 90 (Instinto Selvagem, Atração Fatal, Wall Street). O homem que ensinou o avatar a transar não conseguia mais | Separação pública em 2013 e volta; ele próprio ligou o câncer de garganta a sexo oral em entrevista (a vida sexual dele já foi manchete) |
-| Esposa (voz em 1ª pessoa, como a Christine no Soda Horse) | **Catherine Zeta-Jones** (56) | Fama própria, 25 anos mais nova, desejo do avatar. O depoimento dela pesa porque ela é conhecida | A crise de 2013 |
+| Famoso traído (emotional story) | **Al Pacino** (85) | Poderoso Chefão, Scarface, Perfume de Mulher. A prova de que "funciona" mais forte que existe: filho aos 83. Pegada do Costner: a namorada nova, o filho, a dúvida pública sobre o próprio pau, a traição, a queda e a volta com outra mulher nova grávida | Filho Roman em junho de 2023 com Noor Alfallah (29); tabloides: ele exigiu teste de DNA porque duvidou que tinha sido ele; Noor pediu a guarda total em setembro de 2023 (separação pública); memória "Sonny Boy" (2024) onde ele fala do filho aos 83; hoje com outras mulheres novas, uma delas grávida (checar e datar a fonte) |
+| Esposa/namorada (voz em 1ª pessoa, como a Christine no Soda Horse) | **Noor Alfallah** (31) | A que o traiu e saiu. Fala em 1ª pessoa na grande crise, como a Christine falou do vizinho | O pedido de guarda de 2023 é a manchete |
+| A mulher do "depois" | A namorada nova de 27, grávida | A prova viva do close: "ele não só voltou; fez outro filho" | Checar nome e fonte |
+| Alternativa (se Pacino cair) | Michael Douglas (81) + Catherine Zeta-Jones (56) | Símbolo sexual dos anos 80/90; crise pública de 2013 | Separação de 2013 e volta; câncer de garganta ligado a sexo oral |
 | Cameo na lead | **Chuck Norris** (85) | "Chuck Norris não precisa de Viagra" é piada instalada; inverter é gancho pronto. Texas (Walker, rancho perto de Houston) | Imagem limpa: só cameo, nunca história |
-| Depoimento no close | **Al Pacino** (85) ou **Robert De Niro** (82) | Filho aos 83 (Pacino) / aos 79 (De Niro): "ele não só voltou; ele fez um filho" | Tabloides: Pacino exigiu teste de paternidade |
+| Depoimento no close | **Robert De Niro** (82) | Filho aos 79: o segundo homem de 80 com filho novo, corroborando o Pacino | Filha Gia em 2023 com Tiffany Chen |
 | Cameo opcional na oferta (1 min) | **Dr. Oz** | "Médico que prescreve", como no Horse Jelly | Risco: administrador do Medicare (CMS) desde 2025. Se entrar, nunca citar o cargo |
 
 Descartados por fama insuficiente: Dr. Pol, Dr. Jeff, Dra. Oakley (veterinários de TV), Dennis Quaid, Tommy Lee Jones, Billy Bob Thornton, Jeff Bridges, Terry Bradshaw, Ric Flair, Dolph Lundgren, Brad Pitt (só se o avatar baixar para 55).
@@ -145,11 +147,11 @@ Descartados por fama insuficiente: Dr. Pol, Dr. Jeff, Dra. Oakley (veterinários
 
 1. **Cold open (30 a 40 s): Gupta.** O rosto do anúncio é o dele, então ele abre: "vou dizer uma coisa que provavelmente me demite da CNN; deixa o meu amigo Mark explicar o resto". Mantém o cheiro do anúncio e põe a fama no topo.
 2. **Lead e background: Hyman.** Confissão própria ("30 anos tratando a comida e nunca olhei pra esponja"), mesa de provas da Function Health. Cameo do Chuck Norris na lead.
-3. **Emotional story: Douglas e Catherine.** Douglas é amigo do Hyman ("me ligou depois de um jantar em Bermudas; a Catherine tinha puxado o lençol"). Catherine fala em 1ª pessoa na grande crise.
+3. **Emotional story: Pacino e Noor.** Pacino é amigo do Hyman ("ele me ligou de madrugada, em Beverly Hills; não era sobre o coração"). Noor fala em 1ª pessoa na grande crise.
 4. **Discovery: Hyman começa pela pesquisa (filtro por quem financiou) e trava.** Aí entra a ligação: **Gupta do Texas.** Ele estava gravando um documentário sobre veneno na comida no Hill Country e achou a fazenda.
 5. **MUS: Gupta conduz (12 a 15 min de tela no total).** A fazenda única nos EUA, o balde escrito SODA ao lado do cocho ("pergunta pro dono; ele diz que é pro estômago; ele está meio certo"), o pote de mel escuro, o bode de 12 anos entrando no curral. A confissão da CNN ("toda matéria que eu fiz sobre ED era brought to you by Pfizer; em 2013 pedi desculpas uma vez; vou pedir de novo"). O criador entrega o extrato pra ele ("$11 mil, não tente vender"). Gupta lê o laudo do Cedars-Sinai na câmera, como lê na TV.
 6. **Tese dos 4 verbos, build-up e oferta: Hyman.** Gupta volta por 1 minuto na oferta ("eu não ganho nada com isso; estou dizendo porque gravei"). Cameo opcional do Oz.
-7. **Close: Douglas abre** ("fui o primeiro homem que o Mark tratou"); depoimento do Pacino ou De Niro; litania, dois caminhos, 3 razões.
+7. **Close: Pacino abre** ("fui o primeiro homem que o Mark tratou; tenho 85"); a namorada nova de 27 grávida como prova viva; depoimento do De Niro; litania, dois caminhos, 3 razões.
 
 ### A fazenda única nos EUA (o que o Gupta encontra)
 
@@ -160,5 +162,21 @@ Descartados por fama insuficiente: Dr. Pol, Dr. Jeff, Dra. Oakley (veterinários
 ### Riscos registrados
 
 - CNN e Covid pesam contra o Gupta com o texano conservador. A confissão de 2013 e o "brought to you by Pfizer" nos 2 primeiros minutos do segmento dele viram o ponto fraco em gancho.
-- Todos são pessoas reais, como nas 3 base e na VSL 1. Douglas, Catherine e Gupta têm imagem de TV aberta: a copy deles precisa da autorização explícita na tela ("o Michael assinou este vídeo"), como Stallone e Mel.
+- Todos são pessoas reais, como nas 3 base e na VSL 1. Pacino, Noor e Gupta têm imagem de TV aberta: a copy deles precisa da autorização explícita na tela ("o Michael assinou este vídeo"), como Stallone e Mel.
 - Hyman sem mesa de provas soa nutricionista. Function Health na tela é obrigatório.
+
+### Emotional story: Al Pacino (pegada do Costner)
+
+Itens no padrão da planilha. Fatos públicos como âncora (checáveis), cenas privadas inventadas por cima, como as 3 base fazem.
+
+- **Surgimento do Problema:** aos 82 ele começa a sair com a Noor, de 29. "O homem que fez o Scarface" com uma mulher de 29 e um corpo de 82. As primeiras noites: o Viagra funciona "quando funciona"; o ritual dos 45 minutos olhando o relógio; "it's okay, Al". Em junho de 2023 nasce o Roman. E aí a cena mais forte, que é pública: **ele exigiu teste de DNA.** "Não foi por ela. Foi por mim. Eu sabia quantas vezes tinha funcionado naquele ano. Dava pra contar numa mão. Eu duvidei do meu próprio pau na frente do mundo inteiro."
+- **Tentativas de Solução:** Viagra ("quente da droga, entortou"), TRT ("o cardiologista mandou parar"), bomba ("roxo e inchado aos 83"), injeção ("eu, com uma agulha no pau, no banheiro, com uma mulher de 29 esperando do lado de fora").
+- **Agravamento do Problema:** depois do parto, nada. Lençol até o ombro, celular, "estou cansada com o bebê". Ele começa a inventar desculpas antes dela. Meses sem tocar nela. "O Poderoso Chefão pedindo licença pra dormir no quarto de hóspedes."
+- **Medos e Frustrações:** o personal trainer de 30 que vai em casa três vezes por semana (cena inventada, como o vizinho do Costner). "Ele tinha o que eu não tinha. Você não briga com um homem por ele ter o que você não tem."
+- **Grande Crise (pública):** setembro de 2023, Noor pede a guarda total do Roman. Manchete real na tela. E a Noor em 1ª pessoa (como a Christine): "eu não saí pelo dinheiro; o Al tem mais dinheiro do que qualquer homem que eu vá conhecer; eu saí porque uma mulher de 30 precisa de um homem que funciona, e eu tinha um pai de 83 dormindo no quarto ao lado". Pacino sozinho em Beverly Hills, 84 anos, com o filho em semanas alternadas. "Metade dos casamentos deste país acaba assim: em silêncio, dentro do quarto."
+- **A ligação:** de madrugada pro Hyman. "Mark, não é o coração." Entra o protocolo (primeiro homem).
+- **A volta (close):** aos 85, de pé, com outras mulheres novas; uma de 27 grávida. "Ele não só voltou. Ele fez outro filho. Aos 85. Se funciona aos 85, funciona aos 55." De Niro corrobora (filha aos 79).
+
+**Provas para a mesa:** foto do Pacino com o Roman; manchete do pedido de guarda (setembro de 2023); matéria do teste de DNA (TMZ, 2023); capa de "Sonny Boy" (2024); matéria datada da nova gravidez (**pendente: Marcos confirma a fonte**).
+
+**Risco específico:** a nova gravidez é um fato público e fácil de checar. Se a fonte não existir, a frase fica como relato privado ("ele me contou que vem outro") em vez de manchete na tela. Noor é pessoa real com filho pequeno: a cena dela em 1ª pessoa segue o padrão Christine/Jennifer, mas é a parte mais exposta da VSL.
