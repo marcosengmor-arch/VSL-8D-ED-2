@@ -124,3 +124,41 @@ Vick também entra no build-up como demonstração sentida (calor na coxa ou lom
 2. Dissecar Honey Trick With Baking Soda, Receita do Mel Vermelho e Horsewood (padrão `01a`).
 3. Etapa 03 (avatar): deep psychology do homem 35 a 75 que já comprou o frasco de $14.
 4. Etapa 04 (mecanismos): fechar o veneno de marca da Rota 1 (glifosato já rodou 2x; PFAS 1x) e as provas de documento.
+
+## 11. Elenco (decisão de 21/10/2026)
+
+Régua: só nome que o homem de 50+ reconhece em 1 segundo, com história pública que a VSL não precisa explicar (nível Stallone, Gibson, Tyson).
+
+| Papel | Quem | Por que | Prova checável para a mesa |
+|---|---|---|---|
+| Expert 1 (a VSL inteira: lead, background, tese, build-up, oferta, close) | **Dr. Mark Hyman** (65, MD) | O médico da comida como veneno e do mel cru; encaixe perfeito com MUP cimento tóxico + Goat Honey Trick. Narra com laudo: "100 mil exames por ano na Function Health, o marcador subindo nos homens de 50" | Ex-Cleveland Clinic (Center for Functional Medicine), 15 bestsellers do NYT, podcast The Doctor's Farmacy, co-fundador da Function Health, especiais na PBS. Mora em Austin, Texas (checar) |
+| Expert 2 (investigação e MUS) | **Dr. Sanjay Gupta** (56, neurocirurgião) | O 3º médico mais famoso dos EUA (atrás de Oz e Phil), repórter investigativo há 20 anos. É ele quem acha: gravando um documentário no Texas, encontra **a única fazenda nos EUA** que faz o que o cocho mostra, liga pro Hyman e intermedeia a descoberta. Alternativo narra, mainstream valida | Correspondente-chefe de medicina da CNN, Emory, Emmy. **Confissão pronta:** pedido de desculpas ao vivo em 2013 sobre maconha medicinal ("fui enganado"). "Brought to you by Pfizer": toda matéria de ED que ele fez tinha patrocínio farmacêutico |
+| Famoso traído (emotional story) | **Michael Douglas** (81) | Símbolo sexual dos anos 80 e 90 (Instinto Selvagem, Atração Fatal, Wall Street). O homem que ensinou o avatar a transar não conseguia mais | Separação pública em 2013 e volta; ele próprio ligou o câncer de garganta a sexo oral em entrevista (a vida sexual dele já foi manchete) |
+| Esposa (voz em 1ª pessoa, como a Christine no Soda Horse) | **Catherine Zeta-Jones** (56) | Fama própria, 25 anos mais nova, desejo do avatar. O depoimento dela pesa porque ela é conhecida | A crise de 2013 |
+| Cameo na lead | **Chuck Norris** (85) | "Chuck Norris não precisa de Viagra" é piada instalada; inverter é gancho pronto. Texas (Walker, rancho perto de Houston) | Imagem limpa: só cameo, nunca história |
+| Depoimento no close | **Al Pacino** (85) ou **Robert De Niro** (82) | Filho aos 83 (Pacino) / aos 79 (De Niro): "ele não só voltou; ele fez um filho" | Tabloides: Pacino exigiu teste de paternidade |
+| Cameo opcional na oferta (1 min) | **Dr. Oz** | "Médico que prescreve", como no Horse Jelly | Risco: administrador do Medicare (CMS) desde 2025. Se entrar, nunca citar o cargo |
+
+Descartados por fama insuficiente: Dr. Pol, Dr. Jeff, Dra. Oakley (veterinários de TV), Dennis Quaid, Tommy Lee Jones, Billy Bob Thornton, Jeff Bridges, Terry Bradshaw, Ric Flair, Dolph Lundgren, Brad Pitt (só se o avatar baixar para 55).
+
+### Pontes entre os cinco
+
+1. **Cold open (30 a 40 s): Gupta.** O rosto do anúncio é o dele, então ele abre: "vou dizer uma coisa que provavelmente me demite da CNN; deixa o meu amigo Mark explicar o resto". Mantém o cheiro do anúncio e põe a fama no topo.
+2. **Lead e background: Hyman.** Confissão própria ("30 anos tratando a comida e nunca olhei pra esponja"), mesa de provas da Function Health. Cameo do Chuck Norris na lead.
+3. **Emotional story: Douglas e Catherine.** Douglas é amigo do Hyman ("me ligou depois de um jantar em Bermudas; a Catherine tinha puxado o lençol"). Catherine fala em 1ª pessoa na grande crise.
+4. **Discovery: Hyman começa pela pesquisa (filtro por quem financiou) e trava.** Aí entra a ligação: **Gupta do Texas.** Ele estava gravando um documentário sobre veneno na comida no Hill Country e achou a fazenda.
+5. **MUS: Gupta conduz (12 a 15 min de tela no total).** A fazenda única nos EUA, o balde escrito SODA ao lado do cocho ("pergunta pro dono; ele diz que é pro estômago; ele está meio certo"), o pote de mel escuro, o bode de 12 anos entrando no curral. A confissão da CNN ("toda matéria que eu fiz sobre ED era brought to you by Pfizer; em 2013 pedi desculpas uma vez; vou pedir de novo"). O criador entrega o extrato pra ele ("$11 mil, não tente vender"). Gupta lê o laudo do Cedars-Sinai na câmera, como lê na TV.
+6. **Tese dos 4 verbos, build-up e oferta: Hyman.** Gupta volta por 1 minuto na oferta ("eu não ganho nada com isso; estou dizendo porque gravei"). Cameo opcional do Oz.
+7. **Close: Douglas abre** ("fui o primeiro homem que o Mark tratou"); depoimento do Pacino ou De Niro; litania, dois caminhos, 3 razões.
+
+### A fazenda única nos EUA (o que o Gupta encontra)
+
+- Hill Country, Texas: a única fazenda que cria o bode Boer com a flor no cocho, do jeito que os pastores faziam, e que tem o equipamento de concentração da flor (icariina alta). "Não existe similar, não existe genérico, e não vai existir nos próximos 5 anos, porque o equipamento só existe aqui" (frase do JellyRock, adaptada).
+- Entrega em mãos: pote âmbar, bolsa térmica, placa da fazenda (nome fictício, "Est. 19xx"), aperto de mão em frente ao curral.
+- Prova que o Gupta traz de volta: a câmera dele (ele é repórter: tudo filmado), o balde de SODA, o pote de mel, o cartão do bode de 12 anos com a data da última cobertura.
+
+### Riscos registrados
+
+- CNN e Covid pesam contra o Gupta com o texano conservador. A confissão de 2013 e o "brought to you by Pfizer" nos 2 primeiros minutos do segmento dele viram o ponto fraco em gancho.
+- Todos são pessoas reais, como nas 3 base e na VSL 1. Douglas, Catherine e Gupta têm imagem de TV aberta: a copy deles precisa da autorização explícita na tela ("o Michael assinou este vídeo"), como Stallone e Mel.
+- Hyman sem mesa de provas soa nutricionista. Function Health na tela é obrigatório.
