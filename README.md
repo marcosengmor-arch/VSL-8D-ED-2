@@ -16,6 +16,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 04 | `04_Mecanismos_Candidatos.md` | 3–5 mecanismos de problema/solução com estudo real, demo de bancada e "fonte com endereço", sem canibalizar cimento/glifosato | ⏳ |
 | 05 | `05_Brief_de_Oferta_VSL2_v2_Goat_Honey_Trick.md` + `.docx` | **Brief de oferta final para copy (v2):** Goat Honey Trick, bode, mel + bicarbonato como sofisticação, MUP do cimento (linha Soda Horse) com provas reforçadas por ponto lógico (PL1 a PL7-B + tabela de densidade), elenco, emotional do Pacino, pontos lógicos, provas, oferta, close, desqualificação, regras de copy. Docx no template do coordenador | ✅ |
 | 05b | `05b_Pedido_Produto_Goat_Honey_Rock.md` | Pedido do produto ao fabricante: nome (Goat Honey Rock / GoatRock), rótulo, formato, fórmula nos 4 verbos e as 7 perguntas que definem a copy | ✅ |
+| 05c | `05c_Prompts_Imagem_Produto_Goat_Honey_Rock.md` | Identidade fixa do frasco + 5 prompts de imagem (packshot, kit de 6, cocho do Hill Country, macro da goma, escassez) e variações para anúncio, thumb, caixa discreta e mesa de provas | ✅ |
 | 05-v1 | `05_Brief_de_Oferta_VSL2_Duas_Opcoes.md` + `.docx` | Versão v1 com as duas opções lado a lado (arquivada para registro da decisão) | arquivo |
 | 06 | `06_Provas_e_Demonstracoes.md` | Cada prova → demonstração (bancada / campo / corpo / documento / instrumento / registro) | ⏳ |
 | 07 | `07_Leads_e_Hooks.md` | 3 ângulos de lead com celebridade e cena, prontos para A/B | ⏳ |
