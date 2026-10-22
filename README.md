@@ -15,6 +15,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 03 | `03_Avatar_Deep_Psychology.md` | Psicologia profunda do homem 45–70 com ED: dores, vergonhas, linguagem, cenas de reconhecimento ainda não usadas | ⏳ |
 | 04 | `04_Mecanismos_Candidatos.md` | 3–5 mecanismos de problema/solução com estudo real, demo de bancada e "fonte com endereço", sem canibalizar cimento/glifosato | ⏳ |
 | 05 | `05_Brief_de_Oferta_VSL2_v2_Goat_Honey_Trick.md` + `.docx` | **Brief de oferta final para copy (v2):** Goat Honey Trick, bode, mel + bicarbonato como sofisticação, MUP do cimento (linha Soda Horse) com provas reforçadas por ponto lógico (PL1 a PL7-B + tabela de densidade), elenco, emotional do Pacino, pontos lógicos, provas, oferta, close, desqualificação, regras de copy. Docx no template do coordenador | ✅ |
+| 05b | `05b_Pedido_Produto_Goat_Honey_Rock.md` | Pedido do produto ao fabricante: nome (Goat Honey Rock / GoatRock), rótulo, formato, fórmula nos 4 verbos e as 7 perguntas que definem a copy | ✅ |
 | 05-v1 | `05_Brief_de_Oferta_VSL2_Duas_Opcoes.md` + `.docx` | Versão v1 com as duas opções lado a lado (arquivada para registro da decisão) | arquivo |
 | 06 | `06_Provas_e_Demonstracoes.md` | Cada prova → demonstração (bancada / campo / corpo / documento / instrumento / registro) | ⏳ |
 | 07 | `07_Leads_e_Hooks.md` | 3 ângulos de lead com celebridade e cena, prontos para A/B | ⏳ |
@@ -39,6 +40,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 19/10/2026 | Repositório criado; estrutura e base herdada da VSL 1 | README |
 | 20/10/2026 | Análise das 3 VSLs base no padrão da planilha "Análise das VSL's Escaladas ED (EUA)" e do doc "Padronização de Análise da VSL" | 01a |
 | 21/10/2026 | Mercado lido (Trends, YouTube, prateleira, spy tool): não fazer 4ª VSL de cavalo; inviabilizar a prateleira pelo nome; mel é o maior cluster, cavalo o que mais acelera | 01 |
+| 22/10/2026 | **Nome do produto: Goat Honey Rock** (GOAT Honey Rock no rótulo; GoatRock como nome curto). Truque: Goat Honey Trick. Garantia: The GOAT Guarantee. Teste de nome com o checklist da VSL 1 (hipóteses descartadas no brief). Pedido ao fabricante escrito | 05, 05b |
 | 22/10/2026 | **Decisão da oferta: Opção 1.** Bode, mel com bicarbonato de sódio como sofisticação de absorção, MUP do cimento/placas tóxicas (linha Soda Horse / Bull Soda Rise) com mais provas. Brief v2 final para copy gerado; v1 arquivada | 05 |
 | 21/10/2026 | Brief de oferta v1 escrito com as duas opções para escolha (05) | 05-v1 |
 | 21/10/2026 | Elenco: Hyman (expert 1, VSL inteira) + Gupta (expert 2, investigação e MUS: encontra a fazenda única nos EUA e liga pro Hyman; cold open de 30 s; 12 a 15 min de tela; confissão da CNN de 2013) + Al Pacino e Noor Alfallah (emotional story, pegada do Costner: filho aos 83, teste de DNA, guarda em 2023, traição, volta com outra de 27 grávida) + Chuck Norris (cameo na lead) + De Niro (depoimento no close); Douglas/Zeta-Jones como alternativa + Oz opcional (cameo de 1 min na oferta) | 02 §11 |
@@ -49,6 +51,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 - Fabricante: teor de icariina (10/20/50/60/98%), forma de absorção, origem do veludo de alce (regra de CWD), bicarbonato na goma.
 - Dissecar 3 VSLs do spy tool no padrão `01a`: Honey Trick With Baking Soda, Receita do Mel Vermelho, Horsewood.
 - Checar números marcados em `02` §8 (leilão de Houston, cabrito, reprodutor de alce, avisos da FDA sobre honey packs).
+- Checar "Goat Honey Rock" no USPTO e o domínio .com.
 - Confirmar cidade do Hyman (Austin) e separar as provas checáveis (confissão do Gupta em 2013, teste de DNA e guarda do Pacino em 2023, Function Health).
 - Marcos: fonte datada da nova gravidez do Pacino (namorada de 27) para a mesa de provas.
 - VSL 1: troca de David Hartman / Meridian Labs (3 opções enviadas, escolha pendente).
