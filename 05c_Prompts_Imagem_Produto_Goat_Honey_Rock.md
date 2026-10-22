@@ -1,12 +1,62 @@
-# 05c — Prompts de imagem do produto: Goat Honey Rock
+# 05c — Prompts de criação do produto (design do pote): Goat Honey Rock
 
-Data: 22/10/2026. Base: packshots das 3 VSLs (frasco âmbar/preto com rótulo escuro, "67 frascos" em neon, pote âmbar na bolsa térmica, laudo ao lado), identidade da VSL 1 (preto + laranja Longhorn) e o universo desta oferta (Hill Country, curral, balde SODA, pote de mel escuro).
+Data: 22/10/2026. Objetivo: gerar o visual do produto (frasco, tampa, rótulo, tipografia, cores, acabamentos) na IA de imagem, em 5 direções de design, para escolher uma e depois produzir as cenas da VSL. Base: os frascos das 3 VSLs (rótulo escuro em frasco opaco, pote âmbar do extrato cru, neon dos "67 frascos"), a identidade da VSL 1 (preto + laranja Longhorn) e o universo desta oferta (Hill Country, mel escuro, balde SODA, bode de 12 anos).
 
-## Identidade fixa (colar no início de todo prompt)
+## Elementos obrigatórios em todas as direções
+
+- Nome: "GOAT Honey Rock" (GOAT maior que o resto). Linha de categoria: "Men's Daily Gummy". Origem: "Hill Country, Texas". Quantidade: "30 Gummies". Pequeno: "Honey flavor".
+- Ícone: cabeça de bode com chifres curvos (nunca cartoon; silhueta ou gravura).
+- Pista de mel: favo, gota ou cor âmbar em algum ponto do rótulo.
+- Nada de "horny goat weed", "baking soda", "trick" ou claim de ereção no rótulo.
+- Frasco de goma de 30 unidades (boca larga), sem blister, sem caixa (a caixa discreta é marrom sem logo).
+
+## Como pedir (vale para os 5)
+
+Formato do pedido: *packaging design, front view, centered, studio white background, photorealistic 3D render, label fully readable, no extra text*. Rodar cada direção em 3 versões: (a) frasco frontal, (b) frasco em 3/4 com tampa, (c) rótulo planificado ("flat label artwork, dieline view, full wrap, print-ready look"). Proporção 1:1 para o frasco e 3:1 para o rótulo planificado. Negativo padrão: `misspelled text, extra words, cartoon, clip art, cluttered, blurry, watermark, two bottles, box`. Os geradores erram letra: se o nome sair errado, aprovar o design e refazer o texto no vetor.
+
+## Direção 1 — Preto fosco e ouro (GOAT premium) · RECOMENDADA
+
+> Supplement packaging design for "GOAT Honey Rock", men's daily gummy. Matte black HDPE 30-count wide-mouth bottle, brushed gold metal screw cap. Full-wrap label on deep black: a minimalist goat head with curved horns in gold foil at the top center; the word "GOAT" very large in gold, bold condensed sans-serif; "Honey Rock" below in warm white, same family, lighter weight; a thin gold rule; small caps "MEN'S DAILY GUMMY · HONEY FLAVOR · 30 GUMMIES"; at the bottom "HILL COUNTRY, TEXAS" with a tiny gold star. A subtle dark-amber honeycomb texture embossed behind the logo, barely visible. Gold foil and spot-gloss finishes. Front view, centered, studio white background, photorealistic 3D render, label fully readable, no extra text. --ar 1:1
+
+Por que: é a leitura de prateleira premium que o avatar de 50+ associa a "funciona"; GOAT em ouro força "o maior de todos"; combina com o close ("seja o velho bode que ainda monta") e com a cor do mel na goma.
+
+## Direção 2 — Rústico Hill Country (a fazenda única)
+
+> Supplement packaging design for "GOAT Honey Rock", men's daily gummy. Amber glass-look 30-count bottle with a black phenolic cap and a dark-brown kraft paper label with a torn-edge look. Letterpress-style typography: "GOAT Honey Rock" in a bold Western slab serif printed in black, a vintage engraved illustration of a mature buck goat standing on a rocky hill at the center, a wax-seal style round stamp reading "HILL COUNTRY, TEXAS · EST. 1987", small text "MEN'S DAILY GUMMY · HONEY FLAVOR · 30 GUMMIES". A single honey drip illustration under the name. Debossed paper texture, matte finish, hand-made ranch feel. Front view, centered, studio white background, photorealistic 3D render, label fully readable, no extra text. --ar 1:1
+
+Por que: casa com o criador, a placa "Est. 19xx" e o pote âmbar do extrato; é a versão "veio do curral". Risco: pode parecer mel de feira, não suplemento; a tampa preta e o frasco opaco seguram.
+
+## Direção 3 — Mel e colmeia (o produto é a flor em mel)
+
+> Supplement packaging design for "GOAT Honey Rock", men's daily gummy. Translucent amber PET 30-count bottle showing the glossy honey-colored hexagonal gummies inside, with a matte black cap. Label is a partial wrap in deep amber-to-black gradient: a hexagonal honeycomb grid as the background, a bold goat head silhouette in black inside one large hexagon, "GOAT" in heavy black letters and "Honey Rock" in gold, a line of small white caps "MEN'S DAILY GUMMY · 30 GUMMIES · HILL COUNTRY, TEXAS". Glossy varnish on the honeycomb, matte elsewhere. The gummies visible through the clear window above the label. Front view, centered, studio white background, photorealistic 3D render, label fully readable, no extra text. --ar 1:1
+
+Por que: mostra a goma (prova visual do "mel" sem dizer), mantém o animal; é a direção mais "receita de cozinha". Risco: menos autoridade clínica.
+
+## Direção 4 — Clínico e laudo (o laboratório independente)
+
+> Supplement packaging design for "GOAT Honey Rock", men's daily gummy. White matte HDPE 30-count bottle with a black cap. Clean pharmaceutical-style label: white background, a thick black band across the top with "GOAT Honey Rock" in bold geometric sans-serif (white on black), a small gold goat-head emblem at the left of the band; below, a precise grid of information in black and gold: "Men's Daily Gummy", "Honey Flavor", "30 Gummies", a lot-number box, a gold seal "cGMP · 21 CFR 111", and "Hill Country, Texas" at the bottom. One thin amber stripe along the base as the only warm color. Matte finish, crisp edges, the look of a clinical protocol rather than a supplement. Front view, centered, studio white background, photorealistic 3D render, label fully readable, no extra text. --ar 1:1
+
+Por que: é o frasco que o Gupta lê o laudo ao lado; responde à objeção "é golpe de internet". Risco: perde o calor do mel e do rancho; usar se o jurídico quiser o tom mais sóbrio.
+
+## Direção 5 — Texas bold (linhagem Bull Soda Rise)
+
+> Supplement packaging design for "GOAT Honey Rock", men's daily gummy. Matte black 30-count bottle with a burnt-orange cap. Label: black background with a large burnt-orange Texas lone star watermark, a strong goat head with long curved horns drawn in thick orange and gold lines, "GOAT" in huge condensed display type in burnt orange, "Honey Rock" in white underneath, a gold honeycomb strip along the bottom edge with "HILL COUNTRY, TEXAS" in white small caps, side text "MEN'S DAILY GUMMY · HONEY FLAVOR · 30 GUMMIES". Spot gloss on the horns, matte black elsewhere, bold and masculine like a Texas ranch brand. Front view, centered, studio white background, photorealistic 3D render, label fully readable, no extra text. --ar 1:1
+
+Por que: assinatura da casa (preto + laranja da VSL 1), "Everything's bigger in Texas" sem dizer; forte em thumbnail. Risco: parece irmão do Bull Soda Rise e pode confundir no leilão.
+
+## Depois de escolher a direção
+
+1. Gerar o rótulo planificado da direção escolhida (3:1) e o verso com a tabela de ingredientes em branco ("supplement facts panel, blank placeholder") para o designer finalizar no vetor.
+2. Gerar a tampa e o fundo do frasco em 3/4 para o 3D da VSL.
+3. Só então rodar as cenas abaixo (packshot, kit de 6, cocho, macro, escassez), colando a descrição final do frasco como identidade fixa.
+
+---
+
+# Anexo — Prompts de cena (usar depois do pote definido)
+
+Identidade fixa provisória (trocar pela direção escolhida):
 
 > Product: "GOAT Honey Rock", men's daily gummy supplement. Matte black 30-count supplement bottle with a brushed gold screw cap. Label: deep black background, a minimalist goat head with curved horns in gold foil, the brand name "GOAT Honey Rock" in bold condensed sans-serif (GOAT larger, in gold; "Honey Rock" in warm white), small honeycomb pattern behind the logo in dark amber, a thin gold line and the words "HILL COUNTRY, TEXAS" and "30 GUMMIES · MEN'S DAILY FORMULA" in small caps. Gummies: translucent amber honey-colored hexagonal gummies, glossy, like drops of honey. Premium nutraceutical photography, physically accurate materials, no extra text.
-
-Regras: sempre dizer a marca entre aspas e descrever as letras (os geradores erram texto; se sair errado, gera sem texto e aplica a arte do rótulo no Photoshop). Proporções: packshot 1:1 ou 4:5; cenas 16:9 para VSL e 9:16 para anúncio. Negativo padrão: `blurry, extra fingers, misspelled text, duplicate bottles, watermark, cartoon, plastic look, cluttered`.
 
 ## Prompt 1 — Packshot hero (checkout, página de oferta, lettering "aqui está")
 
