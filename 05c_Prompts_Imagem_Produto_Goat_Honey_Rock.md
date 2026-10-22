@@ -44,6 +44,16 @@ Por que: é o frasco que o Gupta lê o laudo ao lado; responde à objeção "é 
 
 Por que: assinatura da casa (preto + laranja da VSL 1), "Everything's bigger in Texas" sem dizer; forte em thumbnail. Risco: parece irmão do Bull Soda Rise e pode confundir no leilão.
 
+## Direção 6 — Âmbar sofisticado com o bode na tampa (pedida em 22/10, a partir da imagem 1)
+
+> Luxury supplement packaging design for "GOAT Honey Rock", men's daily gummy. Dark amber glass-look 30-count wide-mouth bottle, thick-walled with a slight shoulder, the amber glowing warm where light passes through it. Heavy matte black metal screw cap with a goat head with long curved horns embossed and debossed on the top of the cap in brushed gold, like a seal; the same goat emblem in small gold foil on the front of the cap's side. Full-wrap label in deep matte black with a fine gold border: the word "GOAT" very large across the label in a bold condensed display sans-serif, gold foil with a subtle inner bevel so it catches the light; directly below, "Honey Rock" in a wide, elegant serif in warm ivory, letterspaced; a thin gold rule; small caps in ivory "MEN'S DAILY GUMMY · HONEY FLAVOR · 30 GUMMIES"; at the base "HILL COUNTRY, TEXAS" flanked by two tiny gold stars. A faint dark-amber honeycomb texture embossed behind the typography, only visible at an angle. Spot-gloss on the lettering, soft-touch matte on the rest of the label, gold hot-foil accents. Sophisticated, masculine, premium nutraceutical brand, closer to a whisky or fine-honey bottle than to a drugstore supplement. Front view, centered, studio white background, soft top light with a warm rim light showing the amber glow, photorealistic 3D render, label fully readable, no extra text. --ar 1:1
+
+Variações da mesma direção:
+- Tampa em close: "extreme close-up of the matte black metal cap from above, the embossed brushed-gold goat head seal filling the frame, amber glass edge visible below, macro lens, studio light". --ar 1:1
+- 3/4 com a tampa: acrescentar "three-quarter view from slightly above so the goat seal on the cap and the full label are both visible".
+- Rótulo planificado: "flat label artwork for the same design, dieline view, full wrap, print-ready look, black with gold foil lettering". --ar 3:1
+- Negativo: `misspelled text, extra words, cartoon goat, clip art, cluttered, blurry, watermark, two bottles, box, plastic cap`.
+
 ## Depois de escolher a direção
 
 1. Gerar o rótulo planificado da direção escolhida (3:1) e o verso com a tabela de ingredientes em branco ("supplement facts panel, blank placeholder") para o designer finalizar no vetor.
