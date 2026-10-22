@@ -1,5 +1,7 @@
 # 02 — Big Idea: duas rotas (bode + mel / alce + gelatina), ambas com bicarbonato
 
+> **Decisão de 22/10/2026 (Marcos): Rota 1, Goat Honey Trick.** Bode, mel com bicarbonato de sódio como sofisticação, MUP do cimento (linha Soda Horse) com mais provas. A Rota 2 fica arquivada como plano B; o alce entra na Rota 1 como ingrediente de Reconstruir. Brief final: `05_Brief_de_Oferta_VSL2_v2_Goat_Honey_Trick.md`.
+
 Decisão de 21/10/2026. Trocamos o animal (cavalo está com 7 ofertas no ar, incluindo a nossa Bull Soda Rise). O veículo de cozinha tem que ser validado: gelatina, mel, bicarbonato ou mistura de 2. Ficam duas rotas documentadas; a fórmula é uma só e o herói troca conforme a rota.
 
 ## 1. Critério de superestrutura

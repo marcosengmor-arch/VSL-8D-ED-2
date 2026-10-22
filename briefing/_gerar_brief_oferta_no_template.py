@@ -221,22 +221,22 @@ for b in prod: out.append(set_level(P(B1, b[2]), 1))
 out.append(P(B0, 'Promessa principal:'))
 for b in items('Promessa principal'): out.append(set_level(P(B1, b[2]), 1))
 # Transformação
-out.append(P(B0, 'Transformação esperada (marcos, as duas opções):'))
+out.append(P(B0, [t for t in order if t.startswith('Transformação esperada')][0] + ':'))
 for b in items('Transformação esperada'): out.append(set_level(P(B1, b[2]), 1))
 # Público
-out.append(P(B0, 'Público-alvo (detalhado, as duas opções):'))
+out.append(P(B0, [t for t in order if t.startswith('Público-alvo')][0] + ':'))
 for b in items('Público-alvo'): out.append(set_level(P(B1, b[2]), 1))
 
 # Três ideias
 out.append(P(H2, 'Três Ideias de Ângulo Principal (Top 3 Big Ideas)'))
-out.append(P(NOTE, '(Cada uma deve ser clara, única e com potencial de escalabilidade. Tudo sem marca é igual nas duas opções; [OP1] e [OP2] marcam o que difere.)'))
+out.append(P(NOTE, '(Cada uma deve ser clara, única e com potencial de escalabilidade)'))
 ideias = [t for t in order if t.startswith('Ideia ')]
 for n, t in enumerate(ideias):
     out.append(P(H3G if n == 0 else H3, t, hl='green' if n == 0 else None, strip_hl=(n != 0)))
     for b in items(t): out.append(P(els[29], b[2]))
 out.append(P(H3, 'Leads para teste (A/B, como na VSL 1)'))
 for r in table('Leads para teste')[1:]:
-    out.append(P(els[29], f'**Lead {r[0]}:** {r[1]} — Opção {r[2]}'))
+    out.append(P(els[29], f'**Lead {r[0]}:** {r[1]} — {r[2]}'))
 
 # Mecanismos
 out.append(P(H2, 'Mecanismos – Problema e Solução (uma por opção + reserva)'))
@@ -248,17 +248,27 @@ for t in [t for t in order if t.startswith('Mecanismo ')]:
 # Nome chiclete
 out.append(P(H2, 'Nome "Chiclete" (Hipóteses de Nome para Oferta ou Produto)'))
 out.append(P(NOTE, '(Opções fáceis de lembrar e comunicar; o animal vem antes do veículo)'))
-nome_rows = table('Nome')[1:]
-funcs = {r[0]: r for r in nome_rows}
+nome_hdr = table('Nome')[0]; nome_rows = table('Nome')[1:]
 def nr(key): return [r for r in nome_rows if r[0].startswith(key)][0]
 r_truque, r_prod, r_gar = nr('Truque'), nr('Produto'), nr('Garantia')
-out.append(P(H3G, f'Nome 1 [OP1]: {r_truque[1].replace("**","")} / {r_prod[1].replace("**","")} / {r_gar[1].replace("**","")}', hl='green', strip_hl=False))
-out.append(P(els[47], f'Justificativa: {r_truque[3]}. Produto: {r_prod[3]}. Garantia: {r_gar[3]}.'))
-out.append(P(H3, f'Nome 2 [OP2]: {r_truque[2].replace("**","")} / {r_prod[2].replace("**","")} / {r_gar[2].replace("**","")}'))
-out.append(P(els[47], f'Justificativa: {r_truque[3]}. Produto: {r_prod[3]}.'))
-others = [r for r in nome_rows if r not in (r_truque, r_prod, r_gar)]
-out.append(P(H3, 'Nome 3: variações de lugar, hook e nome de boca'))
-for r in others: out.append(P(els[47], f'{r[0]}: [OP1] {r[1]} · [OP2] {r[2]} — {r[3]}'))
+if len(nome_hdr) == 3:
+    out.append(P(H3G, f'Nome 1 (truque): {r_truque[1].replace("**","")}', hl='green', strip_hl=False))
+    out.append(P(els[47], f'Justificativa: {r_truque[2]}'))
+    out.append(P(H3, f'Nome 2 (produto): {r_prod[1].replace("**","")}'))
+    out.append(P(els[47], f'Justificativa: {r_prod[2]}'))
+    out.append(P(H3, f'Nome 3 (garantia): {r_gar[1].replace("**","")}'))
+    out.append(P(els[47], f'Justificativa: {r_gar[2]}'))
+    others = [r for r in nome_rows if r not in (r_truque, r_prod, r_gar)]
+    out.append(P(H3, 'Variações de lugar, hook e nome de boca'))
+    for r in others: out.append(P(els[47], f'{r[0]}: {r[1].replace("**","")} — {r[2]}'))
+else:
+    out.append(P(H3G, f'Nome 1 [OP1]: {r_truque[1].replace("**","")} / {r_prod[1].replace("**","")} / {r_gar[1].replace("**","")}', hl='green', strip_hl=False))
+    out.append(P(els[47], f'Justificativa: {r_truque[3]}. Produto: {r_prod[3]}. Garantia: {r_gar[3]}.'))
+    out.append(P(H3, f'Nome 2 [OP2]: {r_truque[2].replace("**","")} / {r_prod[2].replace("**","")} / {r_gar[2].replace("**","")}'))
+    out.append(P(els[47], f'Justificativa: {r_truque[3]}. Produto: {r_prod[3]}.'))
+    others = [r for r in nome_rows if r not in (r_truque, r_prod, r_gar)]
+    out.append(P(H3, 'Nome 3: variações de lugar, hook e nome de boca'))
+    for r in others: out.append(P(els[47], f'{r[0]}: [OP1] {r[1]} · [OP2] {r[2]} — {r[3]}'))
 for ptxt in paras('Nome'): out.append(P(PLAIN, ptxt))
 
 # Pesquisa de mercado (box table)
@@ -332,6 +342,20 @@ out += [EMPTY, EMPTY]
 out.append(P(H3BLACK, 'Provas porque isso funciona'))
 out.append(fill_table(T_PROV, table('Provas porque isso funciona')))
 out += [EMPTY, EMPTY]
+try:
+    mup = sec('Provas do MUP do cimento')
+    out.append(P(H3BLACK, 'Provas do MUP do cimento, reforçadas por ponto lógico'))
+    for ptxt in [x[1] for x in mup if x[0] == 'p' and not x[1].startswith('**Densidade')]: out.append(P(NOTE, ptxt))
+    tabs = [x[1] for x in mup if x[0] == 't']
+    out.append(fill_table(T_PROV, tabs[0]))
+    out.append(EMPTY)
+    if len(tabs) > 1:
+        out.append(P(BOLDT, 'Densidade mínima por ponto (checagem antes da copy)'))
+        dens = [[r[0], ' · '.join(r[1:4]), ' · '.join(r[4:6])] for r in tabs[1]]
+        out.append(fill_table(T_PROV, dens, header=['Ponto', 'Documento · Número · Analogia', '"Olhe para isto" · Registro']))
+    out += [EMPTY, EMPTY]
+except KeyError:
+    pass
 
 # Oferta e close
 out.append(P(BOLDT, 'OFERTA E CLOSE (resumo operacional, as duas opções):'))
