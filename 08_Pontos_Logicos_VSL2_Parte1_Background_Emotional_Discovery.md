@@ -30,7 +30,7 @@ Cold open do Gupta, micro-lead e lead ficam fora deste documento (doc 07, leads)
 
 ## BLOCO 2 — EMOTIONAL (modelo: Soda Horse, blocos 4 a 7, 6:23 → 15:29)
 
-**Objetivo:** o espectador vê a própria vida na do Poderoso Chefão; a frase da mulher é plantada antes da história; o rival e o seu mundo (o Hill Country, os bodes) são plantados pelo próprio Pacino; a câmera da cozinha mostra o truque sem explicar; a mulher fala em 1ª pessoa; o Hyman sai com duas perguntas (o veneno e o que o garoto tirou dos bodes). O final não é reconquista: ela saiu.
+**Objetivo:** o espectador vê a própria vida na do Poderoso Chefão; a frase da mulher é plantada antes da história; a câmera da cozinha mostra o truque sem explicar; a mulher fala em 1ª pessoa e é ela quem revela de onde vem o segredo (o tio, a fazenda de bode: ponte B); o Hyman sai com duas perguntas (o veneno e o que o garoto tirou dos bodes). O final não é reconquista: ela saiu.
 **Arquétipo:** Curador (Hyman entrevista), Pacino em 1ª pessoa, Noor em 1ª pessoa.
 **Trilha:** grave na frase dela → melancólica no Pacino → tensão na câmera → silêncio → grave na confissão dela → suspeita no fechamento.
 
