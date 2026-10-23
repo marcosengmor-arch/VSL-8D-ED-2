@@ -114,3 +114,49 @@ Por que funciona: o espectador ouve "pó da fazenda", "mel", "tio", "bode" pela 
 | PL-D6 | o bode de 12 anos (ficha) | MUS (ao vivo), build-up ("dois bodes irmãos") e close ("o velho bode que ainda monta") |
 
 **Regras de edição que os três blocos já obedecem:** imagem literal em cada frase; "guarde esse detalhe" plantado e pago; fonte com endereço (o Hill Country nomeado na emotional, a fazenda com placa no MUS); testemunhas com cargo e período (ex-revisor da FDA, 22 anos); nenhum frasco, pote de prateleira ou preço antes do bloco de produto; Gupta citado na discovery, em pessoa só no MUS.
+
+---
+
+## Sofisticações candidatas para bater o controle (23/10/2026, para escolha)
+
+Critério: mesma estrutura validada, com um elemento que ninguém no mercado tem (formato, personagem, objeto, ângulo), que aumenta crença ou retenção, e que dá para produzir com avatar/lip sync e tela.
+
+### Background
+
+| # | Ideia | O que o mercado faz hoje | O que muda | Por que bate o controle | Custo / risco |
+|---|---|---|---|---|---|
+| B-a | **O sangue do Pacino na mesa antes da história** | O expert se apresenta e narra; laudo só aparece no MUS | O Hyman abre com o painel da Function Health do Al na mesa: "esse é o sangue do Al Pacino; eu vou te mostrar o que ninguém viu nele" (um marcador circulado, sem explicar ainda) | Prova de instrumento no minuto 5, de um famoso; o espectador quer saber o que é o marcador; a autoridade vira objeto | Baixo (tela); checar como a Function Health aparece |
+| B-b | **A fila: fotos reais do Hyman com famosos, com lower-third** | "Pelo meu consultório passam bilionários" (narrado) | Montagem de 6 a 8 fotos reais dele com nomes conhecidos (ele tem muitas: Clinton, Oprah, Hugh Jackman `[VERIFICAR]`), cada uma com nome e ano | O que a Soda Horse diz, a gente mostra | Baixo; só fotos reais |
+| B-c | **Os três do Expendables no mesmo sofá** | Depoimentos de famosos um por vez, em cortes | Stallone, Arnold e Van Damme juntos, no mesmo sofá, falando com o Hyman; o 50+ lembra do filme; "os Mercenários não precisam de pílula" | Ninguém juntou os três; vira meme e thumb; a prova social triplica numa cena só | Médio (3 avatares numa cena); risco de paródia: tom sério, 40 segundos, sem piada |
+| B-d | **Entrevista ao contrário: uma mulher pergunta** | Expert em monólogo (SH) ou podcast com homens (HJ) | Uma apresentadora (a criadora da pré-lead ou uma uróloga) entrevista o Hyman desde o background: "por que os homens amolecem aos 50?"; as perguntas são as que a esposa faria | Põe a voz feminina onde o mercado só tem homens; casa com a Lead D; formato que a Ross e a Malik provaram no YouTube | Médio; muda o tom do bloco inteiro (decidir cedo) |
+| B-e | **Contador ao vivo** | Nada | HUD discreto "exames analisados hoje na Function Health: 2.431…" subindo durante o background | Credibilidade por dado vivo, igual ao checkout "34 pessoas compraram" da oferta, só que no começo | Baixo |
+
+### Emotional
+
+| # | Ideia | O que o mercado faz hoje | O que muda | Por que bate o controle | Custo / risco |
+|---|---|---|---|---|---|
+| E-a | **O terceiro lado: o garoto fala** | Soda Horse: o famoso e a esposa, cara a cara (dois lados) | Depois da Noor, o Hyman entrevista o personal, rosto borrado e voz alterada, 40 segundos: "eu não sou mais homem que o Al; eu só tinha a receita do meu tio; e ela me largou também, dois meses depois" | É o próximo passo do que a Soda Horse inventou: três lados; o rival vira testemunha e entrega a origem de boca, reforçando a ponte B; a humilhação dele fecha a dele | Baixo (voz + silhueta); risco: simpatia pelo rival; resolve com a última frase (ele também foi largado) |
+| E-b | **O registro da campainha (Ring)** | Uma câmera escondida (SH) | Antes da CAM 03, a lista do app da campainha: "Front door · 2:14 PM · Tue", 17 visitas em 6 semanas, sempre com a mochila; o Pacino rola a lista no celular | Objeto que todo americano de 50+ tem em casa; prova de registro acumulada (não uma cena, um padrão); barato e novo | Baixo (tela de app); nunca usar a marca em letras grandes |
+| E-c | **O envelope do teste de DNA na mesa** | Fato público citado em narração | O Pacino segura o envelope do laboratório durante a entrevista: "eu pedi isso porque não acreditava no meu próprio pau" | Transforma o fato público em objeto físico na mão do famoso; a prova mais íntima da VSL | Baixo; manter o nome do laboratório fora de quadro |
+| E-d | **O áudio que ela mandou pra amiga** | A esposa entrevistada no sofá (SH) | A Noor, na entrevista, toca no celular o áudio que mandou pra amiga naquela noite: "amiga, ele perguntou se ele tinha tomado alguma coisa… disse que era receita do tio, dos bodes… bode não para"; a frase da ponte B chega como registro, não como lembrança | Artefato real da vida das mulheres (áudio pra amiga); mais íntimo que entrevista; o espectador ouve a traição "ao vivo" | Baixo (áudio + tela de WhatsApp); risco jurídico igual ao da entrevista |
+| E-e | **As fotos que ela postava enquanto ele dormia no quarto de hóspedes** | Nada | Posts públicos reais da Noor em eventos, com data, intercalados com o Pacino no quarto de hóspedes na mesma noite | O "fogo de 29" vira prova visível e datada; custo zero | Baixo; usar só posts públicos; checar com o jurídico |
+| E-f | **O ator interpreta a própria cena** | Avatar narra | O Pacino, ator, reencena 10 segundos da noite do macarrão cozido ("tudo bem, Al, a gente tenta outro dia") olhando pra câmera, como se fosse texto de filme | Só ele pode fazer isso; "o Oscar reencenando a própria humilhação" | Médio; risco de parecer encenado; uma vez só, curta |
+
+### Discovery
+
+| # | Ideia | O que o mercado faz hoje | O que muda | Por que bate o controle | Custo / risco |
+|---|---|---|---|---|---|
+| D-a | **O diário dos 6 meses com data** | "Passei 6 meses cavando" (narrado) | Cada descoberta entra com carimbo de data na tela: "Semana 3: os 73 estudos"; "Semana 9: o memo"; "Semana 22: a ligação do Sanjay" | Vira documentário; a investigação ganha tempo e peso; barato | Baixo |
+| D-b | **O dossiê do Sanjay (o livro de registro da fazenda)** | O valor do animal é narrado (SH: "vale $30 milhões") | O Hyman lê de uma pasta "HILL COUNTRY — S.G.": a ficha de reprodução do bode #22 ("100 fêmeas · 45 dias · 180 cabritos · $54.000"), com carimbo do criador | O bloco de valor vira prova de registro (fichas de monta existem de verdade); o Gupta aparece como dossiê, não como cena, respeitando a regra | Baixo (documento); checar formato real de ficha de monta |
+| D-c | **O leilão real de bodes** | Nenhuma VSL tem evento real no mundo do animal | Clipe real de leilão de bode campeão (Houston Livestock Show) com o preço na tela, como a Soda Horse usou o clipe do RFK Jr. e a VSL 1 usou Tyson x Paul | Evento real, checável, com dinheiro na tela; "o pau de um bode vale isso" | Baixo; `[VERIFICAR]` clipe e valor |
+| D-d | **A mesa de provas com os objetos da cozinha do Al** | Mesa de provas genérica (AE) | Os itens da mesa são os mesmos da CAM 03: a caneca, o pote escuro, a caixinha de bicarbonato, ao lado do pão, da cerveja e do papel "97%" | Liga a investigação à cena do crime; o espectador reconhece os objetos | Baixo |
+| D-e | **"Bode não para" como motivo recorrente** | Nada | A frase que o garoto dizia volta em lettering nos picos da discovery e paga no MUS e no close ("o velho bode que ainda monta") | Cria o bordão da VSL (como "the bull has his own clock" na VSL 1) | Zero |
+| D-f | **Os 73 estudos com o carimbo de quem pagou** | Papéis caindo da mesa (HJ) | Cada estudo tem um carimbo vermelho "FUNDED BY PFIZER / BAYER / LILLY" sendo batido um a um antes de cair | Visualiza o "filtrar por quem financiou" em vez de só dizer | Baixo |
+
+### Recomendação (3 para decidir agora)
+
+1. **E-a, o terceiro lado (o garoto fala).** É o salto do mesmo tamanho que a Soda Horse deu com a esposa. Reforça a ponte B sem depender só da Noor.
+2. **B-a + D-b, a prova como objeto.** O sangue do Pacino na mesa no background e a ficha do bode no dossiê do Sanjay na discovery: a VSL passa a mostrar documento onde o mercado narra.
+3. **E-b + E-d, os registros do dia a dia.** A lista da campainha e o áudio pra amiga: provas acumuladas e íntimas que custam tela, não gravação.
+
+B-c (os três do Expendables) é a maior aposta de thumb e de viral; vale como teste de lead/anúncio antes de entrar na VSL inteira.
