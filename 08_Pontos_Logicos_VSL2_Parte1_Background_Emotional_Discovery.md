@@ -218,7 +218,7 @@ Decisão prévia: E-c (envelope do DNA), E-e (posts da Noor com data) e D-b (dos
 
 ### Decisão do Marcos (23/10/2026)
 
-Tentativas: Viagra e TRT como nas base, mais "gastei mais de $20 mil numa clínica de ondas de choque em Beverly Hills, não deu certo; tentei até o gel de 10 minutos da moda, não deu certo também" (T2 e T4 numa frase; T1, T3, T5, T6, T7 e T8 não entram). Entram: o teste de 10 segundos na ligação (2), o lado dela também tentou (3), "de vez" (4) e o Viagra por acidente (5). Itens 6 e 7 não entram. Tudo já aplicado nos PLs E1, E3, E7 e D5.
+Tentativas: Viagra e TRT como nas base, mais "gastei mais de $20 mil numa clínica de ondas de choque em Beverly Hills, não deu certo; tentei até o gel de 10 minutos da moda, não deu certo também" (T2 e T4 numa frase; T1, T3, T5, T6, T7 e T8 não entram). Entram: o teste de 10 segundos na ligação (2), o lado dela também tentou (3), "de vez" (4) e o Viagra por acidente (5). Itens 6 e 7 não entram. **Decisão complementar (23/10):** T3 (mel do posto com sildenafil), T5 (P-shot), T6 ("é da sua cabeça"), T7 (personal de assoalho pélvico), o bordão "bode não para" como assinatura repetida e os garotos de 30 (Adderall/pornô) **não entram**. A frase "bode não para" fica só onde já está: na boca da Noor, na ponte (E7). Lista fechada. Tudo já aplicado nos PLs E1, E3, E7 e D5.
 
 ### Recomendação original (superada pela decisão acima)
 
