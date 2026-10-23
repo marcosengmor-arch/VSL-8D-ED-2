@@ -42,7 +42,8 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 19/10/2026 | Repositório criado; estrutura e base herdada da VSL 1 | README |
 | 20/10/2026 | Análise das 3 VSLs base no padrão da planilha "Análise das VSL's Escaladas ED (EUA)" e do doc "Padronização de Análise da VSL" | 01a |
 | 21/10/2026 | Mercado lido (Trends, YouTube, prateleira, spy tool): não fazer 4ª VSL de cavalo; inviabilizar a prateleira pelo nome; mel é o maior cluster, cavalo o que mais acelera | 01 |
-| 23/10/2026 | Pontos lógicos da Parte 1 (Background, Emotional, Discovery) fechados; trial passa de 3.000 para 1.800 (número da Soda Horse), como na VSL 1 | 08 |
+| 23/10/2026 | Ajustes do Marcos nos pontos lógicos: Gupta só no MUS; nenhum frasco/pote/preço antes do produto; fazenda vai para o MUS; ponte "bancada do garoto → fazenda" em aberto com 5 opções (A etiqueta, B Noor conta, C confronto, D Gupta já no Texas, E laudo do mel) | 08 |
+| 23/10/2026 | Pontos lógicos da Parte 1 (Background, Emotional, Discovery) escritos; trial passa de 3.000 para 1.800 (número da Soda Horse), como na VSL 1 | 08 |
 | 22/10/2026 | **Nome do produto: Goat Honey Rock** (GOAT Honey Rock no rótulo; GoatRock como nome curto). Truque: Goat Honey Trick. Garantia: The GOAT Guarantee. Teste de nome com o checklist da VSL 1 (hipóteses descartadas no brief). Pedido ao fabricante escrito | 05, 05b |
 | 22/10/2026 | **Decisão da oferta: Opção 1.** Bode, mel com bicarbonato de sódio como sofisticação de absorção, MUP do cimento/placas tóxicas (linha Soda Horse / Bull Soda Rise) com mais provas. Brief v2 final para copy gerado; v1 arquivada | 05 |
 | 21/10/2026 | Brief de oferta v1 escrito com as duas opções para escolha (05) | 05-v1 |
