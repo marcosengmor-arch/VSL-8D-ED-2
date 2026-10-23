@@ -21,6 +21,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 06 | `06_Provas_e_Demonstracoes.md` | Cada prova → demonstração (bancada / campo / corpo / documento / instrumento / registro) | ⏳ |
 | 07 | `07_Leads_e_Hooks.md` | 3 ângulos de lead com celebridade e cena, prontos para A/B | ⏳ |
 | 08 | `08_Pontos_Logicos_VSL2_Parte1_Background_Emotional_Discovery.md` | Pontos lógicos (logic blocks) de Background, Emotional e Discovery no formato do doc 10 da VSL 1: objetivo, arquétipo, trilha, PL com afirmação / prova / imagem / loop, conjunto único de números e mapa de loops | ✅ Parte 1 |
+| 08b | `08b_Pontos_Logicos_VSL2_Parte2_Tese_Bode_MUS_BuildUp_Produto_Oferta_Close.md` | Pontos lógicos da tese (MUP), A resposta no bode (Gupta em pessoa), MUS nos 4 verbos, build-up, produto, oferta, close e FAQ, modelados na Soda Horse blocos 11 a 24 parágrafo a parágrafo; mapa de loops entre as duas partes; pendências [DECIDIR]/[VERIFICAR] | ✅ Parte 2 (FAQ e Oz a decidir) |
 | 09 | `09_Estrutura_VSL_Blocos.md` | Bloco a bloco com metas de palavras e minutos (régua: $49 entre 53 e 56 min) | ⏳ |
 | — | `copy/` | Copy PT por bloco e revisões | ⏳ |
 | — | `traducao/` | EN-US por bloco (prompt `00_base/PROMPT_Traducao_VSL_ED_EN-US.md`) | ⏳ |
@@ -42,6 +43,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 19/10/2026 | Repositório criado; estrutura e base herdada da VSL 1 | README |
 | 20/10/2026 | Análise das 3 VSLs base no padrão da planilha "Análise das VSL's Escaladas ED (EUA)" e do doc "Padronização de Análise da VSL" | 01a |
 | 21/10/2026 | Mercado lido (Trends, YouTube, prateleira, spy tool): não fazer 4ª VSL de cavalo; inviabilizar a prateleira pelo nome; mel é o maior cluster, cavalo o que mais acelera | 01 |
+| 23/10/2026 | Parte 2 dos pontos lógicos escrita (doc 08b): tese e close modelados na Soda Horse 11–24; Gupta em pessoa só no bloco 5 e 1 min na escassez; frasco de prateleira aparece pela 1ª vez no MUS (PL-T9/M2); ordem do MUS Reativar → Dissolver → Reconstruir → Proteger; "de vez" paga no close; teste de 10 s paga em PL-T8 | 08b |
 | 23/10/2026 | Sofisticações decididas: E-c, E-e e D-b vão para a edição; na copy entram o teste de 10 s na ligação, "de vez", o lado dela também tentou, o Viagra por acidente, e as tentativas ficam Viagra + TRT + ondas de choque ($20 mil) + gel de 10 min numa frase; fora: mel do posto, P-shot, "é da sua cabeça", assoalho pélvico, bordão repetido, garotos de 30 | 08 |
 | 23/10/2026 | Lapidação dos pontos lógicos: Hyman como autoridade em saúde sexual masculina (feitos, prêmios, números, "o médico que os homens procuram quando a pílula azul para"); depoimentos de Stallone, Arnold e Van Damme no background; emotional com 82 contra 29, fogo dela alto, tentativas (Viagra, TRT, bomba) antes do fundo do poço, e fundo do poço = o garoto chega na casa (E1 a E8) | 08 |
 | 23/10/2026 | **Nome do produto trocado por decisão da empresa: IronPulseX** (substitui IronPulseX). Truque continua Goat Honey Trick; garantia mantida como The GOAT Guarantee; emblema do bode fica como símbolo do truque no pote. Aplicado no brief v2.2, 05b, 05c e README | 05, 05b, 05c |
@@ -64,3 +66,4 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 - Confirmar cidade do Hyman (Austin) e separar as provas checáveis (confissão do Gupta em 2013, teste de DNA e guarda do Pacino em 2023, Function Health).
 - Marcos: fonte datada da nova gravidez do Pacino (namorada de 27) para a mesa de provas.
 - VSL 1: troca de David Hartman / Meridian Labs (3 opções enviadas, escolha pendente).
+- Doc 08b: decidir FAQ cômico (bloco 14) e cameo do Dr. Oz; nomes fictícios da fazenda, do criador, do veterinário de caprinos, do diretor de P&D e do laboratório; checar [VERIFICAR] da Parte 2 (Shindel 2010, Liu 2011, NFL 2013, fornecedor do veludo, print "brought to you by Pfizer", 55% do sêmen).
