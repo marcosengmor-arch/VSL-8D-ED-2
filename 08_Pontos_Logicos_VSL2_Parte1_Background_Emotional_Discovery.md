@@ -74,7 +74,7 @@ Cold open do Gupta, micro-lead e lead ficam fora deste documento (doc 07, leads)
 
 **Fora deste bloco, por fidelidade à Soda Horse:** o bloco "GenX, Goldman Sachs e o lodo no pasto" (HJ 17:52 → 19:50, mantido na VSL 1 por decisão) não entra; a Soda Horse não tem. Fica registrado como opcional para o MUF, se o time quiser matar a objeção "então eu mudo a comida".
 
-**Movido para o MUS (Parte 2), como o bloco 14 da Soda Horse ("A resposta no cavalo: criadores, veterinário e os 4 passos"):** a entrada do Gupta ("Mark, eu estava gravando no Texas; achei a fazenda; a única nos EUA; vem ver um cocho"), a fazenda com placa, o criador, o veterinário de caprinos, o balde SODA ("ele está meio certo"), o pote de mel com a flor, a colher na caneca, o bode de 12 ao vivo, os dois laudos de glifosato, o "brought to you by Pfizer" e o pedido de desculpas de 2013 do Gupta.
+**Movido para o MUS (Parte 2), como o bloco 14 da Soda Horse ("A resposta no cavalo: criadores, veterinário e os 4 passos"):** a entrada do Gupta ("Mark, achei a fazenda; a única nos EUA; vem ver um cocho"), a fazenda com placa, o criador, o veterinário de caprinos, o balde SODA ("ele está meio certo"), o pote de mel com a flor, a colher na caneca, o bode de 12 ao vivo, os dois laudos de glifosato, o "brought to you by Pfizer" e o pedido de desculpas de 2013 do Gupta.
 
 ---
 
@@ -86,7 +86,7 @@ Como o Pacino saberia de onde vinha o segredo do garoto? Não sabe. Quem sabe é
 - **A resposta dele:** "não; é uma receita do meu tio, lá da fazenda de bode, no Hill Country: um pó da fazenda com mel, numa caneca, antes de vir"; ria e dizia que **bode não para**.
 - **O Hyman marca:** "guarde esse detalhe, o tio, a fazenda de bode" (PL-E6), e a Noor fecha com "foi o bode que me deu o que você não conseguia mais me dar".
 - **O Hyman puxa o fio:** "a Noor tinha me dado o fio: o tio, a fazenda" → o mundo dos bodes do Hill Country (PL-D6), narrado a partir da pesquisa.
-- **O Gupta vai até lá** no MUS, com a câmera, e encontra a fazenda do tio: o balde SODA, o pote de mel com a flor, o bode de 12 anos.
+- **O Gupta vai até lá** no MUS e encontra a fazenda do tio: o balde SODA, o pote de mel com a flor, o bode de 12 anos.
 
 Por que funciona: o espectador ouve "pó da fazenda", "mel", "tio", "bode" pela primeira vez pela boca da mulher que traiu, o que dobra a humilhação (ele perguntou; ela nunca perguntou ao marido) e dá ao segredo uma origem com endereço sem o Pacino deduzir nada. Mantém a estrutura da Soda Horse (o mundo do rival revelado na emotional, rastreado na discovery, visitado no MUS) trocando só a fonte: de "o Josh competia com cavalos" (dito pelo famoso) para "era receita do tio dele, dos bodes" (dito pela mulher).
 
