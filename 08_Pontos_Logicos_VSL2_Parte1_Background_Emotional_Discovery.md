@@ -6,7 +6,7 @@
 
 **Regras já aplicadas (ajustes do Marcos de 23/10):** o Gupta não aparece no background; na discovery é só citado pelo Hyman como quem fez a descoberta (PL-D6), sem cena; entra em pessoa no MUS. Nenhum frasco, pote de prateleira ou preço antes do bloco de produto. A fazenda (balde SODA, pote de mel, bode de 12 anos ao vivo) fica para o MUS; na discovery, o "mundo dos bodes" é narrado pelo Hyman a partir da pesquisa, como a Soda Horse narra o mundo dos haras (bloco 10) antes de levar o espectador ao rancho (bloco 14).
 
-**Conjunto único de números (vale para a VSL inteira):** piloto de **37** homens (44 a 76, Hill Country e redondezas) → trial de **1.800** (35 a 70) → **94%** reversão funcional, **97%** ereção espontânea entre o 4º e o 14º dia, **91%** até o 5º dia, placebo **8%**. Ressonância do Pacino **60% → 28%** em 30 dias. Voluntário 22, Piloto Hill Country 2026: **5,63" → 8,46"** em 30 dias. **67** frascos. Próximo lote **90 a 120 dias**. Marcos: 72 h / 5 d / 14 d / 21 d / 30 d. Relógio: 18 meses / 5 anos / 10 anos / acima de 70% não volta. Bode: **100 fêmeas em 45 dias, 180 cabritos, $54 mil por ano**, monta aos **12** (homem de 80). A flor concentrada: **60%** de icariina (o contraste com a prateleira só entra no MUS). Kits: 6 = $49, 3 = $69, 2 = $79.
+**Conjunto único de números (vale para a VSL inteira):** piloto de **37** homens (44 a 76, Hill Country e redondezas) → trial de **1.800** (35 a 70) → **94%** reversão funcional, **97%** ereção espontânea entre o 4º e o 14º dia, **91%** até o 5º dia, placebo **8%**. Ressonância do Pacino **60% → 28%** em 30 dias. Voluntário 22, Piloto Hill Country 2026: **5,63" → 8,46"** em 30 dias. **67** frascos. Próximo lote **90 a 120 dias**. Marcos: 72 h / 5 d / 14 d / 21 d / 30 d. Relógio: 18 meses / 5 anos / 10 anos / acima de 70% não volta. Bode: **100 fêmeas em 45 dias, 180 cabritos, $54 mil por ano**, monta aos **12** (homem de 80). O mel da fazenda, padronizado: **60%** de icariina (o contraste com a prateleira, 5 a 10% de talo, só entra no MUS). Kits: 6 = $49, 3 = $69, 2 = $79.
 
 Cold open do Gupta, micro-lead e lead ficam fora deste documento (doc 07, leads).
 
@@ -80,7 +80,7 @@ Cold open do Gupta, micro-lead e lead ficam fora deste documento (doc 07, leads)
 
 **Fora deste bloco, por fidelidade à Soda Horse:** o bloco "GenX, Goldman Sachs e o lodo no pasto" (HJ 17:52 → 19:50, mantido na VSL 1 por decisão) não entra; a Soda Horse não tem. Fica registrado como opcional para o MUF, se o time quiser matar a objeção "então eu mudo a comida".
 
-**Movido para o MUS (Parte 2), como o bloco 14 da Soda Horse ("A resposta no cavalo: criadores, veterinário e os 4 passos"):** a entrada do Gupta ("Mark, achei a fazenda; a única nos EUA; vem ver um cocho"), a fazenda com placa, o criador, o veterinário de caprinos, o balde SODA ("ele está meio certo"), o pote de mel com a flor, a colher na caneca, o bode de 12 ao vivo, os dois laudos de glifosato, o "brought to you by Pfizer" e o pedido de desculpas de 2013 do Gupta.
+**Movido para o MUS (Parte 2), como o bloco 14 da Soda Horse ("A resposta no cavalo: criadores, veterinário e os 4 passos"):** a entrada do Gupta ("Mark, achei a fazenda; a única nos EUA; vem ver um cocho"), a fazenda com placa, o criador, o veterinário de caprinos, o balde SODA ("ele está meio certo"), a colmeia dentro da cerca, o pote de mel, a colher na caneca, o bode de 12 ao vivo, os dois laudos de glifosato, o "brought to you by Pfizer" e o pedido de desculpas de 2013 do Gupta.
 
 ---
 
@@ -92,7 +92,7 @@ Como o Pacino saberia de onde vinha o segredo do garoto? Não sabe. Quem sabe é
 - **A resposta dele:** "não; é uma receita do meu tio, lá da fazenda de bode, no Hill Country: um pó da fazenda com mel, numa caneca, antes de vir"; ria e dizia que **bode não para**.
 - **O Hyman marca:** "guarde esse detalhe, o tio, a fazenda de bode" (PL-E8), e a Noor fecha com "foi o bode que me deu o que você não conseguia mais me dar".
 - **O Hyman passa o fio pro Gupta, e o Gupta puxa:** "a Noor tinha me dado o fio: o tio, a fazenda; eu passei pro Sanjay, que estava no Texas; foi ele que puxou" → o mundo dos bodes do Hill Country (PL-D6), narrado pelo Hyman com o que o Gupta descobriu.
-- **O Gupta vai até lá** no MUS e encontra a fazenda do tio: o balde SODA, o pote de mel com a flor, o bode de 12 anos.
+- **O Gupta vai até lá** no MUS e encontra a fazenda do tio: o balde SODA, o pote de mel da colmeia que fica dentro da cerca, o bode de 12 anos.
 
 Por que funciona: o espectador ouve "pó da fazenda", "mel", "tio", "bode" pela primeira vez pela boca da mulher que traiu, o que dobra a humilhação (ele perguntou; ela nunca perguntou ao marido) e dá ao segredo uma origem com endereço sem o Pacino deduzir nada. Mantém a estrutura da Soda Horse (o mundo do rival revelado na emotional, rastreado na discovery, visitado no MUS) trocando só a fonte: de "o Josh competia com cavalos" (dito pelo famoso) para "era receita do tio dele, dos bodes" (dito pela mulher).
 
@@ -106,7 +106,7 @@ Por que funciona: o espectador ouve "pó da fazenda", "mel", "tio", "bode" pela 
 | PL-E3 | "eu ainda estava longe do fundo do poço" | PL-E4 (o garoto chega na casa) |
 | PL-E1/E2 | o fogo de 29 que não baixou | PL-E7 ("eu tenho 29 anos, eu queria todo dia") e close |
 | PL-E7 | "receita do tio dele, lá da fazenda de bode; bode não para" | PL-E8 (guarde esse detalhe) → PL-D6 (o mundo dos bodes) → MUS (a fazenda do tio) |
-| PL-E6 | a caneca: mel, pó branco, água morna | PL-D6 ("o mel barato que os criadores dão") → MUS Reativar e Dissolver (a flor em mel; o bicarbonato) |
+| PL-E6 | a caneca: mel, pó branco, água morna | PL-D6 ("o mel barato que os criadores dão") → MUS Dissolver e Reconstruir (o bicarbonato; o mel da colmeia) |
 | PL-E8 | "guarde esse detalhe: o tio, a fazenda de bode" | PL-D6 e MUS |
 | PL-E8 | as duas perguntas (o veneno; o que o garoto tirou dos bodes) | PL-D2 (glifosato) e PL-D6 / MUS |
 | PL-E8 | a suspeita do tamanho ("cada polegada") | Tese (PL4: 90% até os 21) e MUS Reconstruir (régua) |
