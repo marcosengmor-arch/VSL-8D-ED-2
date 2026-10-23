@@ -15,8 +15,8 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 03 | `03_Avatar_Deep_Psychology.md` | Psicologia profunda do homem 45–70 com ED: dores, vergonhas, linguagem, cenas de reconhecimento ainda não usadas | ⏳ |
 | 04 | `04_Mecanismos_Candidatos.md` | 3–5 mecanismos de problema/solução com estudo real, demo de bancada e "fonte com endereço", sem canibalizar cimento/glifosato | ⏳ |
 | 05 | `05_Brief_de_Oferta_VSL2_v2_Goat_Honey_Trick.md` + `.docx` | **Brief de oferta final para copy (v2):** Goat Honey Trick, bode, mel + bicarbonato como sofisticação, MUP do cimento (linha Soda Horse) com provas reforçadas por ponto lógico (PL1 a PL7-B + tabela de densidade), elenco, emotional do Pacino, pontos lógicos, provas, oferta, close, desqualificação, regras de copy. Docx no template do coordenador | ✅ |
-| 05b | `05b_Pedido_Produto_Goat_Honey_Rock.md` | Pedido do produto ao fabricante: nome (Goat Honey Rock / GoatRock), rótulo, formato, fórmula nos 4 verbos e as 7 perguntas que definem a copy | ✅ |
-| 05c | `05c_Prompts_Imagem_Produto_Goat_Honey_Rock.md` | Criação do produto na IA de imagem: elementos obrigatórios do rótulo, como pedir (frontal, 3/4, rótulo planificado) e 5 direções de design do pote (preto e ouro, rústico Hill Country, mel e colmeia, clínico, Texas bold); anexo com os prompts de cena para depois | ✅ |
+| 05b | `05b_Pedido_Produto_IronPulseX.md` | Pedido do produto ao fabricante: nome (IronPulseX), rótulo, formato, fórmula nos 4 verbos e as 7 perguntas que definem a copy | ✅ |
+| 05c | `05c_Prompts_Imagem_Produto_IronPulseX.md` | Criação do produto na IA de imagem: elementos obrigatórios do rótulo, como pedir (frontal, 3/4, rótulo planificado) e 5 direções de design do pote (preto e ouro, rústico Hill Country, mel e colmeia, clínico, Texas bold); anexo com os prompts de cena para depois | ✅ |
 | 05-v1 | `05_Brief_de_Oferta_VSL2_Duas_Opcoes.md` + `.docx` | Versão v1 com as duas opções lado a lado (arquivada para registro da decisão) | arquivo |
 | 06 | `06_Provas_e_Demonstracoes.md` | Cada prova → demonstração (bancada / campo / corpo / documento / instrumento / registro) | ⏳ |
 | 07 | `07_Leads_e_Hooks.md` | 3 ângulos de lead com celebridade e cena, prontos para A/B | ⏳ |
@@ -42,11 +42,12 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 19/10/2026 | Repositório criado; estrutura e base herdada da VSL 1 | README |
 | 20/10/2026 | Análise das 3 VSLs base no padrão da planilha "Análise das VSL's Escaladas ED (EUA)" e do doc "Padronização de Análise da VSL" | 01a |
 | 21/10/2026 | Mercado lido (Trends, YouTube, prateleira, spy tool): não fazer 4ª VSL de cavalo; inviabilizar a prateleira pelo nome; mel é o maior cluster, cavalo o que mais acelera | 01 |
+| 23/10/2026 | **Nome do produto trocado por decisão da empresa: IronPulseX** (substitui IronPulseX). Truque continua Goat Honey Trick; garantia vira The IronPulse Guarantee; emblema do bode fica como símbolo do truque no pote. Aplicado no brief v2.2, 05b, 05c e README | 05, 05b, 05c |
 | 23/10/2026 | Ponte decidida: opção B. A Noor conta na confissão (perguntou se ele tomou algo; ele disse que era receita do tio, da fazenda de bode no Hill Country: pó da fazenda com mel; "bode não para"); o Hyman puxa o fio na discovery; o Gupta vai à fazenda do tio no MUS | 08 |
 | 23/10/2026 | Modelagem fixada: Background = Horse Jelly (bloco 4); Emotional e Discovery em diante = Soda Horse (blocos 4 a 10). Doc 08 reescrito com o parágrafo-modelo de cada PL. A ponte "bancada do garoto → fazenda" resolvida pelo dispositivo da Soda Horse (o rival é do Hill Country e conta na mesa; a mulher confirma "foi o bode"; o expert rastreia; o Gupta vai até lá no MUS) | 08 |
 | 23/10/2026 | Ajustes do Marcos nos pontos lógicos: Gupta só no MUS; nenhum frasco/pote/preço antes do produto; fazenda vai para o MUS; ponte "bancada do garoto → fazenda" em aberto com 5 opções (A etiqueta, B Noor conta, C confronto, D Gupta já no Texas, E laudo do mel) | 08 |
 | 23/10/2026 | Pontos lógicos da Parte 1 (Background, Emotional, Discovery) escritos; trial passa de 3.000 para 1.800 (número da Soda Horse), como na VSL 1 | 08 |
-| 22/10/2026 | **Nome do produto: Goat Honey Rock** (GOAT Honey Rock no rótulo; GoatRock como nome curto). Truque: Goat Honey Trick. Garantia: The GOAT Guarantee. Teste de nome com o checklist da VSL 1 (hipóteses descartadas no brief). Pedido ao fabricante escrito | 05, 05b |
+| 22/10/2026 | **Nome do produto: IronPulseX** (GOAT Honey Rock no rótulo; IronPulseX como nome curto). Truque: Goat Honey Trick. Garantia: The GOAT Guarantee. Teste de nome com o checklist da VSL 1 (hipóteses descartadas no brief). Pedido ao fabricante escrito | 05, 05b |
 | 22/10/2026 | **Decisão da oferta: Opção 1.** Bode, mel com bicarbonato de sódio como sofisticação de absorção, MUP do cimento/placas tóxicas (linha Soda Horse / Bull Soda Rise) com mais provas. Brief v2 final para copy gerado; v1 arquivada | 05 |
 | 21/10/2026 | Brief de oferta v1 escrito com as duas opções para escolha (05) | 05-v1 |
 | 21/10/2026 | Elenco: Hyman (expert 1, VSL inteira) + Gupta (expert 2, investigação e MUS: encontra a fazenda única nos EUA e liga pro Hyman; cold open de 30 s; 12 a 15 min de tela; confissão da CNN de 2013) + Al Pacino e Noor Alfallah (emotional story, pegada do Costner: filho aos 83, teste de DNA, guarda em 2023, traição, volta com outra de 27 grávida) + Chuck Norris (cameo na lead) + De Niro (depoimento no close); Douglas/Zeta-Jones como alternativa + Oz opcional (cameo de 1 min na oferta) | 02 §11 |
@@ -57,7 +58,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 - Fabricante: teor de icariina (10/20/50/60/98%), forma de absorção, origem do veludo de alce (regra de CWD), bicarbonato na goma.
 - Dissecar 3 VSLs do spy tool no padrão `01a`: Honey Trick With Baking Soda, Receita do Mel Vermelho, Horsewood.
 - Checar números marcados em `02` §8 (leilão de Houston, cabrito, reprodutor de alce, avisos da FDA sobre honey packs).
-- Checar "Goat Honey Rock" no USPTO e o domínio .com.
+- Checar "IronPulseX" no USPTO e o domínio .com.
 - Confirmar cidade do Hyman (Austin) e separar as provas checáveis (confissão do Gupta em 2013, teste de DNA e guarda do Pacino em 2023, Function Health).
 - Marcos: fonte datada da nova gravidez do Pacino (namorada de 27) para a mesa de provas.
 - VSL 1: troca de David Hartman / Meridian Labs (3 opções enviadas, escolha pendente).

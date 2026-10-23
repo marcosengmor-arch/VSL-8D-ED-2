@@ -1,13 +1,13 @@
-# 05b — Pedido do produto: Goat Honey Rock
+# 05b — Pedido do produto: IronPulseX
 
-Data: 22/10/2026 · Nome definido pelo Marcos · Oferta: VSL-8D-ED-2 (Goat Honey Trick)
+Data: 22/10/2026, nome atualizado em 23/10/2026 (decisão da empresa: IronPulseX substitui IronPulseX) · Oferta: VSL-8D-ED-2 (Goat Honey Trick)
 
 ## Identidade
 
-- **Nome do produto:** Goat Honey Rock (grafia no rótulo: GOAT Honey Rock). Nome curto de boca na copy e no checkout: GoatRock.
+- **Nome do produto:** IronPulseX (grafia no rótulo: IronPulseX, com o X em destaque). Nome de boca na copy e no checkout: IronPulseX, sem apelido.
 - **Rótulo:** só o nome do produto, "Hill Country, Texas" e a frase de categoria ("Men's daily gummy"). O truque (Goat Honey Trick) nunca vai no frasco.
-- **Garantia na página:** The GOAT Guarantee, 60 dias, fica com os frascos.
-- **Pendente antes da arte final:** checar "Goat Honey Rock" no USPTO e o domínio .com.
+- **Garantia na página:** The IronPulse Guarantee, 60 dias, fica com os frascos.
+- **Pendente antes da arte final:** checar "IronPulseX" no USPTO e o domínio .com.
 
 ## Formato
 
