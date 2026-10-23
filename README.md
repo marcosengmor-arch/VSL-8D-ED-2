@@ -43,7 +43,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 19/10/2026 | Repositório criado; estrutura e base herdada da VSL 1 | README |
 | 20/10/2026 | Análise das 3 VSLs base no padrão da planilha "Análise das VSL's Escaladas ED (EUA)" e do doc "Padronização de Análise da VSL" | 01a |
 | 21/10/2026 | Mercado lido (Trends, YouTube, prateleira, spy tool): não fazer 4ª VSL de cavalo; inviabilizar a prateleira pelo nome; mel é o maior cluster, cavalo o que mais acelera | 01 |
-| 23/10/2026 | Fórmula fechada: mel padronizado em icariina (herói; Reconstruir), bicarbonato (Dissolver), pinheiro marítimo (Proteger), Tongkat Ali (Reativar; volta); veludo de alce sai. Ordem do MUS = Soda Horse. O herói é o composto no mel, não a planta. Raridade do mel = uma trava só: a colmeia dentro da cerca (3 semanas, uma erva). O bode come as 4 coisas no cocho (pó, mel, casca, raiz) | 05, 05b, 08, 08b |
+| 23/10/2026 | Fórmula fechada (revisão final): bicarbonato (Dissolver), mel padronizado em icariina (herói, 2º ingrediente, Reativar, no lugar do Tongkat), colágeno do núcleo do chifre do bode (Reconstruir, no lugar do Percheron), pinheiro marítimo (Proteger). Tongkat e veludo fora. Ordem do MUS: Dissolver → Reativar → Reconstruir → Proteger (parágrafos-modelo da SH mudam de posição, não de função). O herói é o composto no mel, não a planta. Raridade do mel = a colmeia dentro da cerca (3 semanas, uma erva). O bode come 3 coisas no cocho (pó, mel, casca) e fabrica a quarta no chifre | 05, 05b, 08, 08b |
 | 23/10/2026 | Parte 2 dos pontos lógicos escrita (doc 08b): tese e close modelados na Soda Horse 11–24; Gupta em pessoa só no bloco 5 e 1 min na escassez; frasco de prateleira aparece pela 1ª vez no MUS (PL-T9/M2); ordem do MUS Reativar → Dissolver → Reconstruir → Proteger; "de vez" paga no close; teste de 10 s paga em PL-T8 | 08b |
 | 23/10/2026 | Sofisticações decididas: E-c, E-e e D-b vão para a edição; na copy entram o teste de 10 s na ligação, "de vez", o lado dela também tentou, o Viagra por acidente, e as tentativas ficam Viagra + TRT + ondas de choque ($20 mil) + gel de 10 min numa frase; fora: mel do posto, P-shot, "é da sua cabeça", assoalho pélvico, bordão repetido, garotos de 30 | 08 |
 | 23/10/2026 | Lapidação dos pontos lógicos: Hyman como autoridade em saúde sexual masculina (feitos, prêmios, números, "o médico que os homens procuram quando a pílula azul para"); depoimentos de Stallone, Arnold e Van Damme no background; emotional com 82 contra 29, fogo dela alto, tentativas (Viagra, TRT, bomba) antes do fundo do poço, e fundo do poço = o garoto chega na casa (E1 a E8) | 08 |
@@ -60,7 +60,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 
 ## Pendências
 
-- Fabricante: teor de icariina (10/20/50/60/98%), forma de absorção, Tongkat padronizado, pinheiro (Pycnogenol ou genérico), bicarbonato e base de mel na goma.
+- Fabricante: teor de icariina (10/20/50/60/98%), forma de absorção, colágeno de chifre de bode (fornecedor ou alternativa tipo III), pinheiro (Pycnogenol ou genérico), bicarbonato e base de mel na goma.
 - Dissecar 3 VSLs do spy tool no padrão `01a`: Honey Trick With Baking Soda, Receita do Mel Vermelho, Horsewood.
 - Checar números marcados em `02` §8 (leilão de Houston, cabrito, reprodutor de alce, avisos da FDA sobre honey packs).
 - Checar "IronPulseX" no USPTO e o domínio .com.

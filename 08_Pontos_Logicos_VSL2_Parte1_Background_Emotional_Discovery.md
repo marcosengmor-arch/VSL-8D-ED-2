@@ -106,7 +106,7 @@ Por que funciona: o espectador ouve "pó da fazenda", "mel", "tio", "bode" pela 
 | PL-E3 | "eu ainda estava longe do fundo do poço" | PL-E4 (o garoto chega na casa) |
 | PL-E1/E2 | o fogo de 29 que não baixou | PL-E7 ("eu tenho 29 anos, eu queria todo dia") e close |
 | PL-E7 | "receita do tio dele, lá da fazenda de bode; bode não para" | PL-E8 (guarde esse detalhe) → PL-D6 (o mundo dos bodes) → MUS (a fazenda do tio) |
-| PL-E6 | a caneca: mel, pó branco, água morna | PL-D6 ("o mel barato que os criadores dão") → MUS Dissolver e Reconstruir (o bicarbonato; o mel da colmeia) |
+| PL-E6 | a caneca: mel, pó branco, água morna | PL-D6 ("o mel barato que os criadores dão") → MUS Dissolver e Reativar (o bicarbonato; o mel da colmeia, 2º ingrediente) |
 | PL-E8 | "guarde esse detalhe: o tio, a fazenda de bode" | PL-D6 e MUS |
 | PL-E8 | as duas perguntas (o veneno; o que o garoto tirou dos bodes) | PL-D2 (glifosato) e PL-D6 / MUS |
 | PL-E8 | a suspeita do tamanho ("cada polegada") | Tese (PL4: 90% até os 21) e MUS Reconstruir (régua) |
