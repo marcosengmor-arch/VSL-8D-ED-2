@@ -160,3 +160,62 @@ Critério: mesma estrutura validada, com um elemento que ninguém no mercado tem
 3. **E-b + E-d, os registros do dia a dia.** A lista da campainha e o áudio pra amiga: provas acumuladas e íntimas que custam tela, não gravação.
 
 B-c (os três do Expendables) é a maior aposta de thumb e de viral; vale como teste de lead/anúncio antes de entrar na VSL inteira.
+
+---
+
+## Sofisticações de copy e de história (23/10/2026, para escolha)
+
+Decisão prévia: E-c (envelope do DNA), E-e (posts da Noor com data) e D-b (dossiê do Sanjay) ficam para a edição. Abaixo, só o que muda a copy e a história. Cada item traz de onde veio na pesquisa (doc 01) e onde entra.
+
+### 1. As tentativas que não deram certo: tirar do batido (Viagra, TRT, bomba) e usar o que um homem de 82, rico, em Los Angeles, tentaria hoje
+
+| # | Tentativa | De onde vem (doc 01) | Como entra na copy | Por que é melhor |
+|---|---|---|---|---|
+| T1 | **O médico do aplicativo** (BlueChew / Hims: Viagra mastigável por assinatura) | BlueChew Gold em breakout; "a manutenção é o produto" | "um médico que nunca viu a minha cara me mandava uma caixa todo mês; eu, Al Pacino, assinante de pau duro" | Atualiza o Viagra sem repetir a cena da pílula; planta "assinatura mensal" que a discovery paga |
+| T2 | **O gel de 10 minutos** (Eroxon, Walmart) | Eroxon +200% | "o assistente trouxe um gel de 10 minutos; funcionou 10 minutos; e aos 11 eu estava de novo pedindo desculpa" | Inimigo novo que ninguém cita; piada pronta no número |
+| T3 | **O mel do posto de gasolina** (honey pack com sildenafil escondido) | "royal honey pack" +70%; alerta da FDA | "ele trouxe um sachê de mel de posto de gasolina; gosto de xarope; funcionou uma noite e eu passei a madrugada com dor de cabeça e o coração na boca"; na discovery o Hyman revela: "a FDA abriu aquele sachê: tinha Viagra escondido dentro" | **O primeiro mel da VSL é o mel errado.** Cria o contraste "mel do posto vs mel do bode" (o nosso "pó puro só arrota"), e liga a tentativa ao vilão |
+| T4 | **A clínica de ondas de choque de Beverly Hills** (terapia por ondas acústicas, $3 a 5 mil por sessão) | Avatar rico; "cure permanently" +450% | "deitado numa maca com um aparelho de ultrassom encostado no meu pau, $4 mil a sessão, e um médico de 40 dizendo 'estamos abrindo novos vasos'; abriu por 20 minutos" | Tentativa que só um rico faz: o espectador entende que nem dinheiro resolve |
+| T5 | **A injeção do próprio sangue** (P-shot) | Avatar rico | "tiraram o meu sangue, centrifugaram e injetaram de volta no meu pau; eu olhei pro teto da clínica e pensei: é isso que sobrou do Poderoso Chefão" | A mais humilhante e a mais visual; nenhuma VSL tem |
+| T6 | **"É da sua cabeça"** (o terapeuta de casal) | Crença do avatar: "é psicológico"; teste da ereção matinal (Berg, 430 mil) | "o terapeuta disse que era ansiedade de desempenho, que era natural com uma mulher de 29; eu quase acreditei; até o Mark me fazer uma pergunta de 10 segundos" (paga no E1/D1: "quando foi a última vez que acordou duro?") | Mata a objeção "é da cabeça" dentro da história, não na tese |
+| T7 | **O exercício do assoalho pélvico que trouxe o garoto pra dentro de casa** | "pelvic floor exercises men"; o personal já é personagem | "o urologista mandou fortalecer o assoalho pélvico; eu contratei um personal pra isso; três vezes por semana na minha casa" | **A tentativa que não deu certo é a porta por onde o rival entra.** O "fundo do poço" (E4) nasce de uma receita médica: o Al pagou o homem que comeu a mulher dele |
+| T8 | **A bebida de $1 do YouTube** (romã; "foods that make your penis bigger") | Ross 1,5 mi; busca de tamanho via comida | "até a bebida de $1 do YouTube eu fiz; a Noor ria da cozinha" | Fala com a busca mais quente (comida que faz crescer) e prepara "o que o bode come" |
+
+**Ordem proposta (do barato ao desesperado, terminando na porta do rival):** Viagra em uma linha (universal) → T1 app → T2 gel → T3 mel do posto → T4 ondas de choque → T5 injeção do sangue → T6 "é da sua cabeça" → T7 o personal do assoalho pélvico = E4. TRT e bomba saem (ficam para o MUF, na tese). Mantém o parágrafo-modelo da Alpha Erec (as tentativas antes do flagra) com conteúdo que o mercado não tem.
+
+### 2. O teste de 10 segundos na ligação (E1 ou D1)
+
+- **De onde vem:** o vídeo "No morning erection?" (Berg, 430 mil) e o teste da ereção matinal, que as 3 base usam só na tese.
+- **Como entra:** na ligação de sábado, a primeira coisa que o Hyman pergunta: "Al, quando foi a última vez que você acordou duro?" Silêncio. "Foi o silêncio mais longo que eu já ouvi num telefone." O espectador responde a mesma pergunta pra si no mesmo segundo.
+- **Por que é melhor:** o diagnóstico sai da tese e vai para a história; é interativo; e dá ao T6 ("é da sua cabeça") a resposta: se não acorda duro, é físico.
+
+### 3. O lado dela também tentou (E7)
+
+- **De onde vem:** mulheres pesquisando ("what happens if a woman takes Viagra" +2.700%, Vyleesi +2.650%).
+- **Como entra:** na confissão, antes do garoto: "eu também tentei; lingerie, brinquedo, uma viagem só nós dois; fui num médico pra saber se o problema era eu; ele riu: 'o problema não é você'". 
+- **Por que é melhor:** a esposa deixa de ser só a que traiu e vira a que tentou; a traição fica mais crível e mais dolorosa; e a frase do médico ("o problema não é você") vira faca.
+
+### 4. "Eu não quero outra pílula; eu quero o meu pau de volta de vez" (E1 e close)
+
+- **De onde vem:** "how to cure ED permanently" +450%, "is there a cure" +4.500%.
+- **Como entra:** o pedido do Pacino na ligação: "Mark, eu não quero mais nada que funcione uma noite. Eu quero o meu pau de volta. De vez." Volta no close como a promessa cumprida.
+- **Por que é melhor:** põe na boca do famoso a intenção de busca mais forte do nicho, e prepara "a manutenção é o produto" (D5).
+
+### 5. O Viagra nasceu por acidente, como remédio de coração (D5)
+
+- **De onde vem:** "history of Viagra" e "when was Viagra invented" em breakout no Google e no YouTube.
+- **Como entra:** uma frase na discovery: "o Viagra nunca foi feito pro seu pau; era um remédio de coração que falhou, e os pacientes do teste não queriam devolver os comprimidos; a Pfizer transformou um efeito colateral num negócio de $32 bilhões".
+- **Por que é melhor:** fato real que o avatar está pesquisando esta semana; reforça "nenhum deles cura".
+
+### 6. "Até os garotos de 30 estão amolecendo, e esse não" (E4)
+
+- **De onde vem:** "does Adderall cause ED" +4.550%, "ED under 40 doubled" (Soda Horse).
+- **Como entra:** o Pacino sobre o personal: "e o pior: hoje até os garotos de 30 chegam no consultório amolecendo, de tanto remédio e tela; e esse não; esse tinha alguma coisa".
+- **Por que é melhor:** tira a desculpa da idade (o garoto não é "novo", é "diferente") e aponta pro segredo.
+
+### 7. O bordão (todas as partes)
+
+- "Bode não para", dito pelo garoto, repetido pela Noor, pago pelo Hyman no MUS ("por isso ele não para") e no close ("o velho bode que ainda monta"). Zero custo, e vira a assinatura da VSL como "the bull has his own clock" foi na VSL 1.
+
+### Recomendação
+
+Entrar com **T1, T3, T5, T6 e T7** (app, mel do posto, injeção do sangue, "é da sua cabeça", o personal do assoalho pélvico), mais o **teste de 10 segundos na ligação (2)**, **o lado dela também tentou (3)**, **"de vez" (4)** e o bordão (7). T2, T4 e T8 ficam como linhas de uma frase se a emotional tiver espaço; o Viagra nasce por acidente (5) entra na discovery.
