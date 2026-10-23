@@ -20,7 +20,8 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 05-v1 | `05_Brief_de_Oferta_VSL2_Duas_Opcoes.md` + `.docx` | Versão v1 com as duas opções lado a lado (arquivada para registro da decisão) | arquivo |
 | 06 | `06_Provas_e_Demonstracoes.md` | Cada prova → demonstração (bancada / campo / corpo / documento / instrumento / registro) | ⏳ |
 | 07 | `07_Leads_e_Hooks.md` | 3 ângulos de lead com celebridade e cena, prontos para A/B | ⏳ |
-| 08 | `08_Estrutura_VSL_Blocos.md` | Bloco a bloco com metas de palavras e minutos (régua: $49 entre 53 e 56 min) | ⏳ |
+| 08 | `08_Pontos_Logicos_VSL2_Parte1_Background_Emotional_Discovery.md` | Pontos lógicos (logic blocks) de Background, Emotional e Discovery no formato do doc 10 da VSL 1: objetivo, arquétipo, trilha, PL com afirmação / prova / imagem / loop, conjunto único de números e mapa de loops | ✅ Parte 1 |
+| 09 | `09_Estrutura_VSL_Blocos.md` | Bloco a bloco com metas de palavras e minutos (régua: $49 entre 53 e 56 min) | ⏳ |
 | — | `copy/` | Copy PT por bloco e revisões | ⏳ |
 | — | `traducao/` | EN-US por bloco (prompt `00_base/PROMPT_Traducao_VSL_ED_EN-US.md`) | ⏳ |
 | — | `briefing/` | Templates do coordenador e geradores: `_gerar_brief_oferta_no_template.py` preenche `_template_brief_de_oferta.docx` com o brief em md (layout BRIEF DE OFERTA / Pesquisa – Marcos Moreira); `_gerar_briefing_no_template.py` preenche o briefing de edição | ✅ brief / ⏳ edição |
@@ -41,6 +42,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 19/10/2026 | Repositório criado; estrutura e base herdada da VSL 1 | README |
 | 20/10/2026 | Análise das 3 VSLs base no padrão da planilha "Análise das VSL's Escaladas ED (EUA)" e do doc "Padronização de Análise da VSL" | 01a |
 | 21/10/2026 | Mercado lido (Trends, YouTube, prateleira, spy tool): não fazer 4ª VSL de cavalo; inviabilizar a prateleira pelo nome; mel é o maior cluster, cavalo o que mais acelera | 01 |
+| 23/10/2026 | Pontos lógicos da Parte 1 (Background, Emotional, Discovery) fechados; trial passa de 3.000 para 1.800 (número da Soda Horse), como na VSL 1 | 08 |
 | 22/10/2026 | **Nome do produto: Goat Honey Rock** (GOAT Honey Rock no rótulo; GoatRock como nome curto). Truque: Goat Honey Trick. Garantia: The GOAT Guarantee. Teste de nome com o checklist da VSL 1 (hipóteses descartadas no brief). Pedido ao fabricante escrito | 05, 05b |
 | 22/10/2026 | **Decisão da oferta: Opção 1.** Bode, mel com bicarbonato de sódio como sofisticação de absorção, MUP do cimento/placas tóxicas (linha Soda Horse / Bull Soda Rise) com mais provas. Brief v2 final para copy gerado; v1 arquivada | 05 |
 | 21/10/2026 | Brief de oferta v1 escrito com as duas opções para escolha (05) | 05-v1 |
