@@ -1,5 +1,7 @@
 # 08b — Pontos Lógicos da VSL-2 (Goat Honey Trick) — Parte 2: Tese (MUP), A resposta no bode, MUS, Build-up, Produto, Oferta, Close e FAQ
 
+**Aviso (23/10/2026, noite):** os blocos 4, 5 e 6 deste documento (tese, resposta no bode, MUS) foram **substituídos pelo doc 08c**, escrito parágrafo a parágrafo em cima da copy controle da VSL 1 (marketing thesis refinada pelo Marcos). Valem aqui os blocos 7 a 14 (build-up, produto, oferta, close, FAQ) e o mapa de loops.
+
 **O que é este documento:** continuação do doc 08. Mesmo formato: cada bloco traz objetivo, arquétipo, trilha e os pontos lógicos (PL) em ordem; cada PL tem **afirmação**, **prova**, **imagem-chave** e **loop**, e indica o parágrafo-modelo com o timecode da copy de origem. Não é copy.
 
 **Modelagem (decisão de 23/10/2026):** da tese ao close, a estrutura invisível é a da **Soda Horse, blocos 11 a 24 (Attia 21:21 → 66:39)**, parágrafo a parágrafo, no orçamento dela (tese ~9 min, resposta no animal ~2,5 min, MUS ~9 min, build-up ~6 min, produto ao fim ~19 min). O FAQ cômico é extra (~3 min, padrão Horse Jelly). Enxertos de Alpha Erec e Horse Jelly entram no lugar do parágrafo de mesma função, nunca somados por cima; estão marcados.
