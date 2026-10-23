@@ -95,7 +95,7 @@ Legenda: `[VALIDADO]` está em 2+ VSLs do corpus · `[NOVO]` decisão desta ofer
 | Variação de lugar (tese, MUS, build-up) | **Hill Country Trick** | O criador chama assim; o Hyman volta a "Goat Honey Trick" ao sair da fazenda (padrão Ranch Soda Trick da VSL 1). Dá duas camadas: o nome do animal (promessa) e o nome do lugar (origem) |
 | Hook / thumbnail (A/B) | Goat Honey Trick vs Texas Goat Trick | Um carrega a receita, o outro esconde o ingrediente; o CTR decide. O nome do produto nunca vai na thumb |
 | Segredo dentro da tese | "the trough honey" / "what goes in the trough" | Nome de boca |
-| Garantia | **The IronPulse Guarantee** | "Duro feito ferro em 4 semanas, ou fica com os frascos". 60 dias. (Alternativa: The Buck Guarantee, "the buck stops here", se a copy quiser a frase do bode) |
+| Garantia | **The GOAT Guarantee** | "O maior de todos, ou fica com os frascos". 60 dias. Mantida com a troca do produto para IronPulseX (decisão do Marcos, 23/10): a garantia carrega o bode e o truque, o frasco carrega a marca |
 
 **Regras de nome:** nunca escrever "horny goat weed" junto na copy: "a erva do bode" ou "a flor"; "horny goat weed" só quando se refere ao frasco de prateleira que falhou. Nunca "baking soda trick" junto (string queimada): "baking soda" aparece na receita, "Goat Honey Trick" aparece como nome. Nunca "Soda Horse", "JellyFil", "Horsewood" pelo nome: "o truque do cavalo", "o vídeo do garanhão".
 
@@ -243,7 +243,7 @@ Análise completa na planilha `01a_Analise_Padronizada_3_VSLs_Base.xlsx`.
 | Celebridade | Pacino 85 (filho aos 83 e outra grávida), De Niro 82 (filha aos 79), Chuck Norris 85 (cameo) | `[NOVO]` |
 | Íntima | Carl & Donna: "12º dia, 4 da manhã, 40 minutos" | Soda Horse |
 | Sensorial antecipada | Urina escura na 1ª semana; ereção matinal em 72 h a 4 dias; peso na mão; Lead C: o calor do Vick na coxa como "o sangue encontrando o caminho" | Soda Horse, Vick trick |
-| Garantia | The IronPulse Guarantee: 60 dias, fica com os frascos; "quantas vezes um médico te ofereceu isso?" | Horse Jelly, Soda Horse |
+| Garantia | The GOAT Guarantee: 60 dias, fica com os frascos; "quantas vezes um médico te ofereceu isso?" | Horse Jelly, Soda Horse |
 
 ### Provas do MUP do cimento, reforçadas por ponto lógico
 
@@ -281,7 +281,7 @@ Regra herdada do briefing de edição: 4 a 5 provas por ponto (documento, númer
 - **Escassez:** 67 frascos; a fazenda única (equipamento de concentração da flor só lá); "o bode tem o próprio ritmo", próximo lote 90 a 120 dias; cronômetro 15 min; prova social em camadas (vídeo passou de 5 milhões de views, checkout "34 pessoas acabaram de comprar", armazém esvaziando) `[VALIDADO]` Horse Jelly.
 - **Protocolo:** mínimo 4 meses, ideal 6; "100% dos que completaram 6 meses: ereções acima de 50 minutos".
 - **Bônus (6, padrão Horse Jelly):** Manual Johnny Sins "Como usar seu novo pau" ($697) · 7 posições · Orgasmo Prolongado ($397) · Lesbian Trick em vídeo ($497) · Zoom de 45 min com o Dr. Hyman para os 10 primeiros do kit 6 ($1.500) · surpresa em 20 min ($389) = "$3.777".
-- **Garantia:** The IronPulse Guarantee ("duro feito ferro em 4 semanas, ou fica com os frascos"). 60 dias, a mais completa das 3 base: "se não estiver duro feito pedra em 4 semanas, se não sentir desejo insaciável, se não satisfizer a sua mulher toda noite, ou até se não gostar da cor do frasco, devolvo cada centavo e você fica com os frascos"; "você não precisa dizer sim, só diga talvez".
+- **Garantia:** The GOAT Guarantee ("o maior de todos, ou fica com os frascos"). 60 dias, a mais completa das 3 base: "se não estiver duro feito pedra em 4 semanas, se não sentir desejo insaciável, se não satisfizer a sua mulher toda noite, ou até se não gostar da cor do frasco, devolvo cada centavo e você fica com os frascos"; "você não precisa dizer sim, só diga talvez".
 - **Close:** Pacino abre ("fui o primeiro; tenho 85") → viral → cronômetro → kits (empurrão de 6 pelo mecanismo: "3 meses reconstroem mas não terminam; o cimento recomeça e você volta em 90 dias pagando frete") → bônus → garantia → a namorada de 27 grávida + De Niro → litania "te mostrei a ciência, o laudo do Al, o Brandon, a Donna, o Sanjay" → dois caminhos (18 meses / 5 anos / 10 anos / o jantar com ela rindo pra outro homem vs botão verde, 72 h, caixa discreta com o IronPulseX, 4 dias duro, 14 dias Viagra no lixo, 30 dias, 3 meses) → "você é o homem que clica ou não é" → FOMO ("enquanto você hesita no sofá, outro homem já está clicando") → future pace do chuveiro → frase de homem broxa em P&B antes do botão → 3 razões (lógica, mecânica, identidade: "o velho bode que ainda monta está enterrado sob 30 anos de cimento; volte a ser ele").
 - **FAQ cômico (6 perguntas, em áudio sobre b-roll escurecido, padrão Horse Jelly):** cidades do Texas: "comecei há 3 dias e já cresceu, é normal?"; "tenho 68 e estou 2x por dia"; "meu pau não amolece mais, é prejudicial?" → "a única coisa em risco é a durabilidade da sua cama"; "dobrei a dose, já está com 9,2 polegadas, a namorada pediu pra parar"; "chegou em 1 dia"; "minha esposa não me deixa ir trabalhar". Fecha com CTA.
 - **Entrega:** 72 h, embalagem e fatura sem nome.
