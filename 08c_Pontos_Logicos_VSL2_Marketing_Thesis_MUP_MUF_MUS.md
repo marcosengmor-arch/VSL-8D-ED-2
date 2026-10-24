@@ -197,3 +197,59 @@
 3. `[VERIFICAR]` print "brought to you by Pfizer" num segmento do Gupta; clipe de 2013.
 4. `[NOME]` fazenda (Est. 19xx), criador, veterinário de caprinos.
 5. Fabricante: colágeno de chifre de bode (fornecedor ou alternativa tipo III declarável).
+
+---
+
+## Sofisticações candidatas da tese (24/10/2026, para decidir item a item; nada aplicado)
+
+Critério: cada ideia tem de provar algo que o controle só afirma, ou fazer o espectador entender com o corpo (objeto na mão, teste em casa, analogia doméstica), sem alongar o orçamento. ★ = recomendadas (3 por bloco).
+
+### MUP
+
+| # | Ideia | O que prova / melhora | Como (demo, prop ou copy) | Onde |
+|---|---|---|---|---|
+| P1 ★ | **A esponja na mão do Hyman, e na sua.** | O espectador entende "esponja" com o corpo, não com 3D | Hyman segura uma esponja de cozinha e um copo de água vermelha: aperta, solta, ela enche. "Pega uma esponja na sua pia agora." Depois a mesma esponja mergulhada em gesso e seca: não enche. Prop físico, 1 take | PL-MUP-1 a 3 |
+| P2 ★ | **O ímã do tipo III.** | Explica "14x" e "alvo número um" sem jargão | Quatro bandejas: CORAÇÃO, FÍGADO, PULMÃO, PAU. Só a última tem limalha de ferro. O ímã (glifosato) passa por cima das quatro; só na última a limalha pula e gruda. "Ele passa por tudo e gruda numa coisa só" | PL-MUP-4 e 5 |
+| P3 ★ | **O balão com a fita.** | Mostra por que entortou na direção do bloco morto | Balão comprido, uma tira de fita adesiva de um lado (o cimento). Encher: ele curva pra fita. "A parte viva enche; a parte morta não; por isso entorta" | PL-MUP-12 |
+| P4 | **O copo das 485 refeições.** | Faz "camada sobre camada" virar objeto | Um copo de vidro; a cada "refeição" (contador na tela: 1, 2, 3… 485) uma gota de cimento líquido. Time-lapse: no fim, um bloco. Ao lado, a esponja dentro dele | PL-MUP-6 e 7 |
+| P5 | **"Colágeno não tem nervo."** | Explica por que não dói e por que ele nunca percebeu | Uma frase de fato + a lâmina: "não tem terminação nervosa nesse andaime; é por isso que você só descobre na mão dela" | PL-MUP-7 |
+| P6 | **As marcas na porta.** | Faz "travou aos 15" doer e ser entendido em 2 segundos | Batente de porta com as marcas de altura do menino: 8, 10, 12, 15… e param. "O seu pau tem uma marca dessas. Parou aos 15." Ao lado, a marca do cabrito que continua | PL-MUP-9 |
+| P7 | **O exame de um homem de 25 ao lado do de 60%.** | Dá escala ao "60%": o espectador vê o que é normal | Duas ressonâncias lado a lado: "0 a 5%" e "60%"; o radiologista contorna as duas | PL-MUP-11 |
+| P8 | **1996 no gráfico.** | Prova "a ED abaixo de 40 dobrou" com causa visível | Gráfico de ED < 40 com a linha vertical "1996: milho e soja Roundup Ready entram na comida" | PL-MUP-8 |
+| P9 | **Resumo em 3 frases no fim do MUP.** | Fixa o mecanismo antes do MUF (as base fazem "3 coisas") | "Esponja. Cimento. Travou aos 15." Lettering, 3 segundos, sem trilha | fim do MUP |
+
+### MUF
+
+| # | Ideia | O que prova / melhora | Como | Onde |
+|---|---|---|---|---|
+| F1 ★ | **O teste do selo, hoje à noite.** | Transforma a ereção matinal em teste que ele faz em casa; cria o motivo de voltar e comprar | Hyman mostra a tira de selos em volta do pau mole antes de dormir: "se de manhã a tira estiver inteira, é cimento; faz hoje". O selo volta no MUS como marco | PL-MUF-3 |
+| F2 ★ | **A mangueira com manômetro (Viagra).** | Explica o balde na pedra e os efeitos colaterais no mesmo objeto | Mangueira transparente com manômetro, apontada pra esponja cimentada. Abre a torneira (Viagra): o ponteiro sobe, nada entra. "A pressão vai pra onde pode: cabeça, rosto vermelho, coração. Por isso a dor de cabeça do Al" | PL-MUF-5 |
+| F3 ★ | **Cimento úmido vs cimento seco (o relógio).** | Faz a janela ser entendida com uma colher de pedreiro | Duas bandejas de cimento: uma de 1 hora (a colher entra, mexe, solta), outra de 10 dias (o martelo quica). "O seu ainda está na bandeja da esquerda. Por quanto tempo, eu não sei" | PL-MUF-9 |
+| F4 | **A esponja de 70%.** | Prova o limite honesto e sobe a credibilidade | Esponja 70% coberta recebe o preparo inteiro na frente da câmera: não solta. "Por isso eu disse: nem isto traz de volta" | PL-MUF-8 |
+| F5 | **Onda de choque no bloco.** | Mata os $20 mil do Al em 3 segundos | O martelinho (ou o próprio aparelho) batendo num bloco de giz dentro da esponja: nada. Ao lado, a conta da clínica | PL-MUF-6 |
+| F6 | **O efeito do macho, ao vivo.** | Prova a potência do bode de 12 com um fenômeno real da veterinária | O bode entra no curral; em minutos as fêmeas levantam o rabo. Veterinário: "isso tem nome: efeito do macho; só acontece com macho inteiro e potente". Cronômetro na tela | PL-MUF-11 |
+| F7 | **O leilão de segunda.** | Torna o dinheiro do bode concreto | A folha do leilão: o mesmo bode como reprodutor ($X) e como carne ($Y). "Quando para de montar, vale isto" | PL-MUF-13 |
+| F8 | **O quadro da colmeia.** | Prova a colmeia dentro da cerca com objeto, não com frase | O criador puxa um quadro da colmeia: mel escuro; ao lado, um quadro de outra colmeia da estrada: mel claro. Mapa com o círculo de 3 km e a cerca dentro. Gupta prova o mel: "amargo" | PL-MUF-16 |
+| F9 | **O cartão de patrocínio.** | Dá imagem à confissão do Gupta | O frame real do segmento com o cartão "brought to you by" ao lado do rosto dele hoje `[VERIFICAR]` | PL-MUF-18 |
+
+### MUS
+
+| # | Ideia | O que prova / melhora | Como | Onde |
+|---|---|---|---|---|
+| S1 ★ | **O modelo de dois frascos (estômago → intestino).** | Prova "sozinho, 10%; com o pó, 100%" com número, não com frase | Dois sistemas iguais de vidro: frasco ESTÔMAGO (ácido) ligado por tubo ao frasco INTESTINO. Cápsula de corante do mel em cada um; só um recebe o pó. No sem pó, o corante morre no primeiro frasco; no com pó, chega no segundo. Fita colorimétrica: "10%" vs "100%" | PL-MUS-3 |
+| S2 ★ | **A câmera térmica (o mel).** | Dá prova visível ao Reativar, o verbo mais difícil de demonstrar | Mão (ou virilha, com decoro) na câmera térmica antes e 40 minutos depois da dose: azul → vermelho. "A câmera térmica não mente: o sangue voltou a chegar" | PL-MUS-8 |
+| S3 ★ | **A ordem errada, ao vivo.** | Prova "na ordem exata" em vez de afirmar | Duas esponjas cimentadas. Na primeira, reconstruir antes de dissolver: o colágeno gruda no cimento, a esponja fica dura. Na segunda, dissolver primeiro: solta e enche. "Mesmos 4; ordem errada; cimento de volta" | PL-MUS-1 e 19 |
+| S4 | **Os anéis do chifre.** | Prova "12 anos de chifre" e "nunca para de crescer" | O corte transversal com os anéis contados como tronco de árvore: "1, 2, 3… 12". Time-lapse do chifre de um cabrito ao longo de meses | PL-MUS-10 |
+| S5 | **O cromatograma do mel.** | Prova "único mel do mundo" com instrumento | Dois gráficos do laboratório: o do mel da fazenda com o pico da icariina; o do supermercado, linha reta. Marcador no pico | PL-MUS-7 |
+| S6 | **A capa de chuva (pinheiro).** | Analogia doméstica do escudo, com efeito real | Dois pedaços de tecido; um com impermeabilizante em spray. Água colorida: num encharca, no outro escorre em gotas. "Cada goma é uma demão" | PL-MUS-16 |
+| S7 | **A tira de óxido nítrico no Reativar.** | Dá número ao mel se não houver estudo de testosterona livre | A tira de saliva "LOW" → "HIGH" 2 horas depois da dose de mel; sai do Proteger | PL-MUS-8 |
+| S8 | **Uma frase de fecho por verbo.** | Fixa cada verbo antes do próximo | Depois de cada verbo, lettering de uma linha: "Dissolver: o pó tira o cimento e abre a porta." "Reativar: o mel acorda a esponja." "Reconstruir: o chifre devolve as polegadas." "Proteger: a casca fecha a porta." | fim de cada verbo |
+| S9 | **Os objetos na mesa, no fim.** | Fecha os 4 verbos com as 4 coisas físicas | Na mesa: o balde, o pote, o chifre, a casca. Hyman toca um a um ao dizer os 4 verbos; depois a goma ao lado. "Isto, numa goma" | PL-MUS-19 |
+
+### Regras de copy que valem para os três blocos
+
+1. **Objeto na mão antes do 3D.** Toda prova-mestre começa com um objeto físico na mão do Hyman (esponja, selo, chifre, pote, balde) e só depois corta pro 3D. Credibilidade vem da mão, não do render.
+2. **Uma analogia doméstica por ponto, e só uma.** Esponja na pia, ímã, balão com fita, marcas na porta, manômetro, colher de pedreiro, capa de chuva. Nunca duas no mesmo ponto.
+3. **Número → memória dele.** Cada número termina na lembrança: "14x: por isso ela sentiu primeiro que você"; "60%: é isso que estava na mão dela".
+4. **Teste em casa, dois no máximo.** O teste de 10 segundos (já na E1) e o teste do selo (F1). Mais que isso vira aula.
+5. **Recap de uma linha no fim de cada bloco e de cada verbo** (P9, S8).
