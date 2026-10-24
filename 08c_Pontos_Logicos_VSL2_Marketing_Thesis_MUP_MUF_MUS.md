@@ -200,56 +200,69 @@
 
 ---
 
-## Sofisticações candidatas da tese (24/10/2026, para decidir item a item; nada aplicado)
+## Demonstrações dentro da copy, padrão SodaTide (24/10/2026, para decidir; substitui a lista de 24/10 que foi rejeitada por ser só visual)
 
-Critério: cada ideia tem de provar algo que o controle só afirma, ou fazer o espectador entender com o corpo (objeto na mão, teste em casa, analogia doméstica), sem alongar o orçamento. ★ = recomendadas (3 por bloco).
+**Fonte do padrão:** dissecação da VSL SodaTide (Drive: `SODA_TIDE_Dissecacao_Completa_Avatar`), Módulo 3 (tese), Parte 2 (famílias de recurso) e Parte 5 (moldes 5.9 a 5.13). O que a SodaTide faz e o controle da VSL 1 ainda não faz:
 
-### MUP
+| # | Regra extraída da SodaTide | Como aparece lá |
+|---|---|---|
+| R1 | **A prova é executada na copy, não ilustrada.** O expert prepara dois recipientes iguais, anuncia o que vai acontecer antes de agir, age, e o espectador vê um mudar e o outro não. A copy narra no presente: "preparei", "antes de despejar, deixa eu te dizer por que vai falhar", "olha de perto. Nada.", "agora a receita certa", "olha." | Lead (Oprah), tese (Oz na cozinha), FDA (Makary) |
+| R2 | **Nenhuma demo termina sem um número ou uma cor na tela.** A fita de pH vai do vermelho ao verde; a gordura derrete num e não no outro. | Fitas de pH; gotas 9% / pó 32% / cápsula 3x |
+| R3 | **A mesma demo volta 3 vezes, no mesmo formato:** lead, tese e uma terceira vez feita por uma autoridade externa. Treina o espectador a "ler" a prova; a terceira vez é a que convence. | Oprah → Oz → Makary (FDA) e Gupta (CNN) |
+| R4 | **Receita errada vs receita certa.** O viral da internet é desqualificado dentro da demo, não no discurso: "esta é a receita que todo mundo está seguindo; antes de despejar, deixa eu te dizer por que falha: incompleta, medida errada, falta o ingrediente; olha: nada." | Lead da VSL 1 da SodaTide |
+| R5 | **Explicação técnica em 4 tempos, com segunda voz:** pergunta ingênua do host → frase técnica do expert → metáfora doméstica → recap do host confirmado pelo expert ("então, basicamente…?" "Exato."). Nenhuma explicação passa de 3 frases sem metáfora ou recap. | Oprah e Oz |
+| R6 | **"Funciona, mas":** elogiar o concorrente, explicar por que funciona com o mesmo mecanismo nosso, e só então derrubar pelo preço que ele cobra. | Mounjaro |
+| R7 | **Escada de absorção com números**, uma por forma do ingrediente. | gotas 9% → pó 32% → cápsula 3x |
+| R8 | **Prova institucional em vídeo:** "pode mostrar esse vídeo?" → a autoridade repete o argumento com as mesmas palavras → "é isso, como eu disse". | RFK Jr., Makary, Gupta, âncora |
 
-| # | Ideia | O que prova / melhora | Como (demo, prop ou copy) | Onde |
-|---|---|---|---|---|
-| P1 ★ | **A esponja na mão do Hyman, e na sua.** | O espectador entende "esponja" com o corpo, não com 3D | Hyman segura uma esponja de cozinha e um copo de água vermelha: aperta, solta, ela enche. "Pega uma esponja na sua pia agora." Depois a mesma esponja mergulhada em gesso e seca: não enche. Prop físico, 1 take | PL-MUP-1 a 3 |
-| P2 ★ | **O ímã do tipo III.** | Explica "14x" e "alvo número um" sem jargão | Quatro bandejas: CORAÇÃO, FÍGADO, PULMÃO, PAU. Só a última tem limalha de ferro. O ímã (glifosato) passa por cima das quatro; só na última a limalha pula e gruda. "Ele passa por tudo e gruda numa coisa só" | PL-MUP-4 e 5 |
-| P3 ★ | **O balão com a fita.** | Mostra por que entortou na direção do bloco morto | Balão comprido, uma tira de fita adesiva de um lado (o cimento). Encher: ele curva pra fita. "A parte viva enche; a parte morta não; por isso entorta" | PL-MUP-12 |
-| P4 | **O copo das 485 refeições.** | Faz "camada sobre camada" virar objeto | Um copo de vidro; a cada "refeição" (contador na tela: 1, 2, 3… 485) uma gota de cimento líquido. Time-lapse: no fim, um bloco. Ao lado, a esponja dentro dele | PL-MUP-6 e 7 |
-| P5 | **"Colágeno não tem nervo."** | Explica por que não dói e por que ele nunca percebeu | Uma frase de fato + a lâmina: "não tem terminação nervosa nesse andaime; é por isso que você só descobre na mão dela" | PL-MUP-7 |
-| P6 | **As marcas na porta.** | Faz "travou aos 15" doer e ser entendido em 2 segundos | Batente de porta com as marcas de altura do menino: 8, 10, 12, 15… e param. "O seu pau tem uma marca dessas. Parou aos 15." Ao lado, a marca do cabrito que continua | PL-MUP-9 |
-| P7 | **O exame de um homem de 25 ao lado do de 60%.** | Dá escala ao "60%": o espectador vê o que é normal | Duas ressonâncias lado a lado: "0 a 5%" e "60%"; o radiologista contorna as duas | PL-MUP-11 |
-| P8 | **1996 no gráfico.** | Prova "a ED abaixo de 40 dobrou" com causa visível | Gráfico de ED < 40 com a linha vertical "1996: milho e soja Roundup Ready entram na comida" | PL-MUP-8 |
-| P9 | **Resumo em 3 frases no fim do MUP.** | Fixa o mecanismo antes do MUF (as base fazem "3 coisas") | "Esponja. Cimento. Travou aos 15." Lettering, 3 segundos, sem trilha | fim do MUP |
+### A demo-mestre da VSL 2 (R1 + R2 + R3 + R4): "duas esponjas cimentadas, receita errada vs receita certa"
 
-### MUF
+Dois vidros iguais, duas esponjas cimentadas iguais (pasta de giz seca sobre esponja vermelha), uma seringa graduada com líquido vermelho e fitas colorimétricas. Esquerda: **a receita que você viu na internet** (mel de supermercado + uma colher de bicarbonato puro em água morna; o truque do cavalo e o cluster do mel). Direita: **o cocho do criador** (o mel da colmeia + o pó na proporção). Antes de despejar: "deixa eu te dizer por que a da esquerda vai falhar: mel errado, pó puro, ordem errada." Despeja. Esquerda: espuma 10 segundos, some, a placa continua, a seringa trava em 15 ml. Direita: a placa solta em pedaços, o fundo do vidro fica cinza, a seringa entra até 55 ml. Número na tela: **15 ml / 55 ml**. Recap: "mesma esponja, mesmo cimento; o que mudou foi o mel e o preparo."
 
-| # | Ideia | O que prova / melhora | Como | Onde |
-|---|---|---|---|---|
-| F1 ★ | **O teste do selo, hoje à noite.** | Transforma a ereção matinal em teste que ele faz em casa; cria o motivo de voltar e comprar | Hyman mostra a tira de selos em volta do pau mole antes de dormir: "se de manhã a tira estiver inteira, é cimento; faz hoje". O selo volta no MUS como marco | PL-MUF-3 |
-| F2 ★ | **A mangueira com manômetro (Viagra).** | Explica o balde na pedra e os efeitos colaterais no mesmo objeto | Mangueira transparente com manômetro, apontada pra esponja cimentada. Abre a torneira (Viagra): o ponteiro sobe, nada entra. "A pressão vai pra onde pode: cabeça, rosto vermelho, coração. Por isso a dor de cabeça do Al" | PL-MUF-5 |
-| F3 ★ | **Cimento úmido vs cimento seco (o relógio).** | Faz a janela ser entendida com uma colher de pedreiro | Duas bandejas de cimento: uma de 1 hora (a colher entra, mexe, solta), outra de 10 dias (o martelo quica). "O seu ainda está na bandeja da esquerda. Por quanto tempo, eu não sei" | PL-MUF-9 |
-| F4 | **A esponja de 70%.** | Prova o limite honesto e sobe a credibilidade | Esponja 70% coberta recebe o preparo inteiro na frente da câmera: não solta. "Por isso eu disse: nem isto traz de volta" | PL-MUF-8 |
-| F5 | **Onda de choque no bloco.** | Mata os $20 mil do Al em 3 segundos | O martelinho (ou o próprio aparelho) batendo num bloco de giz dentro da esponja: nada. Ao lado, a conta da clínica | PL-MUF-6 |
-| F6 | **O efeito do macho, ao vivo.** | Prova a potência do bode de 12 com um fenômeno real da veterinária | O bode entra no curral; em minutos as fêmeas levantam o rabo. Veterinário: "isso tem nome: efeito do macho; só acontece com macho inteiro e potente". Cronômetro na tela | PL-MUF-11 |
-| F7 | **O leilão de segunda.** | Torna o dinheiro do bode concreto | A folha do leilão: o mesmo bode como reprodutor ($X) e como carne ($Y). "Quando para de montar, vale isto" | PL-MUF-13 |
-| F8 | **O quadro da colmeia.** | Prova a colmeia dentro da cerca com objeto, não com frase | O criador puxa um quadro da colmeia: mel escuro; ao lado, um quadro de outra colmeia da estrada: mel claro. Mapa com o círculo de 3 km e a cerca dentro. Gupta prova o mel: "amargo" | PL-MUF-16 |
-| F9 | **O cartão de patrocínio.** | Dá imagem à confissão do Gupta | O frame real do segmento com o cartão "brought to you by" ao lado do rosto dele hoje `[VERIFICAR]` | PL-MUF-18 |
+**As 3 aparições (R3):**
+1. **Lead A** (doc 07, Hyman na mesa de madeira do rancho, como a VSL 1 decidiu para o corte do pênis): versão de 60 segundos, sem explicar o mecanismo ("vou te mostrar por que o truque que você viu não funcionou em você, e o que funciona").
+2. **MUS, Dissolver** (PL-MUS-3 e 4): versão completa, com a sofisticação dita durante a demo ("sozinho, 10% chega; com o pó, 100%").
+3. **Terceiro independente:** o Gupta repete a demo no estúdio dele, com o produtor segurando a câmera, no bloco de escassez (doc 08b, PL-S2), com a frase "eu não acreditei no Mark; fiz em casa; deu o mesmo número". Opção animal: os dois bodes irmãos (build-up) são a mesma demo em carne.
 
-### MUS
+### MUP: as provas executadas (2 demos + 1 molde)
 
-| # | Ideia | O que prova / melhora | Como | Onde |
-|---|---|---|---|---|
-| S1 ★ | **O modelo de dois frascos (estômago → intestino).** | Prova "sozinho, 10%; com o pó, 100%" com número, não com frase | Dois sistemas iguais de vidro: frasco ESTÔMAGO (ácido) ligado por tubo ao frasco INTESTINO. Cápsula de corante do mel em cada um; só um recebe o pó. No sem pó, o corante morre no primeiro frasco; no com pó, chega no segundo. Fita colorimétrica: "10%" vs "100%" | PL-MUS-3 |
-| S2 ★ | **A câmera térmica (o mel).** | Dá prova visível ao Reativar, o verbo mais difícil de demonstrar | Mão (ou virilha, com decoro) na câmera térmica antes e 40 minutos depois da dose: azul → vermelho. "A câmera térmica não mente: o sangue voltou a chegar" | PL-MUS-8 |
-| S3 ★ | **A ordem errada, ao vivo.** | Prova "na ordem exata" em vez de afirmar | Duas esponjas cimentadas. Na primeira, reconstruir antes de dissolver: o colágeno gruda no cimento, a esponja fica dura. Na segunda, dissolver primeiro: solta e enche. "Mesmos 4; ordem errada; cimento de volta" | PL-MUS-1 e 19 |
-| S4 | **Os anéis do chifre.** | Prova "12 anos de chifre" e "nunca para de crescer" | O corte transversal com os anéis contados como tronco de árvore: "1, 2, 3… 12". Time-lapse do chifre de um cabrito ao longo de meses | PL-MUS-10 |
-| S5 | **O cromatograma do mel.** | Prova "único mel do mundo" com instrumento | Dois gráficos do laboratório: o do mel da fazenda com o pico da icariina; o do supermercado, linha reta. Marcador no pico | PL-MUS-7 |
-| S6 | **A capa de chuva (pinheiro).** | Analogia doméstica do escudo, com efeito real | Dois pedaços de tecido; um com impermeabilizante em spray. Água colorida: num encharca, no outro escorre em gotas. "Cada goma é uma demão" | PL-MUS-16 |
-| S7 | **A tira de óxido nítrico no Reativar.** | Dá número ao mel se não houver estudo de testosterona livre | A tira de saliva "LOW" → "HIGH" 2 horas depois da dose de mel; sai do Proteger | PL-MUS-8 |
-| S8 | **Uma frase de fecho por verbo.** | Fixa cada verbo antes do próximo | Depois de cada verbo, lettering de uma linha: "Dissolver: o pó tira o cimento e abre a porta." "Reativar: o mel acorda a esponja." "Reconstruir: o chifre devolve as polegadas." "Proteger: a casca fecha a porta." | fim de cada verbo |
-| S9 | **Os objetos na mesa, no fim.** | Fecha os 4 verbos com as 4 coisas físicas | Na mesa: o balde, o pote, o chifre, a casca. Hyman toca um a um ao dizer os 4 verbos; depois a goma ao lado. "Isto, numa goma" | PL-MUS-19 |
+**MUP-D1 · O teste da seringa (PL-MUP-11, no lugar de "olha as duas esponjas").** Copy-esqueleto, Hyman na bancada: "Preparei duas esponjas iguais. Esta passou 30 dias recebendo, todo dia, o que você recebe em cada refeição. Hoje está seca. Esta outra, não. Antes de empurrar, deixa eu te dizer o que vai acontecer: nesta, o sangue entra; nesta, não tem onde entrar." Empurra a seringa na limpa: **60 ml**, a esponja sobe na régua. Empurra na cimentada: o êmbolo trava em **15 ml**; o líquido escorre pelo lado. "Olha o número. Quinze. Não é falta de sangue. O sangue estava aqui, na seringa. É falta de esponja." Em dupla com o documento (regra SodaTide "ciência em dupla"): corta pra ressonância: "e isto é o mesmo teste num homem: 60% virou cimento." Recap de uma linha: "foi isso que ela segurou na mão: quinze mililitros de homem."
 
-### Regras de copy que valem para os três blocos
+**MUP-D2 · A régua das 7 polegadas (PL-MUP-9 e 10).** A esponja limpa, cheia, encosta na marca **7** da régua colada no vidro; a cimentada para em **5 e meio**. "Esta é a que a natureza fez pra você. Esta é a que o cimento deixou. Um e meio de diferença. E agora olha onde fica a linha que o estudo das mil mulheres mediu." Marca vermelha em 7. "Te travaram logo abaixo da linha." A mesma régua volta no MUS (a esponja reconstruída sobe de 5,5 pra 7) e no build-up (a régua real do voluntário 22: 5,63 → 8,46). Três aparições da régua (R3).
 
-1. **Objeto na mão antes do 3D.** Toda prova-mestre começa com um objeto físico na mão do Hyman (esponja, selo, chifre, pote, balde) e só depois corta pro 3D. Credibilidade vem da mão, não do render.
-2. **Uma analogia doméstica por ponto, e só uma.** Esponja na pia, ímã, balão com fita, marcas na porta, manômetro, colher de pedreiro, capa de chuva. Nunca duas no mesmo ponto.
-3. **Número → memória dele.** Cada número termina na lembrança: "14x: por isso ela sentiu primeiro que você"; "60%: é isso que estava na mão dela".
-4. **Teste em casa, dois no máximo.** O teste de 10 segundos (já na E1) e o teste do selo (F1). Mais que isso vira aula.
-5. **Recap de uma linha no fim de cada bloco e de cada verbo** (P9, S8).
+**MUP-M1 · Pré-anúncio em toda demo (R1).** Regra de copy: antes de cada ação, uma frase dizendo o que vai acontecer e por quê ("antes de despejar, deixa eu te dizer por que vai falhar"). O espectador acerta a previsão e passa a confiar no narrador.
+
+### MUF: as provas executadas (3 demos + 2 moldes)
+
+**MUF-D1 · "Quero ser justo" + o teste do Viagra (PL-MUF-5; molde R6).** "Quero ser justo com o Viagra. Ele funciona. Ninguém nega. E funciona porque faz exatamente o que eu vou fazer agora: empurrar mais sangue." Hyman pega a seringa e empurra com força na esponja cimentada: o êmbolo não passa de 15, o líquido jorra pelos lados e respinga na bancada. "Viu pra onde foi o sangue? Pra fora. Pra cabeça, pro rosto vermelho, pro coração. Por isso a dor de cabeça do Al. Funcionou no começo porque ainda tinha esponja. Foi enfraquecendo porque o cimento chegava antes da pílula." Recap: "mais pressão numa pedra é só mais pressão." Depois o interruptor da TRT: Hyman aperta 3 vezes, a luz não acende, mostra o fio cortado: "e você paga com o fígado; o exame do Al mostrou."
+
+**MUF-D2 · O cocho ao vivo: receita do cavalo vs receita do criador (PL-MUF-15, Gupta em pessoa; é a demo da fita de pH da SodaTide transposta, e a 1ª desqualificação do truque do cavalo dentro de uma demo).** Gupta, no cocho, com o criador: "Mark, eu vi o vídeo do garanhão: uma colher de bicarbonato num copo. É isso?" Criador: "Isso é o que o cavalo come. Olha." Dois copos de "ácido do estômago" (vinagre, fita vermelha). No primeiro, bicarbonato puro: espuma violenta, some em 10 segundos, a fita continua **vermelha**. "O cavalo tem um estômago. Igual ao seu. O pó morre aqui." No segundo, o preparo do cocho (pó na proporção, com o mel): a fita vira **verde** e fica verde no cronômetro de 5 minutos. Gupta recapitula (R5): "Então o truque do cavalo morreu no estômago do cavalo?" Hyman: "E no seu. O bode tem quatro. O criador resolveu isso há 30 anos com uma proporção. É isso que a gente copiou."
+
+**MUF-D3 · O quadro da colmeia e as 4 frases (PL-MUF-16).** Não é demo de bancada, é prova executada em campo: o criador puxa um quadro da colmeia de dentro da cerca (mel escuro) e um quadro de uma colmeia da estrada (mel claro) e segura os dois pra câmera. Gupta prova o escuro: "amargo". Criador: "três semanas por ano. O resto não presta." Hyman, as 4 frases da colmeia. Número na tela: **3 semanas**.
+
+**MUF-M1 · Explicação em 4 tempos com o Gupta (R5), só em "A resposta no bode".** O Gupta é a voz da pergunta ingênua e do recap em PL-MUF-11 a 19 (3 a 4 recaps no bloco inteiro): "então o bode come mais veneno e não cimenta por causa do que está no cocho?", "então o pó abre a porta e o mel entra?", "então são 3 coisas do cocho e uma do chifre?". Hyman confirma em uma palavra. Fora desse bloco, a tese segue monólogo, como o controle.
+
+**MUF-M2 · Prova institucional em vídeo (R8).** Dois usos: Hyman: "Sanjay, mostra o que você gravou" → o cocho, o bode de 12, os laudos; e no "Secretário de Saúde admitiu" (PL-MUP-9): "mostra o vídeo" → o clipe real do RFK Jr., e volta: "é isso, como eu disse."
+
+### MUS: as provas executadas (4 demos + 2 moldes)
+
+**MUS-D1 · A demo-mestre, versão completa (PL-MUS-3 e 4, Dissolver).** Como descrito acima, com a sofisticação dentro da demo. Copy-esqueleto: "Vou fazer na sua frente o que o criador faz no cocho, e do lado, o que você fez em casa quando viu o truque do cavalo." Pré-anúncio, ação, **15 ml / 55 ml**, o fundo cinza do vidro. "Isso que está no fundo é o que vai sair na sua urina na primeira semana." Recap: "o pó não é o remédio; o pó é a porta."
+
+**MUS-D2 · A escada de absorção em três frascos (PL-MUS-6 e 7, Reativar; molde R7, lugar das gotas/pó/cápsula da SodaTide).** Três modelos iguais de vidro: frasco ESTÔMAGO (ácido) ligado por tubo ao frasco INTESTINO. No primeiro, o talo seco do frasco de prateleira; no segundo, mel de supermercado com bicarbonato puro; no terceiro, o mel da colmeia com o pó preparado. Fita colorimétrica no frasco INTESTINO de cada um, 5 minutos no cronômetro: **5% · 10% · 100%**. "O frasco que você comprou: cinco. A receita da internet: dez. O cocho: cem. Não foi você. Foi o que chegou." Gupta repete esta demo no estúdio (3ª aparição, R3).
+
+**MUS-D3 · Dois copos de ácido e a régua (PL-MUS-9 e 11, Reconstruir).** Executada: "colágeno de pote, o que você vê na farmácia, couro de boi" na primeira; some em 30 segundos; peneira vazia. "Núcleo do chifre do bode, com o pó" na segunda: inteiro; peneira cheia. Depois a régua de volta: a esponja que estava em 5,5 no MUP, agora dissolvida e reconstruída, sobe até **7**. "Lembra desta régua? Mesma esponja. Mesma marca de 7." Terceira aparição da régua: o cartão do voluntário 22, no build-up.
+
+**MUS-D4 · Sete dias, duas esponjas (PL-MUS-15 e 16, Proteger).** Executada com calendário: "Dia 1: as duas limpas. Borrifei as duas, todo dia, com o que vem no seu café. Dia 7." A sem proteção escura e endurece; a protegida, a água escorre. Número: **dia 7**. Metáfora dita na copy, não mostrada: "é uma capa de chuva na esponja; cada goma é uma demão."
+
+**MUS-M1 · Molde do ingrediente (R5 + 5.12 da SodaTide) para os 4 verbos.** Cada verbo nesta ordem fixa: ordinal e nome ("a segunda coisa é o mel") → apelido de personagem ("a porta", "a chave", "o andaime", "a capa de chuva") → função em uma frase → metáfora → estudo com número → resultado localizado no corpo → recap de uma linha. Apelidos propostos: **pó = a porta** (abre e segura o ácido), **mel = a chave** (acorda a esponja), **chifre = o andaime** (reconstrói), **casca = a capa de chuva** (protege). Decidir se entram; o controle não usa apelidos.
+
+**MUS-M2 · "Funciona, mas" para o truque do cavalo (PL-MUS-2).** "Quero ser justo com quem te ensinou o truque do cavalo. O pó é o certo. Eles acertaram o ingrediente. Erraram o animal, o estômago e a proporção. Funciona no bode. No cavalo e em você, morre no ácido." Derruba o concorrente dando razão a ele primeiro, como a SodaTide faz com o Mounjaro.
+
+### Decisões para o Marcos
+
+1. A demo-mestre (duas esponjas cimentadas, receita errada vs certa) entra nas 3 posições (lead A, MUS, Gupta)?
+2. O Gupta como segunda voz (pergunta ingênua + recap) em "A resposta no bode"? Só lá, ou também no MUS?
+3. A escada 5% · 10% · 100% com os três frascos no Reativar?
+4. A régua em 3 aparições (MUP 5,5 → MUS 7 → voluntário 22)?
+5. Os apelidos dos 4 ingredientes (porta, chave, andaime, capa de chuva)?
+6. "Funciona, mas" para o Viagra (MUF) e para o truque do cavalo (MUS)?
