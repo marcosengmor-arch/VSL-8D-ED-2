@@ -145,7 +145,7 @@ Mas o pior não foi o que eu vi. O pior foi o que eu ouvi depois. Os gemidos del
 
 **AL PACINO:** Jesus Cristo. Para tudo. Olha isso. Olha a calma do filho da puta.
 
-O cara que eu pagava pra deixar a minha mulher em forma misturou o segredo dele na minha bancada e fodeu a minha mulher na minha cama tão alto que a câmera captou. E eu vi tudo. Sozinho. No escuro. Com o controle remoto tremendo na mão.
+O cara que eu pagava pra deixar a minha mulher em forma misturou o segredo dele na minha bancada e fodeu a minha mulher na minha cama tão alto que a maldita câmera captou. E eu vi tudo. Sozinho, no escuro, com o celular tremendo na mão.
 
 Me diz uma coisa, Mark. Você é médico. O que aquele filho da puta colocou naquela caneca? O que ele tinha que eu não tenho mais?
 
