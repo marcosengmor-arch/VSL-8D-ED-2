@@ -80,7 +80,7 @@ Que merda tá acontecendo? Eu perguntava isso pro teto, Mark. Toda noite.
 
 E eu virava pro outro lado e engolia. Mas ficava acordado no escuro, ouvindo a respiração dela se acalmar, lembrando que aquela mesma mulher, um ano antes, me acordava de madrugada com a mão.
 
-Uma mulher de 29 anos não perde o fogo, Mark. O fogo dela estava lá. Era eu que não estava mais.
+Uma mulher de 29 anos não perde o fogo, Mark. O fogo dela estava lá. Era o meu pau que não estava mais.
 
 Então eu fiz o que qualquer homem faria. Marquei o melhor urologista de Beverly Hills. E comecei com o Viagra.
 
@@ -88,11 +88,11 @@ E sabe o pior? Na época eu achei que estava resolvido. Eu marcava o jantar, tom
 
 Até a noite que me quebrou.
 
-Ela de lingerie. De quatro. Molhada. Querendo. Eu encostei, e ele entortou. Não amoleceu devagar. Entortou feito macarrão cozido, quente do remédio que tinha entrado no sangue mas não tinha chegado aonde precisava.
+Ela de lingerie. De quatro. Molhada. Querendo. Eu encostei, e o meu pau entortou. Não amoleceu devagar. Entortou feito macarrão cozido, quente do remédio que tinha entrado no sangue mas não tinha chegado aonde precisava.
 
 Fodeu.
 
-Ela ficou parada uns 5 segundos. Sentou na beira da cama. E disse: "tudo bem, Al. A gente tenta outro dia."
+Ela ficou parada uns 5 segundos, com ele mole na mão. Sentou na beira da cama. E disse: "tudo bem, Al. A gente tenta outro dia."
 
 Tudo bem. A frase mais castradora que eu já ouvi na vida.
 
@@ -132,7 +132,7 @@ Mas o pior não foi o que eu vi. O pior foi o que eu ouvi depois. Os gemidos del
 
 **AL PACINO:** Jesus Cristo. Para tudo. Olha isso. Olha a calma do filho da puta.
 
-O cara misturou o segredo dele na minha bancada e comeu a minha mulher na minha cama tão alto que a câmera captou. E eu vi tudo. Sozinho. No escuro. Com o controle remoto tremendo na mão.
+O cara misturou o segredo dele na minha bancada e fodeu a minha mulher na minha cama tão alto que a câmera captou. E eu vi tudo. Sozinho. No escuro. Com o controle remoto tremendo na mão.
 
 Me diz uma coisa, Mark. Você é médico. O que aquele filho da puta colocou naquela caneca? O que ele tinha que eu não tenho mais?
 
@@ -150,15 +150,15 @@ Pode ser o seu.
 
 Eu amava o Al. De verdade. Mas amor não faz uma mulher gozar.
 
-Meu Deus. Eu tenho 29 anos. Eu queria todo dia. E por um ano, o que ficava entre as pernas do Poderoso Chefão era carne morta. Eu deitava do lado dele e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir.
+Meu Deus. Eu tenho 29 anos. Eu estava com tesão todo dia. E por um ano, o que ficava entre as pernas do Poderoso Chefão era carne morta. Eu deitava do lado dele e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir.
 
 E eu tentei. Isso ninguém conta. Lingerie nova. Brinquedo. Uma viagem só nós dois. Fui num médico pra saber se o problema era eu. Ele riu. Disse: "o problema não é você."
 
 Aí o garoto apareceu.
 
-Desde o dia que eu vi o volume na calça dele, a minha cabeça começou a imaginar. E quando aconteceu, ele me preencheu por completo. Cada polegada. E me fez esguichar como eu não esguichava desde os 20. Duro feito pedra por horas, sem amolecer uma vez. Do jeito que o Al não fazia nem no começo.
+Desde o dia que eu vi o volume do pau dele na calça, a minha cabeça começou a imaginar. E quando aconteceu, ele me preencheu por completo. Cada polegada. E me fez esguichar como eu não esguichava desde os 20. Duro feito pedra, grosso, as veias saltando, por horas, sem amolecer uma vez. Do jeito que o Al não fazia nem no começo.
 
-Eu voltei no dia seguinte. E no outro. Fiquei viciada no garoto dentro da casa que o Al pagou.
+Eu voltei no dia seguinte. E no outro. Fiquei viciada no pau do garoto, dentro da casa que o Al pagou.
 
 Isso vai soar ofensivo, mas é a verdade. Não era o dinheiro. O Al tinha mais. Não era a fama. Ele é o Al Pacino, pelo amor de Deus. Era a única coisa que ele não conseguia mais me dar.
 
@@ -192,7 +192,7 @@ E teve uma palavra que ela usou que ficou martelando na minha cabeça. Cada pole
 
 E foi aí que eu comecei a suspeitar de uma coisa que, se fosse verdade, mudava tudo.
 
-E se esse mesmo veneno silencioso não estivesse só derrubando a ereção dos homens, mas encolhendo eles? Roubando as polegadas que deveriam ser deles desde o começo?
+E se esse mesmo veneno silencioso não estivesse só derrubando o pau dos homens, mas encolhendo ele? Roubando as polegadas que deveriam ser deles desde o começo?
 
 Guarda essa suspeita. Porque daqui a pouco eu vou provar isso pra você, milímetro por milímetro.
 
@@ -221,6 +221,8 @@ E a segunda: o que o garoto tirou daqueles bodes que trouxe o dele de volta?
 **Frases de poder usadas (※):** "Promete que não vai me julgar" (Guia 2, confissão; Noor, abertura); "Isso vai soar ofensivo, mas é a verdade" (Guia 1; Noor, antes de "não era o dinheiro"). "Eu nunca contei isso pra ninguém" já está no modelo (E1). Nenhuma na boca do Hyman, que neste bloco só conduz.
 
 **Palavras de poder (26/10, só onde fez sentido, sempre em linha própria):** "chega" (Al, antes de ligar); "Que merda tá acontecendo?" (Al, as costas dela, "eu perguntava isso pro teto"); "Fodeu." (Al, a noite do macarrão, antes do "tudo bem"); "Que se dane, eu pensei" (Al, antes dos $20 mil; o clique do close paga esta); "Jesus Cristo. Para tudo. Olha isso." (Al, no flagra; substitui "Caralho"); "Meu Deus." (Noor, antes de "eu tenho 29 anos"); "Agora." (Hyman, no teste dos 10 segundos, já estava); "De vez." (Al, já estava). "Tudo bem" aparece uma vez aqui (a segunda fica para a tese).
+
+**Vocabulário do nicho (26/10, regra "sem pudor" e glossário 8.1/8.2 do prompt de tradução):** densificado em 8 pontos na voz de quem fala (o meu pau que não estava mais; o meu pau entortou; mole na mão dela; fodeu a minha mulher; com tesão todo dia; o volume do pau dele; duro feito pedra, grosso, as veias saltando; viciada no pau do garoto; derrubando o pau dos homens). Mantido como estava, por ordem do Marcos: "mais medo de tocar na minha própria mulher do que de qualquer homem". Contagem na emotional: "pau" 16, "mole" 4.
 
 **Fatos reais usados:** Noor Alfallah, 29 à época; Roman, junho de 2023; o teste de DNA (TMZ, 2023); o pedido de guarda em setembro de 2023 (manchete real na tela); Pacino 82 no início da relação, 83 no nascimento, 85 hoje. **Ficção no padrão das base:** o personal, a câmera, as tentativas, a confissão. **Linha do tempo (nota para a copy inteira):** a ligação é "poucas semanas depois da manchete"; o ano não é dito em nenhum bloco; "Piloto Hill Country 2026" e o trial ficam no build-up e não conflitam se a copy nunca datar a ligação.
 
