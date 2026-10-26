@@ -65,7 +65,7 @@ Mas ela sabia. Nunca disse nada. Só olhava a cartela na gaveta com a cara de qu
 
 Por um ano eu achei que tinha tudo que um homem americano podia querer.
 
-Quando o Roman nasceu, eu pedi o teste de DNA. O mundo inteiro riu. Não foi por ela, Mark. Foi por mim. Eu sabia quantas vezes tinha funcionado naquele ano. Dava pra contar numa mão.
+Quando o Roman nasceu, o mundo inteiro bateu palma. Um homem de 83 fazendo filho. Isso é vigor, diziam. E eu pedi o teste de DNA. O mundo inteiro riu. Não foi por ela, Mark. Foi por mim. Eu sabia quantas vezes tinha funcionado naquele ano. Dava pra contar numa mão.
 
 E mesmo assim, numa tarde de sábado, eu disse: chega.
 
@@ -244,6 +244,8 @@ E a segunda: o que o garoto tirou daqueles bodes que trouxe o dele de volta?
 **Palavras de poder (26/10, só onde fez sentido, sempre em linha própria):** "chega" (Al, antes de ligar); "Que merda tá acontecendo?" (Al, as costas dela, "eu perguntava isso pro teto"); "Fodeu." (Al, a noite do macarrão, antes do "tudo bem"); "Que se dane, eu pensei" (Al, antes dos $20 mil; o clique do close paga esta); "Jesus Cristo. Para tudo. Olha isso." (Al, no flagra; substitui "Caralho"); "Meu Deus." (Noor, antes de "eu tenho 29 anos"); "Agora." (Hyman, no teste dos 10 segundos, já estava); "De vez." (Al, já estava). "Tudo bem" aparece uma vez aqui (a segunda fica para a tese).
 
 **Vocabulário do nicho (26/10, regra "sem pudor" e glossário 8.1/8.2 do prompt de tradução):** densificado em 8 pontos na voz de quem fala (o meu pau que não estava mais; o meu pau entortou; mole na mão dela; fodeu a minha mulher; com tesão todo dia; o volume do pau dele; duro feito pedra, grosso, as veias saltando; viciada no pau do garoto; derrubando o pau dos homens). Mantido como estava, por ordem do Marcos: "mais medo de tocar na minha própria mulher do que de qualquer homem". Contagem na emotional: "pau" 13, "mole" 3 (VSL 1: 20 e 9, na voz de rua do Tyson; o Al é mais contido por escolha).
+
+**Crença do avatar aplicada (26/10):** "um homem de 83 fazendo filho; isso é vigor, diziam; e eu pedi o teste de DNA" (o vigor público contra a dúvida privada da própria semente). O pagamento vem no close: outro filho aos 85.
 
 **Pesquisa aplicada neste bloco (auditoria de 26/10):** "cure ED permanently" → "eu quero o meu pau de volta. De vez."; teste da ereção matinal (vídeo do Berg, 430 mil) → o teste de 10 segundos; Eroxon (+200%, Walmart $25,97) → "o gel de 10 minutos da moda"; "urologist ED" → "o melhor urologista de Beverly Hills"; a receita caseira de 2 ingredientes em 10 minutos (vídeos de 1,5 mi e 869 mil) → a caneca da CAM 03 (mel + pó + água morna); "women searching" / mulher na pré-lead → a Noor em 1ª pessoa com o lado dela; tamanho via comida → "cada polegada" e a suspeita do tamanho (E8). Por decisão do Marcos (23/10), o truque do cavalo e o frasco de $14 não entram nas tentativas do Al (Viagra, TRT, ondas de choque, gel): ficam na lead e no MUF.
 

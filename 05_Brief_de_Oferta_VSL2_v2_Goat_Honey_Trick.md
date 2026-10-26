@@ -348,6 +348,10 @@ Regra herdada do briefing de edição: 4 a 5 provas por ponto (documento, númer
 16. **Confissões com conteúdo real:** Hyman (comida como remédio) e Gupta (2013, "brought to you by Pfizer"), com callback no "por isso nada funcionou".
 17. **A sofisticação do bicarbonato dita uma vez com cerimônia** ("sozinha, 10% chega; com ele, 100%") no Dissolver, e repetida só na oferta e na desqualificação da prateleira.
 
+## Crença do avatar a usar a favor (decisão de 26/10/2026)
+
+- O nosso homem é o americano de mentalidade antiga, machista: para ele, **vigor se conta em filhos**. Quanto mais filhos, mais homem. Usar a favor, nunca contra: o Al fez um filho aos 83 e outro vem aos 85 ("ele não só voltou; fez outro filho"); o De Niro, filha aos 79; o bode de 12 faz 180 cabritos por ano e o criador mede o bode pelos filhos, não pela força ("vigor, nessa terra, se conta em cria"); o teste de DNA do Al é o homem duvidando da própria semente; a queda da fertilidade (RFK, -50% de espermatozoides) é o país perdendo o que o avô dele tinha de sobra; o 3º motivo do close vira "o velho bode que ainda faz cria". Regra: a cada prova de ereção, uma prova de semente quando couber (filho, cabrito, carga, jato). Nunca ridicularizar o homem sem filhos: ele é o que "ainda não fez".
+
 ## Regra de estilo da copy (herdada da VSL 1, decisão de 12 e 13/10/2026)
 
 - **Modelagem:** cada bloco escrito em cima da estrutura invisível do bloco equivalente da **Soda Horse**, parágrafo a parágrafo, com as adaptações novas (bode, criador, frasco de $14, 1 vs 4 estômagos, memórias do Pacino) entrando no lugar do parágrafo de mesma função, nunca somadas por cima. Orçamento de tamanho: o do bloco-modelo (tese ~20 min).

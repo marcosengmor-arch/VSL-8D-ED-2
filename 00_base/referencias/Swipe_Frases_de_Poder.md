@@ -35,6 +35,10 @@ Fonte: Google Doc "Swipe Frases de Poder" do Marcos (lido em 24/10/2026). Texto 
 **Onde pesam mais, por bloco:** Background: 1 a 2 (confissão do Hyman; "esse é o verdadeiro motivo"). Emotional: Pacino e Noor (confissão, vergonha, interjeição no flagra: "Caralho… para tudo" na CAM 03; "Eu nunca falei isso pra ninguém" na abertura). Discovery: Hyman (alerta, anti-autoridade, polêmico, medo puro: uma por PL, antes da prova). Tese: medo puro e quebra de expectativa (uma a cada 2 PLs). MUS: "Isso é ridiculamente simples…", "Eu tive que testar isso pra acreditar" (Gupta), "Isso não devia funcionar, mas…".
 
 
+## Crença do avatar para usar a favor (26/10/2026)
+
+O público é o americano machista de mentalidade antiga: **mais filhos, mais vigor**. Frases que falam a língua dele: "vigor se conta em filhos" · "o velho bode que ainda faz cria" · "semente de homem, não de velho" · "ele não só voltou; fez outro filho" · "o seu avô fez oito; o seu pai, três" · "o criador mede o bode pela cria, não pela força". Nunca contra o homem sem filhos.
+
 ## Palavras de poder (decisão de 26/10/2026: usar só quando fizer sentido; sempre sozinha numa linha, quebrando o ritmo antes da pancada; no máximo uma por parágrafo)
 
 | # | PT | EN (voz do americano 50+) | Quem | Onde |

@@ -38,7 +38,7 @@ Não teve uma única refeição em 40 anos que não te desse mais uma dose. O es
 
 E o seu pau não é a única coisa que esse veneno cobra.
 
-Ele cortou a fertilidade dos homens americanos pela metade. Em 40 anos. Está publicado na Human Reproduction Update: a contagem de espermatozoides dos homens ocidentais despencou mais de 50% desde 1973. E não parou de cair.
+Ele cortou a fertilidade dos homens americanos pela metade. Em 40 anos. O seu avô fez oito filhos. O seu pai, três. E o garoto de hoje mal faz um. Está publicado na Human Reproduction Update: a contagem de espermatozoides dos homens ocidentais despencou mais de 50% desde 1973. E não parou de cair.
 
 E em 2025, o próprio Secretário de Saúde dos Estados Unidos, Robert F. Kennedy Jr., subiu ao púlpito da Casa Branca e chamou isso de crise existencial. Apontando o dedo pros mesmos químicos que estão na sua comida.
 
@@ -96,7 +96,7 @@ Foi ele que puxou. E o fio levou ele a um mundo que eu nem sabia que existia.
 
 O Hill Country. O mundo da criação de bodes de raça. O Texas é o estado número 1 em bodes dos Estados Unidos. E o que o Sanjay descobriu lá, eu vou te contar do jeito que ele me contou, porque é aí que tudo se conecta.
 
-Um bode reprodutor cobre 100 fêmeas em 45 dias. Cem. Daí nascem 180 cabritos. E o criador conta isso em dinheiro: 54 mil dólares por ano. O pau de um bode.
+Um bode reprodutor cobre 100 fêmeas em 45 dias. Cem. Daí nascem 180 cabritos. Porque nessa terra, vigor se conta em cria. O criador não mede o bode pela força. Mede pelos filhos. E conta isso em dinheiro: 54 mil dólares por ano. O pau de um bode.
 
 E todo esse valor está numa coisa só. A potência dele. A capacidade de entrar no curral e as fêmeas entrarem no cio só de sentir o cheiro dele.
 
@@ -149,6 +149,8 @@ Porque é aí que a coisa fica feia.
 **Picos de legenda grande (11):** "PUKE" (fundo vermelho) · "WHO PAID" · "ROUNDUP" (vermelho) · "EVEN IN SUPERMARKET HONEY" · "THEY KNEW IN 1998" (vermelho) · "NO PUBLIC COMMUNICATION / LITIGATION RISK" · "SOMEBODY SHOULD BE IN JAIL" · "A HEART DRUG THAT FAILED" · "MONTHLY SUBSCRIPTION" · "$54,000 A YEAR" · "THE GOAT ESCAPES".
 
 **Pesquisa aplicada neste bloco (auditoria de 26/10):** "cure ED permanently" → "de vez" (vem da E1 e paga no close); teste da ereção matinal (Berg) → o teste de 10 segundos (E1) e a tese; "history of Viagra" → "nasceu por acidente" (D5); cura permanente vs mensalidade → "assinatura mensal" (D5; "brought to you by Pfizer" fica com o Gupta no MUF); "até no mel de supermercado" (D2); Texas nº 1 em bodes, leilão de segunda, $54 mil (D6); fio "tudo é maior no Texas" fora da discovery por ordem do Marcos (26/10): fica só no Reconstruir; tamanho pelo gancho de comida ("não é remédio, é comida", D6). Reservado para a lead, por decisão (no máximo 20% da lead): o truque do cavalo, o frasco de $14, o Vick e a pimenta. Reservado para o MUF: a prateleira como tentativa fracassada ("horny goat weed vs Viagra"), o pote de óxido nítrico ("não é a sua artéria"), o honey pack do posto.
+
+**Crença do avatar aplicada (26/10):** "o seu avô fez oito filhos; o seu pai, três; e o garoto de hoje mal faz um" (D3, antes do RFK) e "nessa terra, vigor se conta em cria; o criador não mede o bode pela força, mede pelos filhos" (D6).
 
 **Trilha:** grave na abertura; investigação a partir de "73 estudos"; tensão em "Roundup"; silêncio nos clipes do RFK; conspiração do memo ao "assinatura mensal", com a mão na mesa em "filhos da puta" (sem trilha por 2 segundos); corta em "por que tanto esforço?"; esperança rural a partir de "a Noor tinha me dado o fio"; sobe em "pensa no tamanho disso"; segura em "o bode escapa. Por quê?"; corta na ponte.
 
