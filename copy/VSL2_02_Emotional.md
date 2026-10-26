@@ -5,7 +5,7 @@
 **Duração-alvo:** 9 min 30 s a 10 min (modelo: 8 min 23 s, ~1.900 palavras PT; o nosso soma as tentativas do Al e a confissão ampliada da Noor: 2.090 palavras, ~9 min 20 s).
 **Mudança de 26/10 (Marcos):** o Viagra entra desde o começo da relação (responde "como esse velho dava conta?"); o Al toma escondido e tem vergonha de precisar; ela vê como coisa de velho; as amigas dela riem ("um velho que toma Viagra"); depois o Viagra para de funcionar (dobra a dose, urologista), TRT, ondas de choque, gel, até nada funcionar. Acréscimos pontuais, sem mudar a estrutura.
 **Decisões de 23/10 aplicadas:** 82 contra 29, o fogo dela alto; o teste de 10 segundos na ligação; "eu quero o meu pau de volta, de vez"; Viagra e TRT como nas base + $20 mil em ondas de choque + gel de 10 minutos numa frase; o fundo do poço é o garoto chegando na casa; "a Noor também tentou"; a pergunta dela na cama e a resposta do garoto (receita do tio, fazenda de bode, "bode não para"); sem reconquista. Nenhum frasco, pote ou preço. O Gupta não aparece.
-**Formato (26/10, ordem do Marcos; corrigido na v2.1):** duas cenas 1x1, exatamente como na VSL 1. Cena 1: o Hyman na casa do Al; o Al fala, o Hyman só abre ("Al. Você me ligou."), pergunta uma vez ("Desculpa, como?") e fecha ("Eu ainda não sei, Al."); o teste de 10 segundos fica em narração do Hyman sobre o Al em silêncio. Cena 2: o Hyman com a Noor, ela de costas ou desfocada, o Hyman presente e calado; ela fala. As narrações do Hyman ficam só na abertura (E0), na ponte entre as cenas e no fechamento (E8), como na Soda Horse. Picos de legenda e trilha nas notas do fim.
+**Formato (26/10, ordem do Marcos; corrigido na v2.1):** duas cenas 1x1, exatamente como na VSL 1. Cena 1: o Hyman na casa do Al; o Al fala, o Hyman só abre ("Al. Você me ligou."), pergunta uma vez ("Desculpa, como?") e fecha ("Eu ainda não sei, Al."); o teste de 10 segundos é o Hyman perguntando pro Al na sala, o silêncio em cena, e o Hyman virando pra câmera ("responde pra você mesmo. Agora."); sem narração. Cena 2: o Hyman com a Noor, ela de costas ou desfocada, o Hyman presente e calado; ela fala. As narrações do Hyman ficam só na abertura (E0), na ponte entre as cenas e no fechamento (E8), como na Soda Horse. Picos de legenda e trilha nas notas do fim.
 
 ---
 
@@ -71,11 +71,15 @@ E mesmo assim, numa tarde de sábado, eu disse: chega.
 
 Liguei pro meu médico quase chorando pra contar que o meu pau não levantava mais.
 
-**DR. MARK HYMAN (narração, sobre o Al olhando pro copo):** A primeira coisa que eu perguntei pra ele naquela ligação foi a pergunta que eu faço pra todo homem que me procura. Al, quando foi a última vez que você acordou duro?
+**DR. MARK HYMAN:** E eu te fiz a pergunta que eu faço pra todo homem que me procura. Al, quando foi a última vez que você acordou duro?
 
-E veio o silêncio mais longo que eu já ouvi num telefone.
+**(silêncio; o Al olha pro copo; 4 segundos)**
 
-Responde pra você mesmo. Agora. Quando foi a última vez?
+**DR. MARK HYMAN:** Foi o silêncio mais longo que eu já ouvi num telefone.
+
+**(o Hyman vira pra câmera)**
+
+**DR. MARK HYMAN:** Responde pra você mesmo. Agora. Quando foi a última vez?
 
 **AL PACINO:** Quando eu consegui falar, eu disse uma coisa só. Mark, eu não quero mais nada que funcione uma noite. Eu quero o meu pau de volta. De vez.
 
@@ -247,7 +251,7 @@ E a segunda: o que o garoto tirou daqueles bodes que trouxe o dele de volta?
 
 **Picos de legenda grande (10):** "a dead dick" (amarelo itálico, fala dela) · "82 / 29" · "WHEN WAS THE LAST TIME?" (tela preta, 3 s) · "FOR GOOD" · "IT'S OKAY, AL" · "$20,000" (vermelho) · "I WATCHED THAT THING ABOUT 20 TIMES" (tela branca) · "CAM 03 · REC" · "HOLD ON TO THAT DETAIL" · "STEALING THE INCHES".
 
-**Falas do Hyman nas cenas (densidade da VSL 1):** cena 1: "Al. Você me ligou." · "Desculpa, como?" · "Eu ainda não sei, Al. Mas eu juro que vou descobrir." + a narração do teste de 10 segundos sobre o silêncio. Cena 2: nenhuma; ele está no plano do entrevistador, calado, mão na testa no fim.
+**Falas do Hyman nas cenas (densidade da VSL 1):** cena 1: "Al. Você me ligou." · a pergunta dos 10 segundos ("Al, quando foi a última vez que você acordou duro?"), o silêncio, "foi o silêncio mais longo que eu já ouvi num telefone" e a virada pra câmera ("responde pra você mesmo. Agora.") · "Desculpa, como?" · "Eu ainda não sei, Al. Mas eu juro que vou descobrir." Sem narração dentro das cenas. Cena 2: nenhuma; ele está no plano do entrevistador, calado, mão na testa no fim.
 
 **Trilha:** grave na manchete; a frase dela sem trilha; tensão nas 3 coisas; quente e lenta nos 82/29; melancólica nas costas; humilhação crescente nas tentativas (corta no "tudo bem"); tensão na chegada do garoto; silêncio na tela branca; só o som da câmera na CAM 03; grave na confissão dela; suspeita e esperança nas 2 perguntas.
 
