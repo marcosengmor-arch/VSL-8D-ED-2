@@ -2,7 +2,7 @@
 
 **Modelo:** Soda Horse, blocos 8 a 10 (Attia 15:30 → 21:21), parágrafo a parágrafo. PLs: doc 08, D1 a D7.
 **Entra depois de:** a emotional (as duas perguntas). **Entrega para:** a tese (doc 08c, PL-MUP-1: "você já sabe quem fez").
-**Duração-alvo:** 6 min 30 s a 7 min (modelo: 5 min 51 s, ~1.300 palavras PT; o nosso: 1.300 palavras, ~5 min 50 s).
+**Duração-alvo:** 6 min 30 s a 7 min (modelo: 5 min 51 s, ~1.300 palavras PT; o nosso: 1.400 palavras, ~6 min 10 s).
 **Decisões aplicadas:** o Gupta só é citado (quem puxou o fio; sem cena; em pessoa só no MUS); o mundo dos bodes é narrado pelo Hyman com o que o Gupta descobriu; a fazenda, o balde, a colmeia e o pote ficam para o MUS; "o Viagra nasceu por acidente" em D5; "mel de supermercado" dito aqui para o mel do criador ficar limpo; nenhum frasco de prateleira, pote ou preço; o bloco "lodo no pasto" não entra.
 **Formato:** copy lisa. Picos de legenda e trilha nas notas do fim.
 
@@ -52,33 +52,35 @@ E em 2025, o próprio Secretário de Saúde dos Estados Unidos, Robert F. Kenned
 
 Quando o próprio governo admite uma coisa dessas em público, pode ter certeza de que é muito pior do que estão te contando.
 
-E foi seguindo esse rastro que eu encontrei a parte mais suja.
+E foi seguindo esse rastro que eu encontrei a parte mais suja. A parte que me fez bater a mão na mesa.
 
 Agora presta atenção nessa parte.
 
-Em 1998, um memorando interno da Bayer, a dona do Roundup, já discutia, a portas fechadas, o efeito do glifosato no tecido reprodutivo masculino. 1998. Eles sabiam em 1998.
+Em 1998, um memorando interno da Bayer, a dona do Roundup, já discutia, a portas fechadas, o efeito do glifosato no tecido reprodutivo masculino. 1998. Esses filhos da puta sabiam em 1998.
 
 E sabe o que eles escreveram no rodapé? Olha isso.
 
 "Sem comunicação pública. Risco de litígio."
 
-Em outras palavras: eles sabiam, e ficaram calados, porque contar pras pessoas custaria bilhões.
+Em outras palavras: eles sabiam que estavam castrando um país inteiro, refeição por refeição, e ficaram calados. Porque contar pra você custaria bilhões. O seu pau valia menos do que a conta do advogado deles.
 
-E não parou aí. A FDA aprovou o glifosato contra a recomendação dos próprios cientistas. 7 deles foram demitidos. Eu sentei com um deles. 22 anos revisando pesticidas naquela agência.
+Na moral. Alguém devia estar preso por causa disso.
+
+E não parou aí. A FDA aprovou o glifosato contra a recomendação dos próprios cientistas. Os caras pagos pra te proteger escreveram "não aprovar", e um andar acima alguém carimbou "aprovado". 7 deles foram demitidos. Eu sentei com um deles. 22 anos revisando pesticidas naquela agência.
 
 **EX-REVISOR DA FDA (rosto borrado):** Nós vimos, nos dados do próprio fabricante, o que o glifosato estava fazendo com o corpo dos homens. Eu escrevi, preto no branco, que não podia ser aprovado. E eles aprovaram mesmo assim. Dos 7 que colocaram a objeção por escrito, nenhum ainda estava lá 2 anos depois. Eu não deveria estar te contando isso.
 
 **DR. MARK HYMAN:**
 
-Então enquanto a Bayer envenenava a sua comida de um lado, a Big Pharma vendia o antídoto do outro.
+Então enquanto a Bayer envenenava a sua comida de um lado, a Big Pharma vendia o antídoto do outro. O mesmo jogo sujo, com os dois lados da mesa no mesmo bolso.
 
-E sabe de onde veio o Viagra? Nunca foi feito pro seu pau. Era um remédio de coração que falhou no teste. Os pacientes só não queriam devolver os comprimidos. A Pfizer transformou um efeito colateral num negócio.
+E sabe de onde veio o Viagra? Nunca foi feito pro seu pau. Era um remédio de coração que falhou no teste. Os pacientes só não queriam devolver os comprimidos. A Pfizer olhou pra aquilo e viu o que todo canalha vê quando um homem broxa: um cliente pra vida inteira. Transformou um efeito colateral num negócio de bilhões.
 
-Viagra. Cialis. TRT. Próteses. 32 bilhões de dólares por ano. E nenhum deles cura nada. Todos só encobrem.
+Viagra. Cialis. TRT. Próteses. 32 bilhões de dólares por ano. E nenhum deles cura nada. Todos só encobrem. Porque um homem curado é um cliente que desaparece.
 
-Porque um homem curado é um cliente que desaparece. Pra eles, você nunca foi paciente. Você é uma assinatura mensal. Tem gente rica porque você não sabe disso.
+Pra esses desgraçados, você nunca foi paciente. Você é uma assinatura mensal. Eles lucram com o seu pau morto, e precisam que ele continue morto. Tem gente rica porque você não sabe disso.
 
-E quando eu mandei o que tinha encontrado pra um laboratório testar, 3 semanas depois me ligaram oferecendo uma fortuna pra eu engavetar tudo. Eu recusei.
+E quando eu mandei o que tinha encontrado pra um laboratório testar, 3 semanas depois me ligaram oferecendo uma fortuna pra eu engavetar tudo. Dinheiro pra eu calar a boca e deixar você broxando em paz. Eu mandei eles tomarem no cu.
 
 Desde então, este vídeo foi derrubado 14 vezes. Eles não querem que você veja isso.
 
@@ -140,10 +142,12 @@ Porque é aí que a coisa fica feia.
 
 **Frases de poder usadas (※):** 6 em 1.300 palavras, uma por PL e sempre antes ou depois de uma prova: "Tem um conflito de interesse gigante aqui" (Pack polêmico) · "O estrago não avisa quando começa" (Medo puro) · "Agora presta atenção nessa parte" (Guia 1) · "Tem gente rica porque você não sabe disso" (Polêmico) · "Eles não querem que você veja isso" (Alerta) · "Quando eu liguei os pontos, fiquei puto" (Guia 1). Se parecer demais na leitura em voz alta, cortar "Tem gente rica…" primeiro. **Palavra de poder (26/10):** "Olha isso." sozinha, antes do rodapé do memo; "Presta atenção" já estava ("agora presta atenção nessa parte").
 
+**Raiva na parte conspiratória (26/10, ordem do Marcos):** a seção do memo ao "por que tanto esforço" (D4 e D5) ganhou a voz de um médico com raiva, sem virar o Tyson: "a parte que me fez bater a mão na mesa"; "esses filhos da puta sabiam em 1998"; "castrando um país inteiro, refeição por refeição"; "o seu pau valia menos do que a conta do advogado deles"; ※ "Na moral. Alguém devia estar preso por causa disso." (Guia 1); "um andar acima alguém carimbou aprovado"; "o mesmo jogo sujo, com os dois lados da mesa no mesmo bolso"; "o que todo canalha vê quando um homem broxa: um cliente pra vida inteira"; "pra esses desgraçados"; "eles lucram com o seu pau morto, e precisam que ele continue morto"; "dinheiro pra eu calar a boca e deixar você broxando em paz; eu mandei eles tomarem no cu". Regra: a raiva é contra a Bayer, a FDA e a Pfarma, nunca contra o espectador; depois de "por que tanto esforço?" a voz volta ao investigador (o mundo dos bodes é esperança, não raiva). Tradução: "filhos da puta" → sons of bitches; "canalha" → crook; "desgraçados" → bastards; "mandei tomarem no cu" → told them to go fuck themselves.
+
 **Fatos reais usados:** Roundup (Bayer-Monsanto); 97% USDA (formulação herdada); Human Reproduction Update (Levine et al., -50% desde 1973); RFK Jr. (clipes reais mais próximos das falas; ajustar legenda ao áudio real); sildenafil criado como remédio cardíaco (Pfizer, 1998, fato real); $32 bi (herdado); Texas estado nº 1 em bodes (fato real). **Props de prova no padrão das base:** memo de 1998 com rodapé; 7 demitidos; o ex-revisor; a oferta pra engavetar; 14 derrubadas; os números do bode (100 / 45 / 180 / $54 mil). **A conferir:** "o Sanjay estava no Texas naquela semana" é ficção aceitável; não dizer "documentário" nem "câmera".
 
-**Picos de legenda grande (9):** "PUKE" (fundo vermelho) · "WHO PAID" · "ROUNDUP" (vermelho) · "EVEN IN SUPERMARKET HONEY" · "NO PUBLIC COMMUNICATION / LITIGATION RISK" · "A HEART DRUG THAT FAILED" · "MONTHLY SUBSCRIPTION" · "$54,000 A YEAR" · "THE GOAT ESCAPES".
+**Picos de legenda grande (11):** "PUKE" (fundo vermelho) · "WHO PAID" · "ROUNDUP" (vermelho) · "EVEN IN SUPERMARKET HONEY" · "THEY KNEW IN 1998" (vermelho) · "NO PUBLIC COMMUNICATION / LITIGATION RISK" · "SOMEBODY SHOULD BE IN JAIL" · "A HEART DRUG THAT FAILED" · "MONTHLY SUBSCRIPTION" · "$54,000 A YEAR" · "THE GOAT ESCAPES".
 
-**Trilha:** grave na abertura; investigação a partir de "73 estudos"; tensão em "Roundup"; silêncio nos clipes do RFK; conspiração do memo ao "assinatura mensal"; corta em "por que tanto esforço?"; esperança rural a partir de "a Noor tinha me dado o fio"; sobe em "pensa no tamanho disso"; segura em "o bode escapa. Por quê?"; corta na ponte.
+**Trilha:** grave na abertura; investigação a partir de "73 estudos"; tensão em "Roundup"; silêncio nos clipes do RFK; conspiração do memo ao "assinatura mensal", com a mão na mesa em "filhos da puta" (sem trilha por 2 segundos); corta em "por que tanto esforço?"; esperança rural a partir de "a Noor tinha me dado o fio"; sobe em "pensa no tamanho disso"; segura em "o bode escapa. Por quê?"; corta na ponte.
 
 **Imagens-chave:** Hyman lendo papéis na sala escura; caixas de Cialis e Viagra genérico; galão de Roundup na garagem; homem mordendo o sanduíche; bife; Budweiser; favo cortado com colher (mel de supermercado, rótulo visível); gráfico em queda; o púlpito da Casa Branca; memorando com carimbo e o rodapé em close; o ex-revisor no sofá; a cartela azul saindo de um frasco de remédio cardíaco (3D); mão pegando pílulas; glitch de TV; o frame da caneca voltando; um frame curto do Gupta ao telefone (só o rosto conhecido); ficha do bode reprodutor; b-roll de curral; lettering "HARD AND POTENT"; balde de ração; bode pastando; "BUT BEFORE THAT".
