@@ -3,6 +3,7 @@
 **Modelo:** Soda Horse, blocos 4.2 a 7.2 (Attia 7:06 → 15:29), parágrafo a parágrafo; as tentativas (E3) modeladas na Alpha Erec (blocos 5 e 6) na função do HJ 5.3 → 6.3. PLs: doc 08, E0 a E8. Ponte B (a Noor conta).
 **Entra depois de:** o background ("você vai ouvir da boca dele"). **Entrega para:** a discovery (as duas perguntas).
 **Duração-alvo:** 9 min 30 s a 10 min (modelo: 8 min 23 s, ~1.900 palavras PT; o nosso soma as tentativas do Al e a confissão ampliada da Noor: 2.090 palavras, ~9 min 20 s).
+**Mudança de 26/10 (Marcos):** o Viagra entra desde o começo da relação (responde "como esse velho dava conta?"); o Al toma escondido e tem vergonha de precisar; ela vê como coisa de velho; as amigas dela riem ("um velho que toma Viagra"); depois o Viagra para de funcionar (dobra a dose, urologista), TRT, ondas de choque, gel, até nada funcionar. Acréscimos pontuais, sem mudar a estrutura.
 **Decisões de 23/10 aplicadas:** 82 contra 29, o fogo dela alto; o teste de 10 segundos na ligação; "eu quero o meu pau de volta, de vez"; Viagra e TRT como nas base + $20 mil em ondas de choque + gel de 10 minutos numa frase; o fundo do poço é o garoto chegando na casa; "a Noor também tentou"; a pergunta dela na cama e a resposta do garoto (receita do tio, fazenda de bode, "bode não para"); sem reconquista. Nenhum frasco, pote ou preço. O Gupta não aparece.
 **Formato:** copy lisa. Picos de legenda e trilha nas notas do fim.
 
@@ -54,6 +55,10 @@ Ela tinha 29. Eu tinha 82.
 
 E acredite: no começo, isso não era problema. Ela tinha o fogo de uma mulher de 29 anos. E eu dava conta. Ela me procurava de madrugada. Me acordava com a mão. E eu dava conta.
 
+Como? Você sabe como. Eu sou o Al Pacino, não sou Deus. Desde a primeira noite tinha uma pílula azul no meio do caminho. Eu tomava escondido, no banheiro, com a porta fechada. Porque um homem como eu não podia precisar daquilo.
+
+Mas ela sabia. Nunca disse nada. Só olhava a cartela na gaveta com a cara de quem acha aquilo coisa de velho.
+
 Por um ano eu achei que tinha tudo que um homem americano podia querer.
 
 Quando o Roman nasceu, eu pedi o teste de DNA. O mundo inteiro riu. Não foi por ela, Mark. Foi por mim. Eu sabia quantas vezes tinha funcionado naquele ano. Dava pra contar numa mão.
@@ -82,9 +87,11 @@ E eu virava pro outro lado e engolia. Mas ficava acordado no escuro, ouvindo a r
 
 Uma mulher de 29 anos não perde o fogo, Mark. O fogo dela estava lá. Era o meu pau que não estava mais.
 
-Então eu fiz o que qualquer homem faria. Marquei o melhor urologista de Beverly Hills. E comecei com o Viagra.
+E teve a noite que eu ouvi as amigas dela na minha cozinha. Rindo. "Você tá com um velho que toma Viagra, Noor." E ela riu junto. Baixinho. Mas riu.
 
-E sabe o pior? Na época eu achei que estava resolvido. Eu marcava o jantar, tomava a pílula no carro, olhava o relógio e esperava os 45 minutos. Fiquei tão dependente daquela porcaria que ir pra cama sem a pílula azul era ir pra guerra desarmado.
+Então eu fiz o que qualquer homem faria. Dobrei a dose. E marquei o melhor urologista de Beverly Hills. Ele trocou a pílula, mudou a marca, mandou tomar de estômago vazio.
+
+E sabe o pior? Por um tempo eu achei que estava resolvido. Eu marcava o jantar, tomava a pílula no carro, olhava o relógio e esperava os 45 minutos. Fiquei tão dependente daquela porcaria que ir pra cama sem a pílula azul era ir pra guerra desarmado.
 
 Até a noite que me quebrou.
 
@@ -209,9 +216,9 @@ E a segunda: o que o garoto tirou daqueles bodes que trouxe o dele de volta?
 | PL | Soda Horse (função) | Nossa versão | Toque original |
 |---|---|---|---|
 | E0 | 4.2–4.5: "todo mundo sabe que o casamento acabou… ninguém sabe o porquê; eu sei; sentei com os dois"; a frase da Christine; "guarda essa frase"; "cancelei tudo, 6 meses" (fica no B4); "não era queixa de paciente; se derrubou ele…"; 3 coisas; "para e pensa comigo"; "fui atrás dos dois" | A manchete da guarda; a frase da Noor com "Poderoso Chefão"; "guarda essa frase"; "o que ele me contou naquela sala não era queixa de paciente" (sem repetir "fundo do poço" e "6 meses pausado", já ditos no B4); 3 coisas com "eu chequei"; "fui atrás dos dois" | "Médico antes de tudo" no lugar de "cientista" (Hyman) |
-| E1 | 5.1: "Kevin, você me ligou" → "você é médico, Pete… nunca contei pra ninguém; cheguei aos 70 sendo o Kevin Costner; Oscar; mulheres sonhando comigo; numa tarde de sábado liguei chorando… há 5 anos; começou com as costas dela" | "Al, você me ligou" → igual, com 82/29, "o fogo de uma mulher de 29 e eu dava conta", o teste de DNA ("o mundo inteiro riu; não foi por ela, foi por mim; dava pra contar numa mão") | `[NOVO]` O teste de 10 segundos em narração do Hyman ("responde pra você mesmo, agora") e o pedido do Al ("de vez"), que paga no close |
+| E1 | 5.1: "Kevin, você me ligou" → "você é médico, Pete… nunca contei pra ninguém; cheguei aos 70 sendo o Kevin Costner; Oscar; mulheres sonhando comigo; numa tarde de sábado liguei chorando… há 5 anos; começou com as costas dela" | "Al, você me ligou" → igual, com 82/29, "o fogo de uma mulher de 29 e eu dava conta"; `[26/10]` "como? você sabe como; desde a primeira noite tinha uma pílula azul no meio do caminho; tomava escondido; um homem como eu não podia precisar daquilo; ela olhava a cartela com a cara de quem acha aquilo coisa de velho" (mata a pergunta "como esse velho dava conta"); o teste de DNA ("o mundo inteiro riu; não foi por ela, foi por mim; dava pra contar numa mão") | `[NOVO]` O teste de 10 segundos em narração do Hyman ("responde pra você mesmo, agora") e o pedido do Al ("de vez"), que paga no close |
 | E2 | 5.1–5.2: roupão aberto, celular, lençol até o ombro, "hoje não, Kev", acordado no escuro, "gritou o meu nome" | Igual, com "o bebê" nas desculpas e "me acordava de madrugada com a mão"; fecho: "uma mulher de 29 não perde o fogo; era eu que não estava mais" | O fogo dela alto, ordem do Marcos |
-| E3 | (Alpha Erec 5–6, função do HJ 5.3 → 6.3): o Viagra que funciona e falha, "it's okay, Sly", TRT e o fígado | Urologista de Beverly Hills; o ritual dos 45 min; "ir pra guerra desarmado"; a noite do macarrão cozido; "tudo bem, Al"; TRT 3 meses e o fígado; $20 mil em ondas de choque; o gel de 10 minutos; "e eu ainda estava longe do fundo do poço" | Decisão de 23/10 (ondas de choque e gel numa frase; sem bomba) |
+| E3 | (Alpha Erec 5–6, função do HJ 5.3 → 6.3): o Viagra que funciona e falha, "it's okay, Sly", TRT e o fígado | `[26/10]` As amigas dela rindo na cozinha ("um velho que toma Viagra"; ela riu junto); como o Viagra já vinha desde o começo, a tentativa vira "dobrei a dose" + urologista de Beverly Hills (trocou a pílula, a marca, estômago vazio); o ritual dos 45 min; "ir pra guerra desarmado"; a noite do macarrão cozido; "tudo bem, Al"; TRT 3 meses e o fígado; $20 mil em ondas de choque; o gel de 10 minutos; "e eu ainda estava longe do fundo do poço" | Decisão de 23/10 (ondas de choque e gel numa frase; sem bomba) |
 | E4 | 5.2: "não é que eu não tenha dado tudo; marido presente; império; 18 anos; mais medo de tocar na esposa do que de qualquer homem; foi aí que o Josh apareceu; vizinho, competia com cavalos, sentava à minha mesa, bebia o meu vinho, 3–4 meses em Montana, porta escancarada" | Igual: fralda aos 83; império; "Poderoso Chefão… mais medo de tocar na minha mulher"; o garoto: personal, 30, interior, ator, 3x por semana, mesa, piadas, vinho, 3 meses de set; "ela ria de um jeito que eu não via desde antes do bebê" | O rival não tem cavalo: a origem do segredo fica para a Noor (ponte B) |
 | E5 | 5.3: a casa diferente, o cheiro, celular, fria, hotel; "a coisa mais patética"; câmera na cozinha; "atrás de prova, o que a câmera me deu foi pior"; "assisti umas 20 vezes"; "nem sabia o que era aquele pó"; os gemidos | Igual, com caneca em vez de garrafa e "os gemidos que eu não conseguia arrancar dela há um ano" | — |
 | E6 | 5.4: o registro + "misturou o segredo na minha bancada e fodeu a minha esposa na minha cama tão alto que a câmera captou; controle remoto tremendo; o que aquele filho da puta colocou naquela garrafa? o que ele tinha que eu não tenho mais?" | Igual, com a CAM 03 descrita (pote escuro, colher de mel, pitada de pó, água morna, relógio) e a caneca | "Jesus Cristo. Para tudo. Olha isso." na boca do Al, no frame do flagra (palavras de poder 6, 4 e 2) |
