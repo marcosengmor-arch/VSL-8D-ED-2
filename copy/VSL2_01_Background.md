@@ -66,7 +66,7 @@ O que eu vou te mostrar é diferente de tudo que você já tentou ou já ouviu f
 
 Essa solução completamente natural ataca a substância exata que sabotou o pau de praticamente todo homem americano acima dos 40. E destrava o crescimento que foi interrompido em você durante a puberdade.
 
-Esse é o verdadeiro motivo pelo qual o Al aceitou sentar na frente desta câmera e contar tudo. Ele assinou este vídeo. Com o nome dele.
+Esse é o verdadeiro motivo pelo qual o Al aceitou sentar na frente desta câmera e contar tudo.
 
 Não foi por dinheiro. Ele tem mais dinheiro do que qualquer homem que você vai conhecer na vida. Não foi por vaidade. Aos 85, ele já ouviu todos os aplausos que um homem pode ouvir.
 
@@ -87,7 +87,7 @@ Ele não quer que outro americano decente e trabalhador pague esse mesmo preço.
 
 **Frases de poder usadas (※):** "Esse é o verdadeiro motivo pelo qual…" (Guia 2, quebra de expectativa), em cima do parágrafo de "por que o Al aceitou". Só uma no bloco: o background da HJ é afirmativo, não confessional; as confissões ficam para a emotional e a discovery. **Palavra de poder (26/10):** "Escuta." sozinha, antes de "o que eu vou te mostrar é diferente de tudo".
 
-**Pesquisa aplicada neste bloco (auditoria de 26/10):** "ele assinou este vídeo" (risco registrado no brief: pessoas reais exigem a autorização dita na tela, padrão das 3 base); os famosos 50+ validados; o restante da pesquisa (prateleira, cavalo, Vick, cura vs mensalidade, mulher na pré-lead) é matéria da lead, do MUF e do MUS, não do background.
+**Pesquisa aplicada neste bloco (auditoria de 26/10):** os famosos 50+ validados; "ele assinou este vídeo" fora da copy por ordem do Marcos (26/10; a autorização, se entrar, vai como lettering, não como fala); o restante da pesquisa (prateleira, cavalo, Vick, cura vs mensalidade, mulher na pré-lead) é matéria da lead, do MUF e do MUS, não do background.
 
 **Fatos a conferir antes da gravação:** 150 milhões de downloads do podcast `[VERIFICAR]`; Linus Pauling Award `[VERIFICAR]`; depoimento no Senado `[VERIFICAR]` (se não conferir, trocar por "fui chamado a Washington pra explicar…"); Function Health 100 mil exames por ano (formulação de ordem de grandeza, segura); Pacino 85; Van Damme e Elena (esposa, idade a conferir; se não bater, trocar o nome por "a minha mulher"). Fatos reais: Cleveland Clinic, 15 bestsellers NYT, 15 anos de amizade (ficção aceitável, padrão das base).
 
