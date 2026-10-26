@@ -46,6 +46,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 19/10/2026 | Repositório criado; estrutura e base herdada da VSL 1 | README |
 | 20/10/2026 | Análise das 3 VSLs base no padrão da planilha "Análise das VSL's Escaladas ED (EUA)" e do doc "Padronização de Análise da VSL" | 01a |
 | 21/10/2026 | Mercado lido (Trends, YouTube, prateleira, spy tool): não fazer 4ª VSL de cavalo; inviabilizar a prateleira pelo nome; mel é o maior cluster, cavalo o que mais acelera | 01 |
+| 26/10/2026 | Close: o filho novo paga o teste de DNA ("dessa vez eu não precisei de teste"); nunca insinuar dúvida sobre o Roman (criança real) | 05, 08b, copy |
 | 26/10/2026 | Crença do avatar registrada e aplicada: americano machista de mentalidade antiga, "mais filhos, mais vigor"; usar a favor (Al com filho aos 83 e outro aos 85, De Niro, 180 cabritos, avô com oito filhos, "o velho bode que ainda faz cria") | 05, 08c, copy, swipe |
 | 24/10/2026 | Copy v1 (PT) de Background, Emotional e Discovery escrita nos modelos e PLs do doc 08; swipe de frases de poder adotado como guia de escrita (usar quando combinar) | copy/, 00_base/referencias |
 | 24/10/2026 | Demonstrações na copy no padrão SodaTide registradas no 08c para decisão; deixadas de lado por ora (ordem do Marcos) | 08c |

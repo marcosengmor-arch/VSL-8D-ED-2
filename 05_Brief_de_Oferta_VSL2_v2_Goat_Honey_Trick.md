@@ -351,6 +351,7 @@ Regra herdada do briefing de edição: 4 a 5 provas por ponto (documento, númer
 ## Crença do avatar a usar a favor (decisão de 26/10/2026)
 
 - O nosso homem é o americano de mentalidade antiga, machista: para ele, **vigor se conta em filhos**. Quanto mais filhos, mais homem. Usar a favor, nunca contra: o Al fez um filho aos 83 e outro vem aos 85 ("ele não só voltou; fez outro filho"); o De Niro, filha aos 79; o bode de 12 faz 180 cabritos por ano e o criador mede o bode pelos filhos, não pela força ("vigor, nessa terra, se conta em cria"); o teste de DNA do Al é o homem duvidando da própria semente; a queda da fertilidade (RFK, -50% de espermatozoides) é o país perdendo o que o avô dele tinha de sobra; o 3º motivo do close vira "o velho bode que ainda faz cria". Regra: a cada prova de ereção, uma prova de semente quando couber (filho, cabrito, carga, jato). Nunca ridicularizar o homem sem filhos: ele é o que "ainda não fez".
+- **Decisão de 26/10 (close):** o filho novo paga o teste de DNA: "dessa vez eu não precisei de teste". O homem que duvidou da própria semente aos 83 (E1) e aos 85 não duvida mais. **Nunca insinuar dúvida sobre a paternidade do Roman** (criança real; o teste real confirmou; risco de difamação e de derrubada): a dúvida fica só na frase do Al em E1 ("foi por mim"), e a coincidência da gravidez vai inteira para o filho novo.
 
 ## Regra de estilo da copy (herdada da VSL 1, decisão de 12 e 13/10/2026)
 
