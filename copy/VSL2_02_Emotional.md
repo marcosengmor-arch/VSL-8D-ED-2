@@ -189,37 +189,17 @@ E eu cansei de fingir.
 
 **(o Hyman no plano do entrevistador, mão na testa)**
 
-**DR. MARK HYMAN (narração):**
-
-Ela pediu a guarda do Roman. E foi embora com ele. Saiu em todas as manchetes.
-
-E tudo que o Al construiu pra aquela família, em pedaços.
-
-Guarda esse detalhe. O tio. A fazenda de bode no Hill Country. Porque naquele dia eu nem prestei atenção no que ela tinha acabado de me contar. Mas foi exatamente dali, de um curral de bode no meio do Texas, que o garoto tirou o segredo que roubou a mulher do Al Pacino.
+**DR. MARK HYMAN (narração):** Ela pediu a guarda do Roman e foi embora com o garoto. E a separação despedaçou a família que o Al montou aos 83 anos. O menino no fogo cruzado, em semanas alternadas. Tudo que o Al construiu pra eles, em pedaços. Guarda esse detalhe, o tio, a fazenda de bode no Hill Country, porque naquele dia eu nem prestei atenção. Mas o garoto tinha crescido naquele curral e, como eu só entenderia muito depois, foi exatamente do mundo dos bodes que ele tirou o segredo que roubou a mulher do Al Pacino. Ela passou o primeiro verão com o garoto na fazenda do tio. Dormir num curral de bode, olhando agora, foi quase um deboche.
 
 **NOOR ALFALLAH:** Foi o bode que me deu o que você não conseguia mais me dar.
 
-**DR. MARK HYMAN (narração):**
+**DR. MARK HYMAN (narração):** E essa é a parte mais cruel de todas. O Al passou 50 anos fazendo o homem que ninguém enfrentava, e foi o de fora, o personal que ele pagava, que enxergou o que ele nunca enxergou. Mas o que me deu calafrios na espinha foi uma frase que ela repetia sem parar. É como se alguma coisa dentro dele simplesmente tivesse parado de funcionar. Porque não foi o coração dela que esfriou, foi o pau dele que morreu por dentro.
 
-E essa é a parte mais cruel de todas. O Al passou a vida inteira fazendo filme de homem. E foi o garoto do curral que enxergou o que ele nunca enxergou.
+**DR. MARK HYMAN (narração):** A Noor nunca parou de querer o Al. O pau do Al é que simplesmente parou de conseguir. E teve uma palavra que ela usou que ficou martelando na minha cabeça. Cada polegada. Porque o que o garoto tinha não era só a dureza, era o tamanho. O jeito que ele conseguia preencher ela por completo lá dentro, pulsando ali enquanto ela tremia inteira. E foi aí que eu comecei a suspeitar de uma coisa que, se fosse verdade, mudava tudo.
 
-Mas o que me deu calafrio na espinha foi uma frase que ela repetia sem parar. "É como se alguma coisa dentro dele tivesse parado de funcionar." Porque não foi o coração dela que esfriou. Foi o pau dele que morreu por dentro.
+**CLIPE:** O quê?
 
-A Noor nunca parou de querer o Al. O pau do Al é que parou de conseguir.
-
-E teve uma palavra que ela usou que ficou martelando na minha cabeça. Cada polegada. Porque o que o garoto tinha não era só a dureza. Era o tamanho. O jeito que ele conseguia preencher ela por completo, lá dentro, enquanto ela tremia inteira.
-
-E foi aí que eu comecei a suspeitar de uma coisa que, se fosse verdade, mudava tudo.
-
-E se esse mesmo veneno silencioso não estivesse só derrubando o pau dos homens, mas encolhendo ele? Roubando as polegadas que deveriam ser deles desde o começo?
-
-Guarda essa suspeita. Porque daqui a pouco eu vou provar isso pra você, milímetro por milímetro.
-
-Eu saí daquela casa com 2 perguntas cravadas na cabeça.
-
-A primeira: o que é essa coisa que mata o tecido de um homem por dentro, em silêncio, sem que ele nem sinta, até travar a ereção e roubar o tamanho junto?
-
-E a segunda: o que o garoto tirou daqueles bodes que trouxe o dele de volta?
+**DR. MARK HYMAN (narração):** E se esse mesmo veneno silencioso não estivesse só derrubando o pau dos homens, mas encolhendo ele, roubando as polegadas que deveriam ser deles desde o começo? Guarda essa suspeita, porque daqui a pouco eu vou provar isso pra você, milímetro por milímetro. Eu saí daquela casa com 2 perguntas cravadas na cabeça. A primeira: o que é essa coisa que mata o tecido de um homem por dentro, em silêncio, sem que ele nem sinta, até travar a ereção e roubar o tamanho junto… E a segunda: o que o garoto tirou daqueles bodes que trouxe o dele de volta?
 
 ---
 
@@ -235,7 +215,7 @@ E a segunda: o que o garoto tirou daqueles bodes que trouxe o dele de volta?
 | E5 | 5.3: a casa diferente, o cheiro, celular, fria, hotel; "a coisa mais patética"; câmera na cozinha (26/10: as câmeras da segurança já existiam, ele nunca tinha aberto o aplicativo, como o Tyson); "atrás de prova, o que a câmera me deu foi pior"; "assisti umas 20 vezes"; "nem sabia o que era aquele pó"; os gemidos | Igual, com caneca em vez de garrafa e "os gemidos que eu não conseguia arrancar dela há um ano" | — |
 | E6 | 5.4: o registro + "misturou o segredo na minha bancada e fodeu a minha esposa na minha cama tão alto que a câmera captou; controle remoto tremendo; o que aquele filho da puta colocou naquela garrafa? o que ele tinha que eu não tenho mais?" | Igual, com a CAM 03 descrita (pote escuro, colher de mel, pitada de pó, água morna, relógio) e a caneca | "Jesus Cristo. Para tudo. Olha isso." na boca do Al, no frame do flagra (palavras de poder 6, 4 e 2) |
 | E7 | 6.1–6.3: "eu ainda não sei, Kevin, mas juro que vou descobrir; toda história tem 2 lados; fui atrás da Christine; metade dos casamentos acaba em silêncio, dentro do quarto; pode ser o seu"; a Christine: "eu amava o Kevin; amor não faz uma mulher gozar; 5 anos de carne morta; chuveiro, toalha; não era o dinheiro, não era a fama; a única coisa que ele não conseguia me dar; alguma coisa dentro dele parou de funcionar; cansei de fingir" | Igual, com 29 anos, "eu queria todo dia", um ano; `[NOVO]` "e eu tentei: lingerie, brinquedo, viagem, médico: 'o problema não é você'"; o garoto, "cada polegada", "viciada no garoto dentro da casa que o Al pagou"; `[NOVO]` a pergunta na cama e a resposta ("receita do tio, fazenda de bode, Hill Country, pó com mel numa caneca; bode não para") | ※ "Promete que não vai me julgar" (abertura) e ※ "Isso vai soar ofensivo, mas é a verdade" (antes de "não era o dinheiro") |
-| E8 | 7.1–7.2: "ela deixou o Kevin e casou com o Josh num rancho; 18 anos em pedaços; guarda esse detalhe, o rancho; foi do mundo dos cavalos que ele tirou o segredo"; "foi o cavalo que me deu…"; "o cowboy de verdade e foi o de fora que enxergou"; "alguma coisa parou de funcionar"; "não foi o coração dela, foi o pau dele"; "cada polegada… era o tamanho"; a suspeita; as 2 perguntas | Igual, com a guarda e a manchete, "guarda esse detalhe: o tio, a fazenda de bode no Hill Country", "foi o bode que me deu…", "filme de homem / o garoto do curral", a suspeita e as 2 perguntas ("o que o garoto tirou daqueles bodes") | — |
+| E8 | 7.1–7.2: "ela deixou o Kevin e casou com o Josh num rancho; 18 anos em pedaços; os filhos no fogo cruzado; guarda esse detalhe, o rancho; o Josh competia com cavalos; foi do mundo dos cavalos que ele tirou o segredo; casar num rancho foi quase um deboche"; "foi o cavalo que me deu…"; "o cowboy de verdade e foi o de fora, o vizinho, que enxergou"; "alguma coisa parou de funcionar"; "não foi o coração dela, foi o pau dele"; "cada polegada… era o tamanho"; CLIPE "o quê?"; a suspeita; as 2 perguntas | Parágrafo a parágrafo (26/10): "pediu a guarda do Roman e foi embora com o garoto; a família que ele montou aos 83; o menino no fogo cruzado, em semanas alternadas; guarda esse detalhe, o tio, a fazenda de bode; o garoto tinha crescido naquele curral; o primeiro verão na fazenda do tio: dormir num curral de bode foi quase um deboche"; "foi o bode que me deu…"; "50 anos fazendo o homem que ninguém enfrentava, e foi o de fora, o personal que ele pagava, que enxergou"; CLIPE "o quê?"; a suspeita e as 2 perguntas ("o que o garoto tirou daqueles bodes") | — |
 
 **Frases de poder usadas (※):** "Promete que não vai me julgar" (Guia 2, confissão; Noor, abertura); "Isso vai soar ofensivo, mas é a verdade" (Guia 1; Noor, antes de "não era o dinheiro"). "Eu nunca contei isso pra ninguém" já está no modelo (E1). Nenhuma na boca do Hyman, que neste bloco só conduz.
 
