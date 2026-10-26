@@ -60,6 +60,8 @@ Eu pausei o podcast. Parei o livro que estava escrevendo. E mergulhei em pesquis
 
 E é exatamente por isso que eu quero ser cristalino com você.
 
+Escuta.
+
 O que eu vou te mostrar é diferente de tudo que você já tentou ou já ouviu falar. Até mesmo de mim, no passado. O que eu descobri sobre o tecido do pau de um homem nunca foi revelado na história da medicina.
 
 Essa solução completamente natural ataca a substância exata que sabotou o pau de praticamente todo homem americano acima dos 40. E destrava o crescimento que foi interrompido em você durante a puberdade.
@@ -83,7 +85,7 @@ Ele não quer que outro americano decente e trabalhador pague esse mesmo preço.
 | 4.2b | "O que está te impedindo de ter o tamanho e a performance que a Mãe Natureza programou?" → "o caso mais improvável" → "outubro de 2025, sábado, o telefone tocou; um amigo que você conhece desde criança; Mel Gibson; sim, aquele; Hollywood passou 50 anos vendendo esse homem como invencível; 15 anos de amizade; a confissão de um homem no fundo do poço" | Igual, com Al Pacino, "Poderoso Chefão", "mandava matar com um aceno", "três gerações de mulheres" | A data vira "poucas semanas depois que o mundo inteiro viu a manchete" (a manchete real da guarda, setembro de 2023, entra na tela sem a copy dizer o que é; paga em E0) |
 | 4.3 | "Aquela ligação mudou os 6 meses seguintes; pausei o podcast; mergulhei em pesquisas; quero ser cristalino: diferente de tudo, até de mim; tecido peniano nunca revelado; ataca a substância exata; destrava o crescimento interrompido na puberdade; o único motivo pelo qual o Mel aceitou: não dinheiro, não vaidade; descobriu tarde demais; o preço foi uma relação de uma década; não quer que outro americano decente pague" | Igual, com "parei o livro", "pau de um homem", "esse é o verdadeiro motivo pelo qual" (※), "mais dinheiro do que qualquer homem que você vai conhecer", "aos 85 já ouviu todos os aplausos", "o preço você vai ouvir da boca dele" | O preço (a mulher, a guarda) não é dito aqui; a copy só promete "da boca dele" (costura com E0) |
 
-**Frases de poder usadas (※):** "Esse é o verdadeiro motivo pelo qual…" (Guia 2, quebra de expectativa), em cima do parágrafo de "por que o Al aceitou". Só uma no bloco: o background da HJ é afirmativo, não confessional; as confissões ficam para a emotional e a discovery.
+**Frases de poder usadas (※):** "Esse é o verdadeiro motivo pelo qual…" (Guia 2, quebra de expectativa), em cima do parágrafo de "por que o Al aceitou". Só uma no bloco: o background da HJ é afirmativo, não confessional; as confissões ficam para a emotional e a discovery. **Palavra de poder (26/10):** "Escuta." sozinha, antes de "o que eu vou te mostrar é diferente de tudo".
 
 **Fatos a conferir antes da gravação:** 150 milhões de downloads do podcast `[VERIFICAR]`; Linus Pauling Award `[VERIFICAR]`; depoimento no Senado `[VERIFICAR]` (se não conferir, trocar por "fui chamado a Washington pra explicar…"); Function Health 100 mil exames por ano (formulação de ordem de grandeza, segura); Pacino 85; Van Damme e Elena (esposa, idade a conferir; se não bater, trocar o nome por "a minha mulher"). Fatos reais: Cleveland Clinic, 15 bestsellers NYT, 15 anos de amizade (ficção aceitável, padrão das base).
 

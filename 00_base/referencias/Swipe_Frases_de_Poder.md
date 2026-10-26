@@ -33,3 +33,31 @@ Fonte: Google Doc "Swipe Frases de Poder" do Marcos (lido em 24/10/2026). Texto 
 | **Gupta** (jornalista, confessando) | "Eu preciso confessar uma coisa", "Eu achei que era teoria da conspiração…", "Quem vive disso não pode falar isso em público", "O especialista repete o script", "Eu tive que testar isso pra acreditar" | Vulgaridade |
 
 **Onde pesam mais, por bloco:** Background: 1 a 2 (confissão do Hyman; "esse é o verdadeiro motivo"). Emotional: Pacino e Noor (confissão, vergonha, interjeição no flagra: "Caralho… para tudo" na CAM 03; "Eu nunca falei isso pra ninguém" na abertura). Discovery: Hyman (alerta, anti-autoridade, polêmico, medo puro: uma por PL, antes da prova). Tese: medo puro e quebra de expectativa (uma a cada 2 PLs). MUS: "Isso é ridiculamente simples…", "Eu tive que testar isso pra acreditar" (Gupta), "Isso não devia funcionar, mas…".
+
+
+## Palavras de poder (decisão de 26/10/2026: usar só quando fizer sentido; sempre sozinha numa linha, quebrando o ritmo antes da pancada; no máximo uma por parágrafo)
+
+| # | PT | EN (voz do americano 50+) | Quem | Onde |
+|---|---|---|---|---|
+| 1 | Escuta. | Listen. | Hyman | Antes de uma frase que o espectador precisa aceitar |
+| 2 | Olha isso. | Look at this. | Hyman, Al, Gupta | Antes de demo, exame, documento |
+| 3 | Presta atenção. | Pay attention. | Hyman | Antes do memo, do relógio, da ordem dos 4 verbos |
+| 4 | Para tudo. | Stop. Stop right there. | Al, Hyman | O flagra; "não é da sua cabeça" |
+| 5 | Agora. | Right now. | Hyman | "Responde pra você mesmo. Agora." |
+| 6 | Jesus Cristo. | Jesus Christ. | Al, Gupta | A CAM 03; o laudo |
+| 7 | Meu Deus. | My God. | Noor | A confissão |
+| 8 | Que porra é essa? | What the hell is this? | Al, Gupta | A caneca; o balde SODA |
+| 9 | Que merda tá acontecendo? | What the hell is going on? | Al | As costas dela |
+| 10 | Fodeu. | I'm screwed. | Al; o espectador | A noite do macarrão; o teste dos 10 segundos |
+| 11 | Que se dane. | Screw it. | Al; o homem no close | Os $20 mil (errado) e o clique (certo) |
+| 12 | Mole. | Soft. | Hyman | Tese, linha própria |
+| 13 | Broxou. | Went limp. | Al, Hyman | Emotional; MUF |
+| 14 | Pau morto. | Dead dick. | Noor; Hyman uma vez | A frase dela; "é isso que ela segurou" |
+| 15 | Macarrão cozido. | Cooked noodle. | Al | A falha com Viagra |
+| 16 | Tudo bem. | It's okay. | Noor (via Al) | Duas vezes na VSL, nunca três |
+| 17 | Castrado. | Castrated. | Hyman | "Castrado antes de virar homem", uma vez |
+| 18 | Cimento. | Cement. | Hyman | Primeira vez na tese, linha própria |
+| 19 | Chega. | Enough. | Al; Hyman; o espectador | Antes de ligar; antes da oferta |
+| 20 | De vez. | For good. | Al | A ligação e a última linha do close |
+
+**Regra de voz:** 6, 8, 9, 10 e 11 são do Al e do Gupta; na boca do Hyman soam falsas. O Hyman fica com 1, 2, 3, 5, 12, 17, 18. "Que se dane" só vale nos dois lugares (o erro e o clique): o segundo paga o primeiro.

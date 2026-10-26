@@ -58,7 +58,9 @@ Por um ano eu achei que tinha tudo que um homem americano podia querer.
 
 Quando o Roman nasceu, eu pedi o teste de DNA. O mundo inteiro riu. Não foi por ela, Mark. Foi por mim. Eu sabia quantas vezes tinha funcionado naquele ano. Dava pra contar numa mão.
 
-E mesmo assim, numa tarde de sábado, eu liguei pro meu médico quase chorando pra contar que o meu pau não levantava mais.
+E mesmo assim, numa tarde de sábado, eu disse: chega.
+
+Liguei pro meu médico quase chorando pra contar que o meu pau não levantava mais.
 
 **DR. MARK HYMAN (narração):** A primeira coisa que eu perguntei pra ele naquela ligação foi a pergunta que eu faço pra todo homem que me procura. Al, quando foi a última vez que você acordou duro?
 
@@ -74,6 +76,8 @@ Deixa eu te contar como um homem chega nesse ponto. Não desabou de uma vez. Com
 
 **AL PACINO:** Eu saía do chuveiro de roupão aberto e ela já estava virada pro outro lado, no celular. Eu deitava na cama e ela puxava o lençol até o ombro, com a calma de quem já tinha ensaiado a desculpa. "Hoje não, Al." "Estou exausta." "O bebê."
 
+Que merda tá acontecendo? Eu perguntava isso pro teto, Mark. Toda noite.
+
 E eu virava pro outro lado e engolia. Mas ficava acordado no escuro, ouvindo a respiração dela se acalmar, lembrando que aquela mesma mulher, um ano antes, me acordava de madrugada com a mão.
 
 Uma mulher de 29 anos não perde o fogo, Mark. O fogo dela estava lá. Era eu que não estava mais.
@@ -86,13 +90,15 @@ Até a noite que me quebrou.
 
 Ela de lingerie. De quatro. Molhada. Querendo. Eu encostei, e ele entortou. Não amoleceu devagar. Entortou feito macarrão cozido, quente do remédio que tinha entrado no sangue mas não tinha chegado aonde precisava.
 
+Fodeu.
+
 Ela ficou parada uns 5 segundos. Sentou na beira da cama. E disse: "tudo bem, Al. A gente tenta outro dia."
 
 Tudo bem. A frase mais castradora que eu já ouvi na vida.
 
 Depois veio a testosterona. 3 meses de TRT. O fígado deu sinal no exame e o médico mandou parar. E eu voltei pior do que antes.
 
-Aí eu fiz o que só um homem com dinheiro e desespero faz. Gastei mais de 20 mil dólares numa clínica de ondas de choque em Beverly Hills. Não deu certo. Tentei até o gel de 10 minutos da moda. Não deu certo também.
+Aí eu fiz o que só um homem com dinheiro e desespero faz. Que se dane, eu pensei. Gastei mais de 20 mil dólares numa clínica de ondas de choque em Beverly Hills. Não deu certo. Tentei até o gel de 10 minutos da moda. Não deu certo também.
 
 E eu ainda estava longe do fundo do poço.
 
@@ -124,7 +130,7 @@ Mas o pior não foi o que eu vi. O pior foi o que eu ouvi depois. Os gemidos del
 
 **(CAM 03, P&B, REC, timecode: o garoto tira um pote escuro da mochila; uma colher de mel; uma pitada de um pó branco; água morna; mexe; olha o relógio; bebe; sobe.)**
 
-**AL PACINO:** Caralho. Para tudo. Olha isso. Olha a calma do filho da puta.
+**AL PACINO:** Jesus Cristo. Para tudo. Olha isso. Olha a calma do filho da puta.
 
 O cara misturou o segredo dele na minha bancada e comeu a minha mulher na minha cama tão alto que a câmera captou. E eu vi tudo. Sozinho. No escuro. Com o controle remoto tremendo na mão.
 
@@ -144,7 +150,7 @@ Pode ser o seu.
 
 Eu amava o Al. De verdade. Mas amor não faz uma mulher gozar.
 
-Eu tenho 29 anos. Eu queria todo dia. E por um ano, o que ficava entre as pernas do Poderoso Chefão era carne morta. Eu deitava do lado dele e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir.
+Meu Deus. Eu tenho 29 anos. Eu queria todo dia. E por um ano, o que ficava entre as pernas do Poderoso Chefão era carne morta. Eu deitava do lado dele e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir.
 
 E eu tentei. Isso ninguém conta. Lingerie nova. Brinquedo. Uma viagem só nós dois. Fui num médico pra saber se o problema era eu. Ele riu. Disse: "o problema não é você."
 
@@ -208,11 +214,13 @@ E a segunda: o que o garoto tirou daqueles bodes que trouxe o dele de volta?
 | E3 | (Alpha Erec 5–6, função do HJ 5.3 → 6.3): o Viagra que funciona e falha, "it's okay, Sly", TRT e o fígado | Urologista de Beverly Hills; o ritual dos 45 min; "ir pra guerra desarmado"; a noite do macarrão cozido; "tudo bem, Al"; TRT 3 meses e o fígado; $20 mil em ondas de choque; o gel de 10 minutos; "e eu ainda estava longe do fundo do poço" | Decisão de 23/10 (ondas de choque e gel numa frase; sem bomba) |
 | E4 | 5.2: "não é que eu não tenha dado tudo; marido presente; império; 18 anos; mais medo de tocar na esposa do que de qualquer homem; foi aí que o Josh apareceu; vizinho, competia com cavalos, sentava à minha mesa, bebia o meu vinho, 3–4 meses em Montana, porta escancarada" | Igual: fralda aos 83; império; "Poderoso Chefão… mais medo de tocar na minha mulher"; o garoto: personal, 30, interior, ator, 3x por semana, mesa, piadas, vinho, 3 meses de set; "ela ria de um jeito que eu não via desde antes do bebê" | O rival não tem cavalo: a origem do segredo fica para a Noor (ponte B) |
 | E5 | 5.3: a casa diferente, o cheiro, celular, fria, hotel; "a coisa mais patética"; câmera na cozinha; "atrás de prova, o que a câmera me deu foi pior"; "assisti umas 20 vezes"; "nem sabia o que era aquele pó"; os gemidos | Igual, com caneca em vez de garrafa e "os gemidos que eu não conseguia arrancar dela há um ano" | — |
-| E6 | 5.4: o registro + "misturou o segredo na minha bancada e fodeu a minha esposa na minha cama tão alto que a câmera captou; controle remoto tremendo; o que aquele filho da puta colocou naquela garrafa? o que ele tinha que eu não tenho mais?" | Igual, com a CAM 03 descrita (pote escuro, colher de mel, pitada de pó, água morna, relógio) e a caneca | ※ "Caralho. Para tudo. Olha isso." na boca do Al, no frame do flagra |
+| E6 | 5.4: o registro + "misturou o segredo na minha bancada e fodeu a minha esposa na minha cama tão alto que a câmera captou; controle remoto tremendo; o que aquele filho da puta colocou naquela garrafa? o que ele tinha que eu não tenho mais?" | Igual, com a CAM 03 descrita (pote escuro, colher de mel, pitada de pó, água morna, relógio) e a caneca | "Jesus Cristo. Para tudo. Olha isso." na boca do Al, no frame do flagra (palavras de poder 6, 4 e 2) |
 | E7 | 6.1–6.3: "eu ainda não sei, Kevin, mas juro que vou descobrir; toda história tem 2 lados; fui atrás da Christine; metade dos casamentos acaba em silêncio, dentro do quarto; pode ser o seu"; a Christine: "eu amava o Kevin; amor não faz uma mulher gozar; 5 anos de carne morta; chuveiro, toalha; não era o dinheiro, não era a fama; a única coisa que ele não conseguia me dar; alguma coisa dentro dele parou de funcionar; cansei de fingir" | Igual, com 29 anos, "eu queria todo dia", um ano; `[NOVO]` "e eu tentei: lingerie, brinquedo, viagem, médico: 'o problema não é você'"; o garoto, "cada polegada", "viciada no garoto dentro da casa que o Al pagou"; `[NOVO]` a pergunta na cama e a resposta ("receita do tio, fazenda de bode, Hill Country, pó com mel numa caneca; bode não para") | ※ "Promete que não vai me julgar" (abertura) e ※ "Isso vai soar ofensivo, mas é a verdade" (antes de "não era o dinheiro") |
 | E8 | 7.1–7.2: "ela deixou o Kevin e casou com o Josh num rancho; 18 anos em pedaços; guarda esse detalhe, o rancho; foi do mundo dos cavalos que ele tirou o segredo"; "foi o cavalo que me deu…"; "o cowboy de verdade e foi o de fora que enxergou"; "alguma coisa parou de funcionar"; "não foi o coração dela, foi o pau dele"; "cada polegada… era o tamanho"; a suspeita; as 2 perguntas | Igual, com a guarda e a manchete, "guarda esse detalhe: o tio, a fazenda de bode no Hill Country", "foi o bode que me deu…", "filme de homem / o garoto do curral", a suspeita e as 2 perguntas ("o que o garoto tirou daqueles bodes") | — |
 
-**Frases de poder usadas (※):** "Caralho. Para tudo." (Guia 1, interjeição; Al, no flagra); "Promete que não vai me julgar" (Guia 2, confissão; Noor, abertura); "Isso vai soar ofensivo, mas é a verdade" (Guia 1; Noor, antes de "não era o dinheiro"). "Eu nunca contei isso pra ninguém" já está no modelo (E1). Três no bloco inteiro, todas em 1ª pessoa dos dois; nenhuma na boca do Hyman, que neste bloco só conduz.
+**Frases de poder usadas (※):** "Promete que não vai me julgar" (Guia 2, confissão; Noor, abertura); "Isso vai soar ofensivo, mas é a verdade" (Guia 1; Noor, antes de "não era o dinheiro"). "Eu nunca contei isso pra ninguém" já está no modelo (E1). Nenhuma na boca do Hyman, que neste bloco só conduz.
+
+**Palavras de poder (26/10, só onde fez sentido, sempre em linha própria):** "chega" (Al, antes de ligar); "Que merda tá acontecendo?" (Al, as costas dela, "eu perguntava isso pro teto"); "Fodeu." (Al, a noite do macarrão, antes do "tudo bem"); "Que se dane, eu pensei" (Al, antes dos $20 mil; o clique do close paga esta); "Jesus Cristo. Para tudo. Olha isso." (Al, no flagra; substitui "Caralho"); "Meu Deus." (Noor, antes de "eu tenho 29 anos"); "Agora." (Hyman, no teste dos 10 segundos, já estava); "De vez." (Al, já estava). "Tudo bem" aparece uma vez aqui (a segunda fica para a tese).
 
 **Fatos reais usados:** Noor Alfallah, 29 à época; Roman, junho de 2023; o teste de DNA (TMZ, 2023); o pedido de guarda em setembro de 2023 (manchete real na tela); Pacino 82 no início da relação, 83 no nascimento, 85 hoje. **Ficção no padrão das base:** o personal, a câmera, as tentativas, a confissão. **Linha do tempo (nota para a copy inteira):** a ligação é "poucas semanas depois da manchete"; o ano não é dito em nenhum bloco; "Piloto Hill Country 2026" e o trial ficam no build-up e não conflitam se a copy nunca datar a ligação.
 

@@ -58,7 +58,9 @@ Agora presta atenção nessa parte.
 
 Em 1998, um memorando interno da Bayer, a dona do Roundup, já discutia, a portas fechadas, o efeito do glifosato no tecido reprodutivo masculino. 1998. Eles sabiam em 1998.
 
-E sabe o que eles escreveram no rodapé? "Sem comunicação pública. Risco de litígio."
+E sabe o que eles escreveram no rodapé? Olha isso.
+
+"Sem comunicação pública. Risco de litígio."
 
 Em outras palavras: eles sabiam, e ficaram calados, porque contar pras pessoas custaria bilhões.
 
@@ -136,7 +138,7 @@ Porque é aí que a coisa fica feia.
 | D6 | 10.1–10.2: "ainda faltava uma peça; aquele pó que o vizinho preparava; rastreei; o mundo da criação de cavalos; Percheron 20–30 milhões; a potência; segredo a sete chaves; um pó barato; garanhão de 28 = homem de 75; pensa no tamanho disso; era esse o pó; o Josh não era mais homem, só tinha o antídoto" | O pó e o mel da caneca; a Noor deu o fio; o Gupta puxou (citado, sem cena); Hill Country, estado nº 1 em bodes; 100 fêmeas / 45 dias / 180 cabritos / $54 mil; "o pau de um bode"; o cio pelo cheiro; "leilão de segunda, churrasco de domingo"; "um mel barato"; bode de 12 = homem de 80; "era esse o mel na caneca" | O valor é do pau do bode em dólares por ano, não o preço do animal; a sofisticação e a colmeia ficam para o MUS |
 | D7 | 10.2–10.3: "a peça final se encaixou; o glifosato está na comida do cavalo também, em quantidade maior; deveria ser o mais impotente; é o contrário; cavalo não tem DE; o cavalo escapa; por quê? guarda essa pergunta; antes, veja o que o veneno fez, milímetro por milímetro; é aí que a coisa fica feia" | Igual, com o bode | ※ "Quando eu liguei os pontos, fiquei puto" na entrada da peça final |
 
-**Frases de poder usadas (※):** 6 em 1.300 palavras, uma por PL e sempre antes ou depois de uma prova: "Tem um conflito de interesse gigante aqui" (Pack polêmico) · "O estrago não avisa quando começa" (Medo puro) · "Agora presta atenção nessa parte" (Guia 1) · "Tem gente rica porque você não sabe disso" (Polêmico) · "Eles não querem que você veja isso" (Alerta) · "Quando eu liguei os pontos, fiquei puto" (Guia 1). Se parecer demais na leitura em voz alta, cortar "Tem gente rica…" primeiro.
+**Frases de poder usadas (※):** 6 em 1.300 palavras, uma por PL e sempre antes ou depois de uma prova: "Tem um conflito de interesse gigante aqui" (Pack polêmico) · "O estrago não avisa quando começa" (Medo puro) · "Agora presta atenção nessa parte" (Guia 1) · "Tem gente rica porque você não sabe disso" (Polêmico) · "Eles não querem que você veja isso" (Alerta) · "Quando eu liguei os pontos, fiquei puto" (Guia 1). Se parecer demais na leitura em voz alta, cortar "Tem gente rica…" primeiro. **Palavra de poder (26/10):** "Olha isso." sozinha, antes do rodapé do memo; "Presta atenção" já estava ("agora presta atenção nessa parte").
 
 **Fatos reais usados:** Roundup (Bayer-Monsanto); 97% USDA (formulação herdada); Human Reproduction Update (Levine et al., -50% desde 1973); RFK Jr. (clipes reais mais próximos das falas; ajustar legenda ao áudio real); sildenafil criado como remédio cardíaco (Pfizer, 1998, fato real); $32 bi (herdado); Texas estado nº 1 em bodes (fato real). **Props de prova no padrão das base:** memo de 1998 com rodapé; 7 demitidos; o ex-revisor; a oferta pra engavetar; 14 derrubadas; os números do bode (100 / 45 / 180 / $54 mil). **A conferir:** "o Sanjay estava no Texas naquela semana" é ficção aceitável; não dizer "documentário" nem "câmera".
 
