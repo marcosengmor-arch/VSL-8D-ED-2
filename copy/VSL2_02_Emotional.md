@@ -4,6 +4,7 @@
 **Entra depois de:** o background ("você vai ouvir da boca dele"). **Entrega para:** a discovery (as duas perguntas).
 **Duração-alvo:** 9 min 30 s a 10 min (modelo: 8 min 23 s, ~1.900 palavras PT; o nosso soma as tentativas do Al e a confissão ampliada da Noor: 2.090 palavras, ~9 min 20 s).
 **Mudança de 26/10 (Marcos):** o Viagra entra desde o começo da relação (responde "como esse velho dava conta?"); o Al toma escondido e tem vergonha de precisar; ela vê como coisa de velho; as amigas dela riem ("um velho que toma Viagra"); depois o Viagra para de funcionar (dobra a dose, urologista), TRT, ondas de choque, gel, até nada funcionar. Acréscimos pontuais, sem mudar a estrutura.
+**Mudança de 27/10 (Marcos):** o personal tem 40 anos (congruente com o Viagra que ele mesmo poderia tomar e não toma); na copy ele é "o personal", "o cara", "aquele homem", nunca "garoto". Nos docs 08/08b/08c e no brief, onde está "garoto" leia-se o personal de 40.
 **Decisões de 23/10 aplicadas:** 82 contra 29, o fogo dela alto; o teste de 10 segundos na ligação; "eu quero o meu pau de volta, de vez"; Viagra e TRT como nas base + $20 mil em ondas de choque + gel de 10 minutos numa frase; o fundo do poço é o garoto chegando na casa; "a Noor também tentou"; a pergunta dela na cama e a resposta do garoto (receita do tio, fazenda de bode, "bode não para"); sem reconquista. Nenhum frasco, pote ou preço. O Gupta não aparece.
 **Formato (26/10, ordem do Marcos; corrigido na v2.1):** duas cenas 1x1, exatamente como na VSL 1. Cena 1: o Hyman na casa do Al; o Al fala, o Hyman só abre ("Al. Você me ligou."), pergunta uma vez ("Desculpa, como?") e fecha ("Eu ainda não sei, Al."); o teste de 10 segundos é o Hyman perguntando pro Al na sala, o silêncio em cena, e o Hyman virando pra câmera ("responde pra você mesmo. Agora."); sem narração. Cena 2: o Hyman com a Noor, ela de costas ou desfocada, o Hyman presente e calado; ela fala. As narrações do Hyman ficam só na abertura (E0), na ponte entre as cenas e no fechamento (E8), como na Soda Horse. Picos de legenda e trilha nas notas do fim.
 
@@ -121,9 +122,9 @@ Porque não é que eu não tenha dado tudo, Mark. Eu era o marido presente. Aos 
 
 E no fim, uma vida inteira sendo chamado de Poderoso Chefão, eu tinha mais medo de tocar na minha própria mulher do que de qualquer homem que já enfrentei na vida.
 
-Foi aí que apareceu o garoto.
+Foi aí que apareceu o personal.
 
-O personal dela. Eu que pagava. Trinta anos. Sotaque do interior. Veio pra Los Angeles pra ser ator e pagava as contas treinando mulheres como a Noor. Três vezes por semana na minha casa, com o meu dinheiro. Sentava à minha mesa. Ria das minhas piadas. Bebia o meu vinho. Enquanto eu passava 3 meses num set, deixando a porta da frente escancarada pra ele.
+O personal dela. Eu que pagava. Quarenta anos. Sotaque do interior. Veio pra Los Angeles pra ser ator, não deu certo, e pagava as contas treinando mulheres como a Noor. Três vezes por semana na minha casa, com o meu dinheiro. Sentava à minha mesa. Ria das minhas piadas. Bebia o meu vinho. Enquanto eu passava 3 meses num set, deixando a porta da frente escancarada pra ele.
 
 E ela ria de um jeito que eu não via desde antes do bebê.
 
@@ -137,11 +138,11 @@ Eu assisti aquilo umas 20 vezes.
 
 **(tela branca, corte seco: "I WATCHED THAT THING ABOUT 20 TIMES")**
 
-**AL PACINO:** O garoto na minha bancada, mexendo alguma coisa numa caneca. E subindo pro meu quarto tranquilo, como se a casa fosse dele. Eu nem sabia o que era aquilo.
+**AL PACINO:** O cara na minha bancada, mexendo alguma coisa numa caneca. E subindo pro meu quarto tranquilo, como se a casa fosse dele. Eu nem sabia o que era aquilo.
 
 Mas o pior não foi o que eu vi. O pior foi o que eu ouvi depois. Os gemidos dela descendo a escada. Os mesmos gemidos que eu não conseguia arrancar dela há um ano.
 
-**(CAM 03, P&B, REC, timecode: o garoto tira um pote escuro da mochila; uma colher de mel; uma pitada de um pó branco; água morna; mexe; olha o relógio; bebe; sobe.)**
+**(CAM 03, P&B, REC, timecode: o personal tira um pote escuro da mochila; uma colher de mel; uma pitada de um pó branco; água morna; mexe; olha o relógio; bebe; sobe.)**
 
 **AL PACINO:** Jesus Cristo. Para tudo. Olha isso. Olha a calma do filho da puta.
 
@@ -171,11 +172,11 @@ Meu Deus. Eu tenho 29 anos. Eu estava com tesão todo dia. E por um ano, o que f
 
 E eu tentei. Isso ninguém conta. Lingerie nova. Brinquedo. Uma viagem só nós dois. Fui num médico pra saber se o problema era eu. Ele riu. Disse: "o problema não é você."
 
-Aí o garoto apareceu.
+Aí o personal apareceu.
 
 Desde o dia que eu vi o volume do pau dele na calça, a minha cabeça começou a imaginar. E quando aconteceu, ele me preencheu por completo. Cada polegada. E me fez esguichar como eu não esguichava desde os 20. Duro feito pedra, grosso, as veias saltando, por horas, sem amolecer uma vez. Do jeito que o Al não fazia nem no começo.
 
-Eu voltei no dia seguinte. E no outro. Fiquei viciada no pau do garoto, dentro da casa que o Al pagou.
+Eu voltei no dia seguinte. E no outro. Fiquei viciada no pau daquele homem, dentro da casa que o Al pagou.
 
 Isso vai soar ofensivo, mas é a verdade. Não era o dinheiro. O Al tinha mais. Não era a fama. Ele é o Al Pacino, pelo amor de Deus. Era a única coisa que ele não conseguia mais me dar.
 
@@ -189,17 +190,17 @@ E eu cansei de fingir.
 
 **(o Hyman no plano do entrevistador, mão na testa)**
 
-**DR. MARK HYMAN (narração):** Ela pediu a guarda do Roman e foi embora com o garoto. E a separação despedaçou a família que o Al montou aos 83 anos. O menino no fogo cruzado, em semanas alternadas. Tudo que o Al construiu pra eles, em pedaços. Guarda esse detalhe, o tio, a fazenda de bode no Hill Country, porque naquele dia eu nem prestei atenção. Mas o garoto tinha crescido naquele curral e, como eu só entenderia muito depois, foi exatamente do mundo dos bodes que ele tirou o segredo que roubou a mulher do Al Pacino. Ela passou o primeiro verão com o garoto na fazenda do tio. Dormir num curral de bode, olhando agora, foi quase um deboche.
+**DR. MARK HYMAN (narração):** Ela pediu a guarda do Roman e foi embora com o personal. E a separação despedaçou a família que o Al montou aos 83 anos. O menino no fogo cruzado, em semanas alternadas. Tudo que o Al construiu pra eles, em pedaços. Guarda esse detalhe, o tio, a fazenda de bode no Hill Country, porque naquele dia eu nem prestei atenção. Mas o personal tinha crescido naquele curral e, como eu só entenderia muito depois, foi exatamente do mundo dos bodes que ele tirou o segredo que roubou a mulher do Al Pacino. Ela passou o primeiro verão com ele na fazenda do tio. Dormir num curral de bode, olhando agora, foi quase um deboche.
 
 **NOOR ALFALLAH:** Foi o bode que me deu o que você não conseguia mais me dar.
 
 **DR. MARK HYMAN (narração):** E essa é a parte mais cruel de todas. O Al passou 50 anos fazendo o homem que ninguém enfrentava, e foi o de fora, o personal que ele pagava, que enxergou o que ele nunca enxergou. Mas o que me deu calafrios na espinha foi uma frase que ela repetia sem parar. É como se alguma coisa dentro dele simplesmente tivesse parado de funcionar. Porque não foi o coração dela que esfriou, foi o pau dele que morreu por dentro.
 
-**DR. MARK HYMAN (narração):** A Noor nunca parou de querer o Al. O pau do Al é que simplesmente parou de conseguir. E teve uma palavra que ela usou que ficou martelando na minha cabeça. Cada polegada. Porque o que o garoto tinha não era só a dureza, era o tamanho. O jeito que ele conseguia preencher ela por completo lá dentro, pulsando ali enquanto ela tremia inteira. E foi aí que eu comecei a suspeitar de uma coisa que, se fosse verdade, mudava tudo.
+**DR. MARK HYMAN (narração):** A Noor nunca parou de querer o Al. O pau do Al é que simplesmente parou de conseguir. E teve uma palavra que ela usou que ficou martelando na minha cabeça. Cada polegada. Porque o que o personal tinha não era só a dureza, era o tamanho. O jeito que ele conseguia preencher ela por completo lá dentro, pulsando ali enquanto ela tremia inteira. E foi aí que eu comecei a suspeitar de uma coisa que, se fosse verdade, mudava tudo.
 
 **CLIPE:** O quê?
 
-**DR. MARK HYMAN (narração):** E se esse mesmo veneno silencioso não estivesse só derrubando o pau dos homens, mas encolhendo ele, roubando as polegadas que deveriam ser deles desde o começo? Guarda essa suspeita, porque daqui a pouco eu vou provar isso pra você, milímetro por milímetro. Eu saí daquela casa com 2 perguntas cravadas na cabeça. A primeira: o que é essa coisa que mata o tecido de um homem por dentro, em silêncio, sem que ele nem sinta, até travar a ereção e roubar o tamanho junto… E a segunda: o que o garoto tirou daqueles bodes que trouxe o dele de volta?
+**DR. MARK HYMAN (narração):** E se esse mesmo veneno silencioso não estivesse só derrubando o pau dos homens, mas encolhendo ele, roubando as polegadas que deveriam ser deles desde o começo? Guarda essa suspeita, porque daqui a pouco eu vou provar isso pra você, milímetro por milímetro. Eu saí daquela casa com 2 perguntas cravadas na cabeça. A primeira: o que é essa coisa que mata o tecido de um homem por dentro, em silêncio, sem que ele nem sinta, até travar a ereção e roubar o tamanho junto… E a segunda: o que aquele homem tirou daqueles bodes que trouxe o dele de volta?
 
 ---
 

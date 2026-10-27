@@ -38,7 +38,7 @@ Não teve uma única refeição em 40 anos que não te desse mais uma dose. O es
 
 E o seu pau não é a única coisa que esse veneno cobra.
 
-Ele cortou a fertilidade dos homens americanos pela metade. Em 40 anos. O seu avô fez oito filhos. O seu pai, três. E o garoto de hoje mal faz um. Está publicado na Human Reproduction Update: a contagem de espermatozoides dos homens ocidentais despencou mais de 50% desde 1973. E não parou de cair.
+Ele cortou a fertilidade dos homens americanos pela metade. Em 40 anos. O seu avô fez oito filhos. O seu pai, três. E o moleque de hoje mal faz um. Está publicado na Human Reproduction Update: a contagem de espermatozoides dos homens ocidentais despencou mais de 50% desde 1973. E não parou de cair.
 
 E em 2025, o próprio Secretário de Saúde dos Estados Unidos, Robert F. Kennedy Jr., subiu ao púlpito da Casa Branca e chamou isso de crise existencial. Apontando o dedo pros mesmos químicos que estão na sua comida.
 
@@ -88,7 +88,7 @@ Então deixa eu te perguntar uma coisa. Se é tudo mentira, por que tanto esfor�
 
 Mas ainda faltava uma peça.
 
-O pó da fazenda que o garoto mexia com mel na caneca, na cozinha do Al, antes de subir pra cama com a mulher dele.
+O pó da fazenda que o personal mexia com mel na caneca, na cozinha do Al, antes de subir pra cama com a mulher dele.
 
 A Noor tinha me dado o fio. O tio. A fazenda de bode. E eu passei esse fio pra única pessoa que eu conhecia que estava no Texas naquela semana e que sabe puxar um fio melhor do que qualquer médico vivo. Sanjay Gupta. O médico que você vê no jornal há 20 anos.
 
@@ -108,7 +108,7 @@ Um bode de 12 anos, o equivalente a um homem de 80, cobrindo como se tivesse 2.
 
 Pensa no tamanho disso.
 
-Era esse o mel na caneca do garoto. O garoto não era mais homem do que o Al. Ele só tinha o antídoto. E o Al não.
+Era esse o mel na caneca do personal. O cara não era mais homem do que o Al. Ele só tinha o antídoto. E o Al não.
 
 E aí a peça final se encaixou. Quando eu liguei os pontos, fiquei puto.
 
@@ -150,7 +150,7 @@ Porque é aí que a coisa fica feia.
 
 **Pesquisa aplicada neste bloco (auditoria de 26/10):** "cure ED permanently" → "de vez" (vem da E1 e paga no close); teste da ereção matinal (Berg) → o teste de 10 segundos (E1) e a tese; "history of Viagra" → "nasceu por acidente" (D5); cura permanente vs mensalidade → "assinatura mensal" (D5; "brought to you by Pfizer" fica com o Gupta no MUF); "até no mel de supermercado" (D2); Texas nº 1 em bodes, leilão de segunda, $54 mil (D6); fio "tudo é maior no Texas" fora da discovery por ordem do Marcos (26/10): fica só no Reconstruir; tamanho pelo gancho de comida ("não é remédio, é comida", D6). Reservado para a lead, por decisão (no máximo 20% da lead): o truque do cavalo, o frasco de $14, o Vick e a pimenta. Reservado para o MUF: a prateleira como tentativa fracassada ("horny goat weed vs Viagra"), o pote de óxido nítrico ("não é a sua artéria"), o honey pack do posto.
 
-**Crença do avatar aplicada (26/10):** "o seu avô fez oito filhos; o seu pai, três; e o garoto de hoje mal faz um" (D3, antes do RFK) e "nessa terra, vigor se conta em cria; o criador não mede o bode pela força, mede pelos filhos" (D6).
+**Crença do avatar aplicada (26/10):** "o seu avô fez oito filhos; o seu pai, três; e o moleque de hoje mal faz um" (D3, antes do RFK) e "nessa terra, vigor se conta em cria; o criador não mede o bode pela força, mede pelos filhos" (D6).
 
 **Trilha:** grave na abertura; investigação a partir de "73 estudos"; tensão em "Roundup"; silêncio nos clipes do RFK; conspiração do memo ao "assinatura mensal", com a mão na mesa em "filhos da puta" (sem trilha por 2 segundos); corta em "por que tanto esforço?"; esperança rural a partir de "a Noor tinha me dado o fio"; sobe em "pensa no tamanho disso"; segura em "o bode escapa. Por quê?"; corta na ponte.
 
