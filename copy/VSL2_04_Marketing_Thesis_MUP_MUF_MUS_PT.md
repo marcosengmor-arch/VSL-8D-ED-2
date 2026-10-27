@@ -143,7 +143,13 @@ Foram esses dois, o pó e o mel, que o personal preparava na caneca, na cozinha 
 
 **[Dr. Mark Hyman]**
 
-Só que o pó e o mel sozinhos não bastam. O bode não faz só uma coisa, ele faz 4. Ao mesmo tempo. Na ordem exata. O corpo dele faz isso sozinho. O seu não faz mais. Mas a preparação daquele cocho, adaptada pra um homem, faz por você. Quatro peças. E duas delas são as que você acabou de ver. Deixa eu te mostrar cada uma.
+Só que o pó e o mel sozinhos não bastam.
+
+No personal, bastaram. Ele tem 40 anos. A esponja dele ainda estava viva, só apagada. Dois ingredientes acordam uma esponja viva. Mas em você, com 30 anos de cimento, os dois chegam numa esponja vazia, cheia de furos, e sem defesa contra o veneno que entra amanhã de manhã.
+
+O bode não faz só duas coisas. Ele faz 4. Ao mesmo tempo. Na ordem exata. Duas vêm do cocho. As outras duas, o corpo dele faz sozinho: uma ele arranca da casca das árvores do pasto, a outra ele fabrica no próprio chifre, que não para de crescer. O seu corpo não faz mais nenhuma das duas.
+
+Mas a preparação daquele cocho, somada ao que o bode faz sozinho e adaptada pra um homem, faz por você. Quatro peças. Duas delas você acabou de ver. Deixa eu te mostrar cada uma.
 
 ## Solution Mechanism
 
@@ -215,7 +221,7 @@ E é aí que a maioria dos homens comete o erro fatal. Acham que acabou. Mas dis
 
 Isto aqui é a mesa do café americano médio. Pão. Aveia. Café. Cerveja. Mel de supermercado. Cada bandeirinha é a quantidade de glifosato que tem ali, tirada dos laudos públicos. O total é a sua dose diária. Ou seja, se você limpa a esponja e deixa ela exposta, em 6 meses o cimento novo já refez metade do dano.
 
-Por isso entra a quarta coisa. Proteger. Lembra da casca que o criador joga no cocho? É casca de pinheiro. E o laboratório foi atrás da versão mais estudada do mundo: o Pycnogenol, um extrato concentrado da casca do pinheiro marítimo francês. Ele ocupa o lugar na esponja que o glifosato ia ocupar, e vira um escudo.
+Por isso entra a quarta coisa. Proteger. Lembra da casca que o bode arranca das árvores do pasto? É casca de pinheiro. E o laboratório foi atrás da versão mais estudada do mundo: o Pycnogenol, um extrato concentrado da casca do pinheiro marítimo francês. Ele ocupa o lugar na esponja que o glifosato ia ocupar, e vira um escudo.
 
 O veneno do dia chega, e não encontra onde grudar. Não é teoria. A Johns Hopkins mediu esse efeito e viu 92% dos homens voltarem a ter ereções normais em três meses, com o índice de função erétil saltando de 15 pra 27. Veja o gráfico.
 
@@ -227,7 +233,7 @@ Sem esperar 40 minutos. Sem hora certa. Sem esse escudo, você está enxugando o
 
 Isto é um monitor de ereção noturna. Essa linha reta é você agora. Noites inteiras sem uma. E esses picos são o que vem a seguir. O seu corpo levantando sozinho no meio da noite, como aos 20.
 
-E é aqui que o truque do mel do bode se fecha. Dissolver, reativar, reconstruir, proteger. Quatro verbos. Na ordem exata. As três coisas do cocho e o chifre. Juntos, nas proporções certas, fazem o que nenhuma pílula, nenhuma bomba, nenhuma cirurgia do mundo consegue.
+E é aqui que o truque do mel do bode se fecha. Dissolver, reativar, reconstruir, proteger. Quatro verbos. Na ordem exata. As duas coisas do cocho, a casca e o chifre. Juntos, nas proporções certas, fazem o que nenhuma pílula, nenhuma bomba, nenhuma cirurgia do mundo consegue.
 
 E fazem rápido. 72 horas, a primeira ereção espontânea ao acordar. 5 dias, o seu pau mais cheio na primeira mijada da manhã. 14 dias, sem Viagra, sem esperar 40 minutos, sem hora certa. 21 dias, crescimento que dá pra medir com régua. 30 dias, a esponja de volta à vida, e as polegadas roubadas de volta.
 
