@@ -104,17 +104,15 @@ Porque existe um ponto sem volta: 70% da esponja virada em cimento. Passou disso
 
 Mas aqui vai a boa notícia. Enquanto o cimento está úmido, ele solta. Cimento seco há 10 anos vira pedra pra sempre. Mas o que ainda está secando dentro de você agora, esse pode ser dissolvido. A janela está aberta. Você só não sabe por quanto tempo.
 
-E por 30 anos, ninguém sabia como fazer esse cimento soltar. Até o Sanjay me ligar do Hill Country. "Mark, achei a fazenda do tio. É a única nos Estados Unidos. Você precisa ver um cocho." Eu peguei o primeiro voo.
+E por 30 anos, ninguém sabia como fazer esse cimento soltar. Até o Sanjay me ligar do Hill Country. "Mark, achei a fazenda do tio. É a única nos Estados Unidos. Você precisa ver um cocho." Eu pedi pra ele gravar tudo. E daqui pra frente, quem te conta é ele.
 
-**[Dr. Sanjay Gupta, na fazenda]**
+**[Dr. Sanjay Gupta, na fazenda, falando pra câmera]**
 
-Pensa comigo: esse bode come a ração que sai desse saco. O dia inteiro, encharcada do mesmo Roundup que você come. Muito mais veneno do que você já comeu na vida. Por essa lógica, ele deveria ser o animal mais broxa da Terra. Mas é exatamente o oposto.
+Pensa comigo. Esse bode aqui atrás de mim come a ração que sai desse saco. O dia inteiro, encharcada do mesmo Roundup que você come. Muito mais veneno do que você já comeu na vida. Por essa lógica, ele deveria ser o animal mais broxa da Terra. Mas é exatamente o oposto.
 
-**[Dr. Mark Hyman]**
+O bode espanhol cobre aos 18 com a mesma força com que cobria aos 4. Cem fêmeas a cada 45 dias. E o tamanho que a natureza previu.
 
-O bode espanhol cobre aos 18 com a mesma força com que cobria aos 4, cem fêmeas a cada 45 dias, e o tamanho que a natureza previu.
-
-E não acredite na minha palavra. Isto é um exame de aptidão reprodutiva, feito ali no curral, pelo veterinário que cuida desses bodes há 18 anos. Dezoito anos de bode. Libido: satisfatória. Apto a reproduzir. 18 anos de bode é um homem de 75. E aqui, os dois laudos lado a lado: o glifosato na ração dele, e o glifosato no seu pão e na sua aveia.
+E não acredite na minha palavra. Isto é um exame de aptidão reprodutiva, feito aqui no curral, pelo veterinário que cuida desses bodes há 18 anos. Dezoito anos de bode. Libido: satisfatória. Apto a reproduzir. 18 anos de bode é um homem de 75. E aqui, os dois laudos lado a lado: o glifosato na ração dele, e o glifosato no seu pão e na sua aveia.
 
 Ele come mais do que você. E não cimenta. Não é genética: ninguém nunca mexeu nessa raça, ela está nessa terra desde os espanhóis. Se existe um corpo que come o veneno todo dia e nunca endurece a esponja, esse corpo sabe dissolver o cimento. E a resposta não estava num laboratório. Estava com quem faz fortuna com esses bodes. Os criadores do Hill Country.
 
@@ -132,17 +130,15 @@ Por isso os donos dos bodes mais caros do Hill Country guardam um segredo a sete
 
 Não é boato meu. O veterinário de 18 anos confirmou. E a coisa mais suspeita?
 
-**[Dr. Sanjay Gupta, no cocho]**
+Olha isto. A primeira coisa que eu vi quando cheguei foi este balde escrito SODA do lado do cocho. Perguntei pro dono por que estava ali. Ele disse que é pro estômago do bode. Ele está meio certo. Bicarbonato no cocho está no rótulo de qualquer ração de gado do Texas. Esse é o primeiro ingrediente. E não é esse o segredo.
 
-A primeira coisa que eu vi foi isto: um balde escrito SODA do lado do cocho. Perguntei pro dono por que estava ali. Ele disse que é pro estômago do bode. Ele está meio certo.
+O segredo é o que vai junto, e esse não aparece em rótulo nenhum. Não está na ração oficial, nem nas instruções do veterinário. É este pote. Mel escuro, da colmeia que fica ali, dentro da cerca do curral, no pasto da erva que o bode come. A abelha não precisa sair da cerca. Três semanas por ano, o mel dessa colmeia é de uma erva só. O resto do ano, não vale nada. Esse é o segundo ingrediente. Passado de mão em mão, porque quem vive do pau de um bode não entrega o segredo pro vizinho.
+
+Foram esses dois, o pó e o mel, que o personal preparava na caneca, na cozinha do Al, antes de subir. O mesmo que mantém esse bode duro aos 18. E o mesmo que dissolve o cimento que a medicina jurou por 30 anos ser impossível.
 
 **[Dr. Mark Hyman]**
 
-Bicarbonato no cocho está no rótulo de qualquer ração de gado do Texas. Não é esse o segredo. O segredo é o que vai junto, e esse não aparece em rótulo nenhum. Não está na ração oficial, nem nas instruções do veterinário. É um pote de mel escuro, da colmeia que fica dentro da cerca do curral, no pasto da erva que o bode come. A abelha não precisa sair da cerca. Três semanas por ano, o mel dessa colmeia é de uma erva só. O resto do ano, não vale nada. É passado de mão em mão, porque quem vive do pau de um bode não entrega o segredo pro vizinho.
-
-Foi esse mel, com esse pó, que o personal preparava na caneca, na cozinha do Al, antes de subir. O mesmo que mantém o bode duro aos 18, e o mesmo que dissolve o cimento que a medicina jurou por 30 anos ser impossível.
-
-Só que o mel e o pó sozinhos não bastam. O bode não faz só uma coisa, ele faz 4. Ao mesmo tempo. Na ordem exata. Três vêm do cocho. A quarta ele fabrica no próprio chifre. O corpo dele faz isso sozinho. O seu não faz mais. Mas a preparação daquele cocho, adaptada pra um homem, faz por você. Quatro peças. E duas delas você já viu na caneca. Deixa eu te mostrar cada uma.
+Só que o pó e o mel sozinhos não bastam. O bode não faz só uma coisa, ele faz 4. Ao mesmo tempo. Na ordem exata. O corpo dele faz isso sozinho. O seu não faz mais. Mas a preparação daquele cocho, adaptada pra um homem, faz por você. Quatro peças. E duas delas são as que você acabou de ver. Deixa eu te mostrar cada uma.
 
 ## Solution Mechanism
 
@@ -245,7 +241,7 @@ Em dias. Não em meses. Eu sei como isso soa. Bom demais pra ser verdade. Por is
 | "lembra da ereção matinal… Quando foi a última vez?" | A pergunta que ele fez pro Al na sala; "o silêncio do Al foi a resposta dele. Qual foi a sua?" |
 | "O Mike tomou por três meses. Dor de cabeça" | O Al: um ano escondido, dobrou a dose, trocou a azul pela amarela, a terça-feira, as duas palavras |
 | "O exame do Mike mostrou isso" | + os 20 mil de ondas de choque ("bate no bloco") e o gel de 10 minutos; + "o problema não é você" (médico da Noor) |
-| "No rancho do Mike" | "Até o Sanjay me ligar do Hill Country: achei a fazenda do tio; a única nos EUA; vem ver um cocho" |
+| "No rancho do Mike" | "Até o Sanjay me ligar do Hill Country: achei a fazenda do tio; a única nos EUA; vem ver um cocho; daqui pra frente, quem te conta é ele" (27/10: o Gupta conduz a fazenda inteira pra câmera, do "pensa comigo" aos dois ingredientes; o Mark volta só no fecho das 4 peças) |
 | Touro 15 kg / 18 anos = 75 / Fort Worth | Bode espanhol / 18 anos = 75 / Hill Country; o Gupta diz o "pensa comigo" em pessoa; "ninguém nunca mexeu nessa raça" |
 | Touro de 20 a 30 milhões; "fatura mais de 20 milhões só por continuar duro"; cavalo no manequim | Bode rende 20 a 30 milhões por ano; 1.460 cabritos; "vigor se conta em cria"; o garanhão "do vídeo do cavalo" no manequim |
 | "o pó não aparece em rótulo nenhum" | Invertido: o pó está no rótulo (balde SODA, Gupta: "ele está meio certo"); o mel não está; a colmeia dentro da cerca em 4 frases |
