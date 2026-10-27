@@ -130,11 +130,15 @@ Por isso os donos dos bodes mais caros do Hill Country guardam um segredo a sete
 
 Não é boato meu. O veterinário de 18 anos confirmou. E a coisa mais suspeita?
 
-Olha isto. A primeira coisa que eu vi quando cheguei foi este balde escrito SODA do lado do cocho. Perguntei pro dono por que estava ali. Ele disse que é pro estômago do bode. Ele está meio certo. Bicarbonato no cocho está no rótulo de qualquer ração de gado do Texas. Esse é o primeiro ingrediente. E não é esse o segredo.
+Olha isto. A primeira coisa que eu vi quando cheguei foi este balde escrito Baking Soda do lado do cocho. Perguntei pro dono por que estava ali. Ele me disse, com essas palavras: "é pra limpar a sujeira de dentro do bode. O que gruda no bicho, o pó solta." Ele achava que era do estômago. Ele está meio certo. Não é o estômago. É a esponja. É o mesmo pó que, preparado do jeito dele, solta o que grudou por dentro e deixa o resto passar. Bicarbonato no cocho está no rótulo de qualquer ração de gado do Texas, e ninguém nunca perguntou por quê.
 
-O segredo é o que vai junto, e esse não aparece em rótulo nenhum. Não está na ração oficial, nem nas instruções do veterinário. É este pote. Mel escuro, da colmeia que fica ali, dentro da cerca do curral, no pasto da erva que o bode come. A abelha não precisa sair da cerca. Três semanas por ano, o mel dessa colmeia é de uma erva só. O resto do ano, não vale nada. Esse é o segundo ingrediente. Passado de mão em mão, porque quem vive do pau de um bode não entrega o segredo pro vizinho.
+Esse é o primeiro ingrediente. E não é esse o segredo.
 
-Foram esses dois, o pó e o mel, que o personal preparava na caneca, na cozinha do Al, antes de subir. O mesmo que mantém esse bode duro aos 18. E o mesmo que dissolve o cimento que a medicina jurou por 30 anos ser impossível.
+O segredo é o que vai junto, e esse não aparece em rótulo nenhum. Não está na ração oficial, nem nas instruções do veterinário. É este pote. Mel escuro, da colmeia que fica ali, dentro da cerca do curral, no pasto da erva do bode. A erva que fez esse bicho famoso: a que o pastor viu o rebanho comer há 2.000 anos e sair montando tudo que via pela frente. O composto dela tem nome. Icariina. É o que acorda a esponja do bode e não deixa ela cimentar.
+
+E aqui está a parte que ninguém sabe. A abelha não precisa sair da cerca. Três semanas por ano, enquanto a erva floresce, o mel dessa colmeia é de uma erva só, concentrado em icariina como nenhum outro mel do planeta. Sessenta por cento. O resto do ano, da mesma colmeia, não vale nada. Esse é o segundo ingrediente. Passado de mão em mão, porque quem vive do pau de um bode não entrega o segredo pro vizinho.
+
+Foram esses dois, o pó e o mel, que o personal preparava na caneca, na cozinha do Al, antes de subir. O pó que solta o que grudou. O mel que acorda o que dormiu. O mesmo que mantém esse bode duro aos 18. E o mesmo que dissolve o cimento que a medicina jurou por 30 anos ser impossível.
 
 **[Dr. Mark Hyman]**
 
