@@ -20,7 +20,7 @@ Data: 22/10/2026, nome atualizado em 23/10/2026 (decisão da empresa: IronPulseX
 | Verbo | Ingrediente | O que pedir ao fabricante |
 |---|---|---|
 | Dissolver (abre o bloco) | Bicarbonato de sódio tamponado | Se sobrevive na goma (estabilidade, sabor, textura) e em que dose. Se não, alternativa de tampão e como fica o ritual (colher de mel + pitada de bicarbonato em água morna continua em casa) |
-| Reativar (herói, 2º) | Mel padronizado em icariina (extrato de Epimedium incorporado numa base de mel) | O maior teor de icariina que ele entrega (a tese usa "60%"). Forma de absorção: base de mel, piperina ou lipossomal. Dose por goma. A goma precisa ter mel de verdade na base (sabor e cor) |
+| Reativar (herói, 2º) | Mel padronizado em icariina (extrato de Epimedium incorporado numa base de mel) | O maior teor de icariina que ele entrega (a tese usa "84%"). Forma de absorção: base de mel, piperina ou lipossomal. Dose por goma. A goma precisa ter mel de verdade na base (sabor e cor) |
 | Reconstruir | Colágeno hidrolisado do núcleo do chifre de bode (tipo III) | Viabilidade e fornecedor (o chifre do bode cresce a vida inteira; a copy diz "núcleo do chifre do bode reprodutor, processado num único lugar no Hill Country"). Se não existir fornecedor, colágeno hidrolisado tipo III de origem declarável e o que pode ir no rótulo. Vitamina C como cofator, se couber |
 | Proteger | Extrato de casca de pinheiro marítimo francês | Pycnogenol se houver licença (permite citar o nome e o 92% de Stanislavov 2003); senão, extrato genérico padronizado em procianidinas |
 
