@@ -135,9 +135,7 @@ Olha isto. A primeira coisa que eu vi quando cheguei foi este balde escrito Baki
 
 Esse é o primeiro ingrediente. Mas ainda faltava um segundo para completar o segredo, e esse não aparece em rótulo nenhum.
 
-Não está na ração oficial, nem nas instruções do veterinário. É este pote. Mel escuro, da colmeia que fica ali, dentro da cerca do curral, no pasto da erva do bode. O composto dentro dela tem nome: Icariina. É esse composto que acorda a esponja do bode e não deixa ela cimentar.
-
-Mas a erva crua não serve. O bode não come ela. Nem você. Crua, a icariina vem presa numa fibra que nenhum estômago quebra, nem os quatro do bode. Quem faz esse trabalho é a abelha. Ela pega o néctar, deixa pra trás o que não presta e entrega o composto limpo, dentro do mel. É a única forma certa de comer essa erva. Sempre foi.
+Não está na ração oficial, nem nas instruções do veterinário. É este pote. Mel escuro, da colmeia que fica ali, dentro da cerca do curral, no pasto da erva do bode. O composto dentro dela tem nome: Icariina. É esse composto que acorda a esponja do bode e não deixa ela cimentar. Só que a erva crua não serve. Nem pro bode, nem pra você: o composto vem preso numa fibra que estômago nenhum quebra. Quem tira ele de lá é a abelha. Ela entrega limpo, no mel. É a única forma certa de comer essa erva.
 
 Três semanas por ano, enquanto a erva floresce, o mel dessa colmeia vem apenas dela, concentrado em icariina como nenhum outro mel do planeta. 84% de concentração. Esse é o segundo ingrediente. Passado de mão em mão, porque quem vive do pau de um bode não entrega o segredo pro vizinho.
 
