@@ -348,6 +348,10 @@ Regra herdada do briefing de edição: 4 a 5 provas por ponto (documento, númer
 16. **Confissões com conteúdo real:** Hyman (comida como remédio) e Gupta (2013, "brought to you by Pfizer"), com callback no "por isso nada funcionou".
 17. **A sofisticação do bicarbonato dita uma vez com cerimônia** ("sozinha, 10% chega; com ele, 100%") no Dissolver, e repetida só na oferta e na desqualificação da prateleira.
 
+## A erva e a abelha (decisão de 27/10/2026)
+
+- A erva do bode **não é comestível crua**, nem pro bode, nem pro homem: a icariina vem presa numa fibra que nenhum estômago quebra (nem os quatro do bode). **A abelha é quem limpa:** pega o néctar, deixa o que não presta e entrega o composto limpo no mel. **O mel é a única forma certa de comer a erva.** Consequências na copy: o frasco de prateleira é "a erva crua, seca e moída" (talo e folha, 5 a 10%, composto preso na fibra); o mel da colmeia dentro da cerca é o composto limpo a 84%; a lead e a desqualificação da prateleira podem usar "você comprou a erva do jeito errado".
+
 ## O rival (decisão de 27/10/2026)
 
 - O personal da Noor, pago pelo Al, **40 anos** (não 30): congruente com o Viagra (um homem de 40 também poderia precisar, e não precisa), e mais humilhante para o avatar de 50+ do que um moleque. Na copy ele é "o personal", "o cara", "aquele homem"; nunca "garoto". Onde os docs 02, 08, 08b e 08c dizem "garoto", leia-se o personal de 40.

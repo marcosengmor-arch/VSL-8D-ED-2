@@ -137,6 +137,8 @@ Esse é o primeiro ingrediente. Mas ainda faltava um segundo para completar o se
 
 Não está na ração oficial, nem nas instruções do veterinário. É este pote. Mel escuro, da colmeia que fica ali, dentro da cerca do curral, no pasto da erva do bode. O composto dentro dela tem nome: Icariina. É esse composto que acorda a esponja do bode e não deixa ela cimentar.
 
+Mas a erva crua não serve. O bode não come ela. Nem você. Crua, a icariina vem presa numa fibra que nenhum estômago quebra, nem os quatro do bode. Quem faz esse trabalho é a abelha. Ela pega o néctar, deixa pra trás o que não presta e entrega o composto limpo, dentro do mel. É a única forma certa de comer essa erva. Sempre foi.
+
 Três semanas por ano, enquanto a erva floresce, o mel dessa colmeia vem apenas dela, concentrado em icariina como nenhum outro mel do planeta. 84% de concentração. Esse é o segundo ingrediente. Passado de mão em mão, porque quem vive do pau de um bode não entrega o segredo pro vizinho.
 
 Foram esses dois, o pó e o mel, que o personal preparava na caneca, na cozinha do Al, antes de subir. O pó que solta o que grudou. O mel que acorda o que dormiu. O mesmo que mantém esse bode duro aos 18. E o mesmo que dissolve o cimento que a medicina jurou por 30 anos ser impossível.
@@ -171,9 +173,9 @@ E um bônus que os criadores conhecem: esse mesmo pó segura o bode durante a mo
 
 Mas dissolver é só o primeiro passo. Uma esponja limpa ainda é uma esponja apagada. Durante aqueles anos de cimento, os receptores de testosterona dentro dela ficaram mudos. Não morreram. Silenciaram, porque pararam de ser usados. E esponja apagada não incha, e não absorve o que você der pra ela.
 
-Por isso a segunda coisa: reativar. E quem faz isso é o que estava no pote. O mel. Não é o mel. É o que está dentro dele: um composto chamado icariina, o mesmo que o frasco com o bode no rótulo promete e não entrega. Porque o frasco é talo seco, a 5, 10%. O ácido do seu estômago destrói antes de chegar no sangue, e a única coisa que cresce é o lucro do laboratório. Não foi você. Foi o talo errado.
+Por isso a segunda coisa: reativar. E quem faz isso é o que estava no pote. O mel. Não é o mel. É o que está dentro dele: um composto chamado icariina, o mesmo que o frasco com o bode no rótulo promete e não entrega. Porque o frasco é a erva crua, seca e moída. Talo e folha, a 5, 10%, com o composto preso na fibra que o seu estômago não quebra. O ácido destrói o resto antes de chegar no sangue, e a única coisa que cresce é o lucro do laboratório. Não foi você. Foi a erva do jeito errado. A abelha é a única que sabe tirar o composto dali.
 
-O mel da colmeia dentro da cerca chega a 84%. É o único mel do mundo rico nesse composto. O Manuka é o mel de uma flor. Este é o mel de um bode. E ele não injeta testosterona. Não é TRT. Não sobrecarrega o fígado. Não vira estrogênio.
+E ela entrega no mel da colmeia dentro da cerca, a 84%. É o único mel do mundo rico nesse composto. O Manuka é o mel de uma flor. Este é o mel de um bode. E ele não injeta testosterona. Não é TRT. Não sobrecarrega o fígado. Não vira estrogênio.
 
 Ele destrava os receptores que o seu corpo tinha desistido de usar. A TRT aperta o interruptor com o fio cortado. O mel emenda o fio. E com o pó segurando o ácido, ele chega inteiro. E quando os receptores acordam, não é só o seu pau que acorda. É o homem inteiro.
 

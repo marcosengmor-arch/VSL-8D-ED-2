@@ -46,6 +46,7 @@ Pesquisa, decisão de oferta, copy, tradução e briefing de edição da segunda
 | 19/10/2026 | Repositório criado; estrutura e base herdada da VSL 1 | README |
 | 20/10/2026 | Análise das 3 VSLs base no padrão da planilha "Análise das VSL's Escaladas ED (EUA)" e do doc "Padronização de Análise da VSL" | 01a |
 | 21/10/2026 | Mercado lido (Trends, YouTube, prateleira, spy tool): não fazer 4ª VSL de cavalo; inviabilizar a prateleira pelo nome; mel é o maior cluster, cavalo o que mais acelera | 01 |
+| 27/10/2026 | A erva do bode não é comestível crua (nem bode, nem homem); a abelha limpa e entrega o composto no mel; o mel é a única forma certa; o frasco de prateleira = a erva crua moída | tese, 05, 08c |
 | 27/10/2026 | Icariina do mel: 84% (número do Marcos na tese; substitui 60% em todos os docs); frasco de prateleira continua 5 a 10% | tese, 05, 05b, 08, 08b, 08c |
 | 27/10/2026 | O rival é o personal da Noor, pago pelo Al, 40 anos; "o personal" / "o cara", nunca "garoto" (copy ajustada; docs anteriores: ler "garoto" como o personal de 40) | 05, copy |
 | 26/10/2026 | Close: o filho novo paga o teste de DNA ("dessa vez eu não precisei de teste"); nunca insinuar dúvida sobre o Roman (criança real) | 05, 08b, copy |
