@@ -161,7 +161,7 @@ Porque bicarbonato puro não faz nada. Uma colher num copo de água, e tudo que 
 
 Por isso o criador nunca deu o pó sozinho pro bode. Ele preparava no cocho, na proporção certa, junto com o mel. E preparado assim, o bicarbonato faz o que nenhum remédio do mundo faz. Segura o ácido do seu estômago pelo tempo exato que o resto precisa pra passar inteiro. Sozinho, 10% chega. Com o pó, 100%.
 
-E tem o segundo trabalho. A placa tóxica é um depósito duro e ácido alojado na sua esponja. O bicarbonato, na forma certa, é a única coisa que quebra isso. Ele solta a placa em pedaços pequenos o bastante pra sair na sua urina.
+E tem o segundo trabalho. Lembra da frase do criador? "O que gruda no bicho, o pó solta." Ele estava falando disto. A placa tóxica é um depósito duro e ácido alojado na sua esponja. O bicarbonato, na forma certa, é a única coisa que quebra isso. Ele solta a placa em pedaços pequenos o bastante pra sair na sua urina.
 
 Olha isso acontecendo. É o que começa dentro de você na primeira semana, com a prova na sua própria mão. Nos primeiros dias, a sua urina sai mais escura. Não é doença. É a placa saindo. Você vai literalmente mijar pra fora o cimento que travou o seu pau por 30 anos.
 
