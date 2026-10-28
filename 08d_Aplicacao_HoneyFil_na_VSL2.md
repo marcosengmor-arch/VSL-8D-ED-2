@@ -32,3 +32,10 @@
 **Build-up** (`copy/VSL2_05`): "Mark, eu não quero outra promessa. Eu quero o meu pau de volta. E quero agora."; "Dia 1, nada. Dia 2, nada; ele me ligou pra dizer que aquilo era balela. Dia 4..."; "nunca tinha sido fodida daquele jeito na vida. Nem pelos de 30."; "Alguns por mais de uma hora, literalmente quebrando a cama. E no 7º dia, quem me ligava eram as esposas. Pedindo misericórdia."; a ligação gravada agora é o laboratório dos 47 milhões da discovery, com "só de pílula já são 19; com o resto passa de 40".
 
 **Blocos 1 a 3** (versão oficial do Marcos): 13 sugestões com âncora e frase, no fim de `copy/VSL2_Blocos_1-3_FINAL_PT_Marcos.md`, sem alterar o texto.
+
+
+## Terceira rodada (28/10): discovery BLACK e tese
+
+**Discovery:** proposta inteira em `copy/VSL2_03_Discovery_BLACK_proposta.md` (12 pontos em negrito), sem alterar o texto oficial.
+
+**Tese** (aplicado direto, além das duas rodadas anteriores): "Agora imagina a cena. Ela molhada, esperando. E você com um bloco de cimento na mão." (MUP); "Castrado pelo café da manhã." (MUP); "Na mesma cama, em planetas diferentes." (cronograma do MUF); "E a parte mais nojenta: o frasco com o bode no rótulo sabe disso, e vende do mesmo jeito." (Reativar); "Não se compra. Não se fabrica. Só sai de lá." (chifre, Reconstruir). A tese já carregava a densidade da HoneyFil nos pontos principais (Viagra na marra, maquiagem de pau, fim da DE, menopausa, amigas da filha, rei na cama, demo de bancada, feromônio do bode, "nem meia ereção", "rugindo", "blindada", "como se a impotência nunca tivesse existido"), por isso esta rodada é curta.

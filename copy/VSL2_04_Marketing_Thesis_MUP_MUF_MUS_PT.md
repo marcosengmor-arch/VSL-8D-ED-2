@@ -36,7 +36,7 @@ E cimento, você sabe o que ele faz? Endurece.
 
 Ele entra pelo bife. Pelo copo d'água. Pelo pão. Pela cerveja de sexta. Até pelo mel de supermercado. E o ataque é silencioso. Não dói. Não inflama. Não dá sintoma. Colágeno não tem nervo: você não sente nada enquanto tá acontecendo. Pode estar acontecendo agora. Cada minuto deste vídeo é mais um pouco de glifosato grudando na esponja do seu pau.
 
-Esponja virando cimento. E cimento não enche. Cimento não endurece. Cimento não bombeia sangue. Cimento não fode. Nem meia ereção. Nada. Cimento só fica ali, morto, no meio do seu pau, enquanto você vai procurar a culpa em outro lugar. No estresse. Na idade. Nela. Ela te quer. O seu pau é que não consegue mais.
+Esponja virando cimento. E cimento não enche. Cimento não endurece. Cimento não bombeia sangue. Cimento não fode. Nem meia ereção. Nada. Cimento só fica ali, morto, no meio do seu pau, enquanto você vai procurar a culpa em outro lugar. No estresse. Na idade. Nela. Ela te quer. O seu pau é que não consegue mais. Agora imagina a cena. Ela molhada, esperando. E você com um bloco de cimento na mão.
 
 E não é coincidência que, desde que esse veneno entrou de vez na comida americana, a disfunção erétil em homens com menos de 40 mais do que dobrou. Não é a juventude de hoje, é o cimento endurecendo cada vez mais cedo.
 
@@ -46,7 +46,7 @@ Uma esponja solta e livre cresce até 7 polegadas. O tamanho que a sua foi feita
 
 Um estudo de Stanford provou que mais de 90% do tamanho final do seu pênis já está determinado antes dos 21. Depois, ele trava. E lembra o que o Secretário de Saúde admitiu? Que esse veneno vem atrofiando os meninos desde a infância?
 
-Enquanto o seu pênis deveria estar crescendo, o cimento já secava em volta dele. Ele não te encolheu aos 40. Ele te travou aos 15. Você foi castrado antes de virar homem, e passou a vida achando que era genética. O seu avô fez oito filhos com o que a natureza deu a ele. Você passou a vida achando que o seu era assim.
+Enquanto o seu pênis deveria estar crescendo, o cimento já secava em volta dele. Ele não te encolheu aos 40. Ele te travou aos 15. Você foi castrado antes de virar homem. Castrado pelo café da manhã. E passou a vida achando que era genética. O seu avô fez oito filhos com o que a natureza deu a ele. Você passou a vida achando que o seu era assim.
 
 E agora vem a parte mais cruel. Um estudo com mais de 1.000 mulheres americanas mediu uma coisa que nenhum homem quer ouvir.
 
@@ -102,7 +102,7 @@ Porque o cimento seca num cronograma.
 
 Nos primeiros anos, você culpa o cansaço. Uma noite falha, na outra funciona. Por volta de 18 meses, você começa a inventar desculpas pra nem tentar. Viagem de trabalho. Prazo. Amanhã acordo cedo. Porque antes de tirar a roupa, você já sabe que vai entortar.
 
-Em 5 anos, falha metade das vezes, mesmo com o dobro da pílula azul. E em 10, acabou. O cimento endureceu por completo. Vocês dois dormem como amigos. E ela pensando em outro.
+Em 5 anos, falha metade das vezes, mesmo com o dobro da pílula azul. E em 10, acabou. O cimento endureceu por completo. Vocês dois dormem como amigos. Na mesma cama, em planetas diferentes. E ela pensando em outro.
 
 Porque existe um ponto sem volta: 70% da esponja virada em cimento. Passou disso, nem o que eu vou te mostrar traz de volta. O homem daquele exame estava em 60, a um passo.
 
@@ -182,7 +182,7 @@ E um bônus que os criadores conhecem: esse mesmo pó segura o bode durante a mo
 
 Mas dissolver é só o primeiro passo. Uma esponja limpa ainda é uma esponja apagada. Durante aqueles anos de cimento, os receptores de testosterona dentro dela ficaram mudos. Não morreram. Silenciaram, porque pararam de ser usados. E esponja apagada não incha, e não absorve o que você der pra ela.
 
-Por isso a segunda coisa: reativar. E quem faz isso é o que estava no pote. O mel. Não é o mel. É o que está dentro dele: um composto chamado icariina, o mesmo que o frasco com o bode no rótulo promete e não entrega. Porque o frasco é a erva crua, seca e moída. Talo e folha, a 5, 10%, com o composto preso na fibra que o seu estômago não quebra. O ácido destrói o resto antes de chegar no sangue, e a única coisa que cresce é o lucro do laboratório. Não foi você. Foi a erva do jeito errado. A abelha é a única que sabe tirar o composto dali.
+Por isso a segunda coisa: reativar. E quem faz isso é o que estava no pote. O mel. Não é o mel. É o que está dentro dele: um composto chamado icariina, o mesmo que o frasco com o bode no rótulo promete e não entrega. Porque o frasco é a erva crua, seca e moída. Talo e folha, a 5, 10%, com o composto preso na fibra que o seu estômago não quebra. O ácido destrói o resto antes de chegar no sangue, e a única coisa que cresce é o lucro do laboratório. Não foi você. Foi a erva do jeito errado. E a parte mais nojenta: o frasco com o bode no rótulo sabe disso, e vende do mesmo jeito. A abelha é a única que sabe tirar o composto dali.
 
 E ela entrega no mel da colmeia dentro da cerca, a 84%. Cada pote testado pra icariina antes de sair da fazenda. É o único mel do mundo rico nesse composto. O Manuka é o mel de uma flor. Este é o mel de um bode. E ele não injeta testosterona. Não é TRT. Não sobrecarrega o fígado. Não vira estrogênio.
 
@@ -222,7 +222,7 @@ Isso é o fim da disfunção erétil. É a confiança de volta, a que deixa a su
 
 E idade não importa. O voluntário 22 do piloto do Hill Country tinha 62 anos. Saiu de 5,63 polegadas pra 8,46 polegadas em 30 dias. Depois teve que comprar cueca de tecido mais grosso, porque o volume aparecia demais pela calça.
 
-Então é só comprar colágeno de bode? Não. O extrato que funciona vem do núcleo do chifre do bode espanhol, de um único centro de processamento no Hill Country, classificado como substância biológica não regulamentada, proibido de ser vendido cru. Ninguém vai jogar isso num liquidificador e vender num site chinês.
+Então é só comprar colágeno de bode? Não. O extrato que funciona vem do núcleo do chifre do bode espanhol, de um único centro de processamento no Hill Country, classificado como substância biológica não regulamentada, proibido de ser vendido cru. Ninguém vai jogar isso num liquidificador e vender num site chinês. Não se compra. Não se fabrica. Só sai de lá.
 
 Isso não é Photoshop e não é depoimento. É uma régua e uma ressonância. Mesmo tripé. Mesma fita no chão. Mesma régua. Mesma luz. Antes e depois. Três polegadas em 30 dias. Tudo é maior no Texas. Isso sempre foi verdade.
 
