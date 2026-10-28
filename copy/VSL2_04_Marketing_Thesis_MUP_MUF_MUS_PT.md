@@ -172,9 +172,7 @@ Por isso o criador nunca deu o pó sozinho pro bode. Ele preparava no cocho, na 
 
 E tem o segundo trabalho. Lembra da frase do criador? "O que gruda no bicho, o pó solta." Ele estava falando disto. A placa tóxica é um depósito duro e ácido alojado na sua esponja. O bicarbonato, na forma certa, é a única coisa que quebra isso. Ele solta a placa em pedaços pequenos o bastante pra sair na sua urina.
 
-E eu não acreditei de ouvir. Antes de dar isso pro Al, eu precisava ver na minha frente. Então pegamos uma amostra de placa tóxica de verdade, a mesma que está secando no seu pau agora. Está neste recipiente, o líquido escuro. E neste outro, o pó preparado na proporção do criador. Olha o que acontece quando um encontra o outro. A placa racha. Solta em pedaço. Em segundos. Guarda essa imagem, porque daqui a pouco você vai ver a mesma coisa de novo, com a quarta peça.
-
-E é o que começa dentro de você na primeira semana, com a prova na sua própria mão. Nos primeiros dias, a sua urina sai mais escura. Não é doença. É a placa saindo. Você vai literalmente mijar pra fora o cimento que travou o seu pau por 30 anos.
+Olha isso acontecendo. É o que começa dentro de você na primeira semana, com a prova na sua própria mão. Nos primeiros dias, a sua urina sai mais escura. Não é doença. É a placa saindo. Você vai literalmente mijar pra fora o cimento que travou o seu pau por 30 anos.
 
 E conforme a placa sai, o sangue inunda um lugar que passou anos seco. Rápido assim. Feito mangueira de incêndio num dia de fogo. O seu pau fica mais pesado na mão, mais quente, e quando enche, enche até a cabeça, veias saltando, duro feito pedra, como não ficava desde os 20.
 
@@ -232,7 +230,7 @@ Isto aqui é a mesa do café americano médio. Pão. Aveia. Café. Cerveja. Mel 
 
 Por isso entra a quarta coisa. Proteger. Lembra da casca que o bode arranca das árvores do pasto? É casca de pinheiro. E o laboratório foi atrás da versão mais estudada do mundo: o Pycnogenol, um extrato concentrado da casca do pinheiro marítimo francês. Ele ocupa o lugar na esponja que o glifosato ia ocupar, e vira um escudo. A esponja fica praticamente blindada contra cimento novo.
 
-O veneno do dia chega, e não encontra onde grudar. Lembra da placa que rachou no recipiente? Olha ela tentando se formar de novo, agora com a casca de pinheiro na água. Na hora. Não gruda. Não é teoria. A Johns Hopkins mediu esse efeito e viu 92% dos homens voltarem a ter ereções normais em três meses, com o índice de função erétil saltando de 15 pra 27. Veja o gráfico.
+O veneno do dia chega, e não encontra onde grudar. Não é teoria. A Johns Hopkins mediu esse efeito e viu 92% dos homens voltarem a ter ereções normais em três meses, com o índice de função erétil saltando de 15 pra 27. Veja o gráfico.
 
 Mas o Pycnogenol faz mais do que te blindar. Ele dispara o óxido nítrico, o gatilho que enche o seu pau de sangue. Isto é uma tira de saliva que mede o óxido nítrico. Quanto mais escuro, mais óxido nítrico.
 
@@ -241,6 +239,8 @@ Veja neste paciente. Antes do Pycnogenol: rosa claro, praticamente nulo. 5 minut
 Sem esperar 40 minutos. Sem hora certa. Sem esse escudo, você está enxugando o chão com a torneira aberta. Com ele, cimento novo não se forma, e a esponja limpa continua limpa.
 
 Isto é um monitor de ereção noturna. Essa linha reta é você agora. Noites inteiras sem uma. E esses picos são o que vem a seguir. O seu corpo levantando sozinho no meio da noite, como aos 20.
+
+E eu não acreditei só de ouvir. Antes de dar isso pro Al, eu precisava ver na minha frente. Então pegamos uma amostra de placa tóxica de verdade, a mesma que está secando no seu pau agora. Está neste recipiente, o líquido escuro. E neste outro, as quatro peças preparadas na proporção do cocho: o pó, o mel, o chifre e a casca. Olha o que acontece quando um encontra o outro. A placa racha. Solta em pedaço. Em segundos. E agora olha o segundo teste: as mesmas toxinas tentando se depositar de novo, na água que já tem a casca de pinheiro. Na hora. Não gruda. Foi isso que o cimento de 30 anos virou na bancada. Depois desse teste, eu já estava convencido.
 
 E é aqui que o truque do mel do bode se fecha. Dissolver, reativar, reconstruir, proteger. Quatro verbos. Na ordem exata. Quatro peças, quatro etapas, uma reversão completa. As duas coisas do cocho, a casca e o chifre. Juntos, nas proporções certas, fazem o que nenhuma pílula, nenhuma bomba, nenhuma cirurgia do mundo consegue.
 
