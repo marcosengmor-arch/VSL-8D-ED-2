@@ -1,0 +1,650 @@
+HONEYFIL MALE 26/10 VSL — Transcrição EN + Tradução PT-BR + Prints
+
+Fonte: HONEYFIL MALE 26/10 (.mp4, 52:12, 404x720 vertical, 278 MB; recebida via Google Drive em 28/10/2026). Transcrição: AssemblyAI (speaker labels) a partir do áudio original. Tradução fiel: nomes, marcas, valores em dólares, polegadas e referências dos EUA mantidos exatamente como falados.
+
+Timing: cada mini-bloco traz o intervalo de tempo x → y em que aquela fala acontece no vídeo. Prints: 281 frames dos momentos mais importantes (lettering, provas, personagens, produto, oferta, bônus), nomeados bN-M_descricao_HH-MM-SS.jpg na pasta frames/. Marca d'água "CBS NEWS" aparece no canto inferior direito de praticamente todo o vídeo a partir de 5:41.
+
+Falantes (papéis atribuídos pelo conteúdo, a partir da diarização automática; "imagem/voz sintética" = figura pública reproduzida por IA/deepfake): ATRIZ ADULTA (clipe) · NARRADOR (voz em off) · ELON MUSK (imagem/voz sintética) · DR. MICHAEL CARTER (urologista) · HOMEM (depoimento) · CEO FARMACÊUTICO (chamada de vídeo) · DR. MEHMET OZ (imagem) · AMIGO DO ELON (depoimento) · DRA. ANNIKA ACKERMAN (uróloga) · MULHER/ESPOSA (depoimento) · PRODUTORAS DO BÔNUS (clipe) · DR. DAVID SAMADI · WILL SMITH (imagem/voz sintética)
+
+Correções de transcrição (ASR): nome do produto normalizado para 'HoneyFil' (ASR: Honeyphil/HoneyPhil/Honeyfill; o frasco diz HONEYFIL FOR MEN MALE PERFORMANCE); 'icarian/Icarin/Icaren' → 'icariin' (icariina); reticências (…) e frases cortadas indicam cortes de edição no áudio original. Conteúdo sexual explícito transcrito/traduzido como falado.
+
+# Estrutura da VSL (22 blocos)
+
+BLOCO 1 — LEAD / GANCHO: o ritual do mel, Rogan, "Pfizer tentou matar o Elon", Riley Reid e a promessa — 0:00 → 5:31
+
+BLOCO 2 — ELON ENTRA: recusa o dinheiro, a história (a esposa, o Viagra, as bombas, o armário) — 5:32 → 9:58
+
+BLOCO 3 — A INVESTIGAÇÃO: Viagra, o estudo da Nature (37.000 mortos), xenotoxinas, a placa que "não é colesterol" — 9:59 → 12:11
+
+BLOCO 4 — A DESCOBERTA: mel vermelho do Himalaia + 3 ingredientes, o mecanismo (Doppler, testosterona, o composto) — 12:11 → 16:42
+
+BLOCO 5 — O PRIMEIRO TESTE DO ELON: a noite, as veias, "algo enorme nas mãos" — 16:43 → 17:50
+
+BLOCO 6 — DR. MICHAEL CARTER: o mel vermelho, a icariina, os 3 compostos e os 120 pacientes — 17:50 → 20:15
+
+BLOCO 7 — DEPOIMENTOS DO GRUPO (John 72, James 74, Richard 53) + o "red honey challenge" — 20:15 → 21:55
+
+BLOCO 8 — A LIGAÇÃO DO CEO FARMACÊUTICO e a decisão de fazer sozinhos — 21:55 → 23:18
+
+BLOCO 9 — NEPAL: o mel que não se compra; o laboratório da Neuralink em Woodinville; nasce o HoneyFil — 23:19 → 25:00
+
+BLOCO 10 — INDÚSTRIA ADULTA + DR. OZ: o voluntário de 79 anos, "this works" — 25:00 → 27:23
+
+BLOCO 11 — DEPOIMENTOS: TRT, o amigo do Elon, 81 anos, "as pílulas nem funcionavam" — 27:23 → 28:37
+
+BLOCO 12 — RECAP DO MECANISMO + DRA. ANNIKA ACKERMAN + "100% SAFE" — 28:37 → 30:36
+
+BLOCO 13 — PREÇO: "nem eu nem o Elon ganhamos um centavo", Nepal, a esposa, a humilhação e a garantia de 60 dias — 30:36 → 33:30
+
+BLOCO 14 — OFERTA: subsídio da Neuralink, "o menor preço que já cobramos", os advogados da Pfizer — 33:30 → 34:44
+
+BLOCO 15 — ELON INTERROMPE: Nobel, os primeiros 20, o iate e a hostess — 34:45 → 36:36
+
+BLOCO 16 — BÔNUS 1 "The Lesbian Trick", o botão verde, o contador no canto da tela, checkout seguro — 36:37 → 39:12
+
+BLOCO 17 — DEPOIMENTO DO IATE + DR. DAVID SAMADI + 77% reivindicados + bônus 2 e 3 (posições, textos, "a sala") — 39:12 → 43:07
+
+BLOCO 18 — WILL SMITH / JADA + atriz + recap do Dr. Michael — 43:07 → 45:19
+
+BLOCO 19 — CENSURA: "enterrado", os hackers, "eles falharam desta vez" — 45:20 → 46:02
+
+BLOCO 20 — KINSEY 67%, as 2 escolhas, o botão de $294 e o CTA — 46:02 → 47:40
+
+BLOCO 21 — DEPOIMENTOS DAS ESPOSAS: "comprei escondido", "joguei o vibrador no lixo" — 47:40 → 49:15
+
+BLOCO 22 — FAQ COM O ELON + CTA FINAL — 49:15 → 52:04
+
+PARTE 2 — TRADUÇÃO PT-BR + PRINTS
+
+# BLOCO 1 — LEAD / GANCHO: o ritual do mel, Rogan, "Pfizer tentou matar o Elon", Riley Reid e a promessa [0:00 – 5:31]
+
+## 1.1 ⏱ 0:00 → 0:30
+📷 0:03 — Mulher loira e homem grisalho nus na cama, sorrindo pra câmera; lettering branco/amarelo "TODAY I HAD"  [b1-1_mulher-loira-e-homem-grisalho-nus-na-c_00-00-03.jpg]
+📷 0:14 — Casal nu numa banheira de mármore, homem segura pote de mel; lettering "IF YOUR PERFORMANCE"  [b1-1_casal-nu-numa-banheira-de-marmore_00-00-14.jpg]
+ATRIZ ADULTA (clipe): Ai, meu Deus. Hoje eu transei com um homem de 70 anos que tinha um pau de 8 polegadas, tudo porque ele fez o maldito truque do mel no chuveiro. Se o seu desempenho na cama não é mais o que era, é só pegar 1 colher de mel e 2 ingredientes secretos e deixar qualquer mulher viciada. A Fundação Elon Musk gastou bilhões de dólares pra descobrir a cura da disfunção erétil, e ele finalmente desenvolveu esse truque sujo do mel antes do banho. Então fica neste vídeo pra descobrir a receita.
+
+## 1.2 ⏱ 0:37 → 0:43
+📷 0:38 — Imagem de Joe Rogan no estúdio (logo do podcast ao fundo) + carro em chamas na rodovia; lettering preto "THEY TRIED TO KILL HIM FOR" / vermelho "SAVING MEN'S ERECTIONS"  [b1-2_imagem-de-joe-rogan-no-estudio-logo-do_00-00-38.jpg]
+NARRADOR (voz em off): Explodiram o carro do Elon na terça passada. O cara salvou o pau de milhares de homens e tentaram calar ele pra sempre.
+
+## 1.3 ⏱ 0:43 → 0:51
+📷 0:44 — Jovem morena na cama falando pra câmera (clipe estilo selfie), inserto de cena explícita no canto; palavra "I"  [b1-3_jovem-morena-na-cama-falando-pra-camer_00-00-44.jpg]
+ATRIZ ADULTA (clipe): O vídeo em que eu mostrei pra todo mundo o que diabos o Elon Musk faz no banheiro pra me foder mais forte que um ator pornô está bombando no TikTok. Parem de compartilhar.
+
+## 1.4 ⏱ 0:51 → 1:27
+📷 0:54 — Apresentador de telejornal + Elon Musk de smoking no tapete "Breakthrough Prize", logo da Pfizer; lettering vermelho "PFIZER TRIED TO MURDER ELON MUSK" / "FOR THIS SECRET"  [b1-4_apresentador-de-telejornal-elon-musk-d_00-00-54.jpg]
+📷 1:02 — Clipe explícito de atriz adulta (cozinha) + close do rosto em outra cena; lettering amarelo "FORMER"  [b1-4_clipe-explicito-de-atriz-adulta-cozinh_00-01-02.jpg]
+📷 1:12 — Homem de cueca azul derramando mel de um pote "local honey" sobre a virilha, cena caseira; lettering "RITUAL"  [b1-4_homem-de-cueca-azul-derramando-mel-de_00-01-12.jpg]
+📷 1:21 — Cena pornô explícita (mulher ruiva); lettering "MOST"  [b1-4_cena-porno-explicita-mulher-ruiva_00-01-21.jpg]
+NARRADOR (voz em off): Todo americano vai ouvir isso agora. Tentaram assassinar o Elon Musk por expor por que 40 milhões de homens acima de 50 estão ficando moles. Qualquer homem que não aguenta 5 minutos precisa ouvir essa história absurda. A ex-atriz de filmes adultos Riley Reid pode ser presa hoje, 24 horas depois de postar um vídeo que você vai ver no fim deste. Ela revelou na lata o ritual sujo de banheiro que todo ator pornô acima de 50 usa pra comer 4 mulheres numa noite sem amolecer nunca. E ela diz que é exatamente por causa desse truque sujo do chuveiro que os atores mais famosos do Pornhub ficam cada vez mais potentes, mesmo aos 50 ou 60 anos.
+
+## 1.5 ⏱ 1:27 → 1:46
+📷 1:31 — Cena pornô explícita (close de corpo, lingerie rosa); lettering "ALMOST"  [b1-5_cena-porno-explicita-close-de-corpo_00-01-31.jpg]
+📷 1:40 — Cena pornô explícita (mulher loira deitada, camisa azul); lettering "ACTOR"  [b1-5_cena-porno-explicita-mulher-loira-deit_00-01-40.jpg]
+ATRIZ ADULTA (clipe): A indústria pornô depende desse ritual do mel todo dia pra transformar homens em máquinas de sexo. É quase como respirar pra eles. Quase todo grande estúdio usa isso agora. Largaram o Viagra por completo. Sem risco pro coração, sem cena mole, sem ator perdendo a ereção no meio da gravação. Só paus grossos e cheios de veias prontos pra destruir quem estiver no set naquele dia.
+
+## 1.6 ⏱ 1:47 → 2:01
+📷 1:49 — Close borrado de mel escorrendo na mão/virilha; lettering verde "YOU APPLY DIRECTLY ON YOUR PENIS"  [b1-6_close-borrado-de-mel-escorrendo-na-mao_00-01-49.jpg]
+📷 2:01 — Fundo borrado roxo, lettering verde grande "DONE"  [b1-6_fundo-borrado-roxo_00-02-01.jpg]
+NARRADOR (voz em off): É uma mistura caseira superdiscreta que você aplica direto no seu pênis. Faça isso antes do banho hoje e você nunca mais vai encarar um médico. Misture em casa em 5 minutos. Esfregue por 13 segundos. Pronto.
+
+## 1.7 ⏱ 2:01 → 3:09
+📷 2:12 — Jovem morena na cama falando pra câmera (selfie), legenda branca "always pulled" / amarela "BEFORE A SCENE"  [b1-7_jovem-morena-na-cama-falando-pra-camer_00-02-12.jpg]
+📷 2:24 — Cena pornô explícita (casal, parede clara); lettering "MICK"  [b1-7_cena-porno-explicita-casal_00-02-24.jpg]
+📷 2:33 — Cena pornô explícita (quarto, mulher de cabelo roxo); lettering "COCKS"  [b1-7_cena-porno-explicita-quarto_00-02-33.jpg]
+📷 2:43 — Cena explícita escura; lettering "GETTING"  [b1-7_cena-explicita-escura_00-02-43.jpg]
+📷 2:53 — Rosto feminino borrado roxo; lettering branco "AGE,"  [b1-7_rosto-feminino-borrado-roxo_00-02-53.jpg]
+NARRADOR (voz em off): No segundo dia, você acorda com o pau tão duro que levanta o lençol. O que eu vou revelar é o ritual secreto que os atores pornô que dormem comigo sempre fizeram antes de uma cena. O motivo de os paus deles serem tão grossos que eu babo só tentando colocar na boca. Um truque de banheiro que explica como ícones da indústria adulta como Johnny Sins e Mick Blue ainda gozam 3 vezes por sessão depois dos 50. Nenhum deles depende de pílula, bomba ou cirurgia. O pau deles pulsa mais forte aos 60 do que o de qualquer namorado que eu tive aos 20. Passei a carreira inteira obcecada por uma coisa só: ser socada por homens que performam como animais e descobrir exatamente o que eles fazem pra isso acontecer. E acredite, não tem nada a ver com idade, genética ou injeção de testosterona. Faça isso e você vai foder a noite inteira, esticando ela tão fundo que ela morde o travesseiro, e até a vadia de 22 anos mais gostosa da sua cidade vai desistir e implorar pra você ir mais devagar antes de esguichar em você de novo.
+
+## 1.8 ⏱ 3:09 → 3:52
+📷 3:10 — Fundo borrado roxo; lettering branco "IF YOU ARE MARRIED..."  [b1-8_fundo-borrado-roxo_00-03-10.jpg]
+📷 3:20 — Jovem morena na cama falando pra câmera (mesmo clipe selfie); lettering "THE"  [b1-8_jovem-morena-na-cama-falando-pra-camer_00-03-20.jpg]
+📷 3:30 — Cena explícita com homem idoso de barba branca longa e mulher no sofá; lettering "50"  [b1-8_cena-explicita-com-homem-idoso-de-barb_00-03-30.jpg]
+📷 3:41 — Soldado de uniforme numa cabana de madeira derramando mel num pote de vidro, equipamento militar ao redor; lettering "US"  [b1-8_soldado-de-uniforme-numa-cabana-de-mad_00-03-41.jpg]
+NARRADOR (voz em off): Se você é casado, cuidado com as mulheres da academia, do escritório, as amigas da sua esposa, a MILF da casa ao lado, até a mãe divorciada deixando o filho na... No segundo em que elas sentem o seu cheiro, elas ficam selvagens e dão um jeito de te encurralar sozinho. Além dos atores pornô, esse truque já devolveu o pau a mais de 15.000 americanos acima de 50, e agora as esposas deles é que estão tirando folga do trabalho, andando esquisito, mandando mensagem pras amigas dizendo que alguma coisa estalou e trouxe o marido de volta aos 30. O Exército dos EUA também usa esse ritual há mais de 40 anos pra aumentar a testosterona dos soldados sem destruir o coração deles. Ereções fortes e instantâneas foram o efeito colateral de que ninguém reclamou.
+
+## 1.9 ⏱ 3:52 → 4:43
+📷 3:53 — Mãos sujas de soldados (uniforme verde) despejando pó branco e mel numa tigela de metal; lettering "230,000"  [b1-9_maos-sujas-de-soldados-uniforme-verde_00-03-53.jpg]
+📷 4:02 — Jovem morena na cama falando pra câmera (selfie), lettering "ELON MUSK"  [b1-9_jovem-morena-na-cama-falando-pra-camer_00-04-02.jpg]
+📷 4:14 — Imagem de Elon Musk de óculos escuros num iate com mulher loira de biquíni dourado; lettering "DECIDED"  [b1-9_imagem-de-elon-musk-de-oculos-escuros_00-04-14.jpg]
+📷 4:24 — Cybertruck em chamas à noite, agentes com jaqueta "FBI" e bombeiros; lettering "SAME"  [b1-9_cybertruck-em-chamas-a-noite_00-04-24.jpg]
+📷 4:36 — Imagem de Elon Musk de jaqueta de couro sentado falando, luz vermelha/dramática; lettering "IS"  [b1-9_imagem-de-elon-musk-de-jaqueta-de-cour_00-04-36.jpg]
+NARRADOR (voz em off): 230.000 veteranos selecionados passaram pelo protocolo entre 1982 e o ano passado, e nem um único incidente cardíaco foi registrado. Elon Musk passou 7 anos trancado dentro do laboratório privado da Neuralink desenvolvendo esse ritual do mel. Ele nunca planejou lançar desse jeito, mas depois de saber o que a Pfizer faria pra enterrar isso, ele decidiu vazar a gravação ele mesmo no X. As ações da Pfizer sangraram 3,2 bilhões de dólares em 48 horas. Na mesma semana, o carro do Elon explodiu na frente da propriedade dele em Austin. Ele sobreviveu. O motorista dele não. O FBI fechou o caso em 72 horas, chamando de falha elétrica. Foi aí que o Elon decidiu gravar um segundo vídeo de um local não revelado, indo muito além do que ele vazou da primeira vez. Vazado.
+
+## 1.10 ⏱ 4:43 → 5:31
+📷 4:47 — Cena pornô explícita (close de nádegas, filtro cinza); lettering "START"  [b1-10_cena-porno-explicita-close-de-nadegas_00-04-47.jpg]
+📷 4:57 — Jovem morena na cama falando pra câmera (selfie); lettering "NEVER"  [b1-10_jovem-morena-na-cama-falando-pra-camer_00-04-57.jpg]
+📷 5:07 — Cena de sexo oral explícita (mulher de cabelo cacheado, camisa azul); lettering "GAGGING"  [b1-10_cena-de-sexo-oral-explicita-mulher-de_00-05-07.jpg]
+📷 5:21 — Caixa de bicarbonato Arm & Hammer, colher com pó branco sobre pote de mel aberto, mesa de madeira; lettering "SHOWS"  [b1-10_caixa-de-bicarbonato-arm-hammer_00-05-21.jpg]
+📷 5:31 — Rosto feminino borrado; lettering verde "let's go!"  [b1-10_rosto-feminino-borrado_00-05-31.jpg]
+NARRADOR (voz em off): Agora você pode dizer adeus a um pau mole e morto. Começar a ficar duro feito pedra por horas, fazendo sua esposa gritar seu nome, revirar os olhos e esguichar 3 vezes numa única noite de tão fundo que você estava abrindo ela. Nunca mais ouvir "não se preocupa, é normal, a gente tenta outra hora". Em vez disso, toda noite: "por favor, me fode forte como da última vez". Engasgando, babando, abrindo aquele rabinho apertado com as duas mãos pra você gozar dentro. Se você quer isso, preste muita atenção, porque o que você vai ver é o vídeo que o Elon Musk gravou do local não revelado onde ele mostra exatamente como fazer esse ritual do mel antes do banho e expõe o plano da Pfizer de deixar 80% dos homens americanos dependentes de Viagra até 2029. Vamos lá.
+
+# BLOCO 2 — ELON ENTRA: recusa o dinheiro, a história (a esposa, o Viagra, as bombas, o armário) [5:32 – 9:58]
+
+## 2.1 ⏱ 5:32 → 6:18
+📷 5:41 — Imagem de Elon Musk de jaqueta de couro sentado numa poltrona falando; legenda branca "But my real obsession"; marca d'água "CBS NEWS"  [b2-1_imagem-de-elon-musk-de-jaqueta-de-cour_00-05-41.jpg]
+📷 5:52 — Cirurgião com headset de realidade aumentada diante de holograma de cérebro, braço robótico; legenda "you functional"; marca "CBS NEWS"  [b2-1_cirurgiao-com-headset-de-realidade-aum_00-05-52.jpg]
+📷 6:07 — Homem de camisa branca com a mão no peito (dor) + close de comprimidos azuis (Viagra); legenda "No dangerous pills"; marca "CBS NEWS"  [b2-1_homem-de-camisa-branca-com-a-mao-no-pe_00-06-07.jpg]
+📷 6:18 — Fundo escuro roxo, lettering vermelho "I REFUSED"; marca "CBS NEWS"  [b2-1_fundo-escuro-roxo_00-06-18.jpg]
+ELON MUSK (imagem/voz sintética): Eu não sei se você está assistindo isso numa apresentação misturada com clipes pornô ou numa versão limpa enquanto a gente luta contra a censura da Big Pharma. Você provavelmente me conhece por foguetes inteligentes e Teslas, mas minha verdadeira obsessão nos últimos anos tem sido a Neuralink, um dos laboratórios de biotecnologia mais avançados. Mais de 5 bilhões de dólares investidos pra entender como o corpo humano envia e recebe os sinais que te mantêm funcional e viril. E se você é um homem hétero, eu vou te mostrar a descoberta mais importante que a Neuralink já produziu. Uma solução natural caseira que reverte a disfunção erétil pela raiz. Permanentemente. Sem Viagra, sem Cialis, sem injeções, sem receita, sem pílulas perigosas que colocam seu coração em risco. Estou falando de um movimento simples que qualquer homem pode fazer hoje sem sair do banheiro. Semana passada, a Pfizer me ofereceu 18 bilhões de dólares pra eu abandonar esse projeto. Eu recusei.
+
+## 2.2 ⏱ 6:19 → 7:28
+📷 6:28 — Elon Musk de smoking no tapete vermelho "Breakthrough Prize", fotógrafos; legenda "The people"; marca "CBS NEWS"  [b2-2_elon-musk-de-smoking-no-tapete-vermelh_00-06-28.jpg]
+📷 6:40 — Cena explícita num sofá (sala com quadro); legenda "and I had the most beautiful"; marca "CBS NEWS"  [b2-2_cena-explicita-num-sofa-sala-com-quadr_00-06-40.jpg]
+📷 6:53 — Cena explícita com filtro vermelho/lingerie; legenda "For three decades,"; marca "CBS NEWS"  [b2-2_cena-explicita-com-filtro-vermelho-lin_00-06-53.jpg]
+📷 7:08 — Frame amarelo estourado (transição); legenda "And for the first"; marca "CBS NEWS"  [b2-2_frame-amarelo-estourado-transicao_00-07-08.jpg]
+📷 7:17 — Cena pornô explícita (mulher loira de costas); legenda "Everything"; marca "CBS NEWS"  [b2-2_cena-porno-explicita-mulher-loira-de-c_00-07-17.jpg]
+ELON MUSK (imagem/voz sintética): Nenhuma quantia de dinheiro muda o que eu vou fazer, porque eu vivi isso na pele. Durante anos, eu fui o homem que tinha tudo e não conseguia ficar duro pra satisfazer a única mulher que eu realmente amei. As pessoas que olham pra mim e só veem um bilionário republicano maluco, workaholic, viciado em engravidar modelos, não estão erradas. Eu sempre amei sexo. E nunca me segurei. Dinheiro nunca foi problema, e eu tive as mulheres jovens mais lindas do planeta na minha cama. Nunca usei camisinha na vida. Gozei dentro de cada uma delas. Se ela estava ali só por uma noite, ainda assim levava tudo que eu tinha. E 14 filhos espalhados pelo mundo são a prova disso. Por 3 décadas, essa foi a minha vida. Foder forte, gozar fundo, dormir bem e trabalhar. Meu pau nunca me deixou na mão, nem uma vez. Até a Sophia. Você provavelmente nunca ouviu falar dela, e ela queria assim. Ela odiava os holofotes. Ela me desejava porque eu era um homem, não o Elon Musk. E pela primeira vez na vida, eu não queria só sexo e voltar pro trabalho. Eu queria ela pro resto da minha vida. Envelhecer juntos, construir um lar de verdade, tudo que eu nunca quis com outras mulheres. E foi exatamente nesse momento que o meu corpo decidiu me trair. Na primeira vez que aconteceu, eu não acreditei. Mas ela só sorriu e disse que estava tudo bem, que a gente tentava de novo depois.
+
+## 2.3 ⏱ 7:28 → 8:34
+📷 7:35 — Elon Musk (jaqueta de couro, poltrona) falando; legenda "The next night,"; marca "CBS NEWS"  [b2-3_elon-musk-jaqueta-de-couro_00-07-35.jpg]
+📷 7:45 — Casal nu em preto e branco (cena explícita, tom triste); legenda "and now going flaccid"  [b2-3_casal-nu-em-preto-e-branco-cena-explic_00-07-45.jpg]
+📷 7:55 — Close de bomba peniana (pump) em uso; legenda "Pumps."  [b2-3_close-de-bomba-peniana-pump-em-uso_00-07-55.jpg]
+📷 8:28 — Elon Musk de roupão abraçando mulher morena de roupão branco (cena de casal, tom quente); legenda "my body would wake up."  [b2-3_elon-musk-de-roupao-abracando-mulher-m_00-08-28.jpg]
+ELON MUSK (imagem/voz sintética): Mas eu vi nos olhos dela. Aquela mistura de paciência e confusão. Isso é pior do que qualquer insulto que um homem pode ouvir. Na noite seguinte, a mesma coisa. E na outra noite, e na outra. Eu comecei a entrar em pânico. Como diabos eu inundei mulheres que mal conhecia por 30 anos seguidos e agora ficava mole em cima da única que realmente importava? Trouxe os melhores urologistas do mundo pra dentro da minha casa. Testei Viagra, Cialis, aquela porcaria do Vicks, bombas, injeções de testosterona. Cada nova humilhação falhando mais rápido que a anterior. Meu pau continuava morto. E por cima de tudo eu estava exausto, me arrastando pelas reuniões feito um zumbi. A Sophia começou a se afastar, devagar, em silêncio. Então, uma noite, ela simplesmente virou pro lado, apagou a luz e parou de tentar. A gente dormia na mesma cama e vivia em planetas diferentes. No meu desespero, comecei a buscar o que o dinheiro podia comprar quando o amor não conseguia. Eu dizia pra mim mesmo: talvez fosse ela. Talvez com alguém mais nova, mais faminta, menos familiar, meu corpo acordasse. Não acordou. Falhei com elas também, e depois de anos nos amando mais que tudo, ela foi embora.
+
+## 2.4 ⏱ 8:35 → 9:40
+📷 8:51 — Elon Musk sentado no sofá de uma sala ampla, mão na testa (desolado), em preto e branco; legenda "That was rock"  [b2-4_elon-musk-sentado-no-sofa-de-uma-sala_00-08-51.jpg]
+📷 9:00 — Elon Musk na poltrona falando; legenda "to remember"  [b2-4_elon-musk-na-poltrona-falando_00-09-00.jpg]
+📷 9:12 — Mão derramando mel de um pote num bowl numa bancada de cozinha (granito); legenda "spending less than three"  [b2-4_mao-derramando-mel-de-um-pote-num-bowl_00-09-12.jpg]
+📷 9:21 — Close explícito com filtro azul; legenda "with the best"  [b2-4_close-explicito-com-filtro-azul_00-09-21.jpg]
+📷 9:32 — Médico de jaleco olhando no microscópio, filtro laranja, crachá "Dr. Michael ... Urologist"; legenda "a urologist obsessed"  [b2-4_medico-de-jaleco-olhando-no-microscopi_00-09-32.jpg]
+ELON MUSK (imagem/voz sintética): Ela fez as malas na manhã seguinte enquanto eu sentava no chão do closet, vendo ela dobrar roupas que eu tinha comprado pra ela, sem conseguir dizer uma única palavra pra impedir. Perdi a única mulher que realmente me conheceu. Não por dinheiro, pela única coisa que todos os meus bilhões não conseguiam consertar. Aquilo foi o fundo do poço pra mim. Jurei pra mim mesmo naquela noite que, se existisse uma solução de verdade lá fora, eu ia encontrar, custasse o que custasse, não importava quem tentasse me impedir. E eu quero que você se lembre dessa promessa, porque nos próximos 2 minutos você vai ver exatamente como eu recuperei a Sophia, como ela implorou pra voltar pra mim, e como você pode eliminar a disfunção erétil de vez, gastando menos de 3 dólares no Walmart e sem sair de casa. Depois que perdi a Sophia, eu me afastei de tudo pra pensar. Como diabos é possível que o homem mais rico do mundo, com os melhores urologistas no bolso e os tratamentos mais caros que o dinheiro pode comprar, não consiga consertar algo tão simples quanto a própria ereção? Liguei pra todo especialista que eu já tinha conhecido pela Neuralink. Um deles era o Dr. Michael Carter, um urologista obcecado em resolver problemas de ereção, e o mesmo cara que os maiores estúdios de filmes adultos chamam quando precisam trazer um ator de volta da impotência.
+
+## 2.5 ⏱ 9:40 → 9:58
+📷 9:46 — Elon Musk e médico de scrubs pretos (Dr. Michael) sentados lado a lado conversando num consultório; legenda "He told me"  [b2-5_elon-musk-e-medico-de-scrubs-pretos-dr_00-09-46.jpg]
+📷 9:59 — Mão segurando cartela de comprimidos azuis; legenda "When you take Viagra,"  [b2-5_mao-segurando-cartela-de-comprimidos-a_00-09-59.jpg]
+ELON MUSK (imagem/voz sintética): Ele estava muito mais avançado no assunto do que qualquer outro que eu conhecia, e o Michael virou todo o meu entendimento de cabeça pra baixo. Ele me disse que a verdadeira causa da disfunção erétil não tem nada a ver com testosterona baixa, falta de óxido nítrico, idade, estresse ou ver pornô. Nada disso. Tudo mentira que inventaram pra te empurrar produtos inúteis. Pensa comigo.
+
+# BLOCO 3 — A INVESTIGAÇÃO: Viagra, o estudo da Nature (37.000 mortos), xenotoxinas, a placa que "não é colesterol" [9:59 – 12:11]
+
+## 3.1 ⏱ 9:59 → 11:02
+📷 10:11 — Animação 3D de vaso sanguíneo vermelho obstruído; legenda "Because the only way"  [b3-1_animacao-3d-de-vaso-sanguineo-vermelho_00-10-11.jpg]
+📷 10:22 — Elon Musk na poltrona gesticulando; legenda "But it solves jack shit."  [b3-1_elon-musk-na-poltrona-gesticulando_00-10-22.jpg]
+📷 10:33 — Cena explícita (close); legenda "they end up"  [b3-1_cena-explicita-close_00-10-33.jpg]
+📷 10:42 — Mão em P&B segurando um comprimido branco; legenda "Now imagine the scene."  [b3-1_mao-em-p-b-segurando-um-comprimido-bra_00-10-42.jpg]
+📷 10:51 — Capa da revista Nature (24 April 2023, vol. 640) com manchete "THE CONTINUOUS USE OF ERECTION DRUGS INCREASES THE RISK OF HEART ATTACK BY 17 TIMES / AND HAS ALREADY KILLED MORE THAN 37,000 AMERICANS...", comprimidos azuis e coração; legenda "A study in Nature"  [b3-1_capa-da-revista-nature-24-april-2023_00-10-51.jpg]
+ELON MUSK (imagem/voz sintética): Quando você toma Viagra, algum médico pergunta dos seus níveis hormonais? Alguém investiga a sua cabeça? Claro que não. A pílula só faz uma coisa. Ela força o seu pau a levantar na marra por alguns minutos. Porque o único jeito de ter uma ereção de verdade é com sangue, muito sangue entrando na sua haste. O Viagra só dilata as veias, empurra esse sangue pra dentro do seu pau, e ele sobe. Simples assim. Mas não resolve porra nenhuma. É só um empurrão artificial, uma maquiagem de pau que dura alguns minutos e te deixa pior do que antes. E a parte mais nojenta: muitos caras ficam tão dependentes dessa merda que acabam mais impotentes do que quando começaram. O corpo para de reagir sozinho e, sem perceber, o cara que queria mais potência acaba perdendo tudo. Agora imagina a cena. Você depende de uma pílula cara toda vez que quer foder, só pra descobrir depois que essa mesma pílula está destruindo o seu coração e te deixando ainda mais mole. Um estudo na Nature foi claro como o dia. O uso contínuo dessas drogas aumenta o risco de infarto em 17 vezes. É isso que estão te vendendo: veneno.
+
+## 3.2 ⏱ 11:02 → 12:11
+📷 11:03 — Mesma capa da Nature com texto do estudo abaixo (CDC / American Heart Association, 37,000 mortos); legenda "that killed over thirty"  [b3-2_mesma-capa-da-nature-com-texto-do-estu_00-11-03.jpg]
+📷 11:14 — Elon Musk na poltrona com filtro laranja; legenda "The answer is"  [b3-2_elon-musk-na-poltrona-com-filtro-laran_00-11-14.jpg]
+📷 11:26 — Animação de tecido esponjoso/vasos com filtro laranja; legenda "Your cock does"  [b3-2_animacao-de-tecido-esponjoso-vasos-com_00-11-26.jpg]
+📷 11:37 — Imagem de microscópio de um parasita/organismo e células; legenda "Over 98% of those plaques"  [b3-2_imagem-de-microscopio-de-um-parasita-o_00-11-37.jpg]
+📷 11:49 — Fundo roxo com silhueta de placa; lettering amarelo "NOT CHOLESTEROL"  [b3-2_fundo-roxo-com-silhueta-de-placa_00-11-49.jpg]
+📷 12:02 — Animação de pulmões/vasos com filtro laranja; legenda "is to clean"  [b3-2_animacao-de-pulmoes-vasos-com-filtro-l_00-12-02.jpg]
+ELON MUSK (imagem/voz sintética): O mesmo veneno que matou mais de 37.000 homens americanos de infarto e AVC só nos últimos 12 meses. Se o Viagra e todo esse lixo não funcionam de verdade, qual é a solução real? A resposta é simples. Direta, e ninguém tem coragem de dizer. Você precisa desobstruir as veias do seu pau. Com o tempo, placas tóxicas começam a se acumular nos vasos que alimentam a sua ereção. Seu pau não enche mais porque o sangue não consegue passar. Durante anos, os médicos juraram que o problema era colesterol. Mas os estudos mais recentes da Universidade Johns Hopkins mostraram a verdade nua. Mais de 98% dessas placas são causadas por um grupo específico de toxinas no sangue. Chamadas xenotoxinas, também conhecidas como toxinas carnívoras, porque elas continuam se alimentando do seu sangue feito um parasita. Não é colesterol. Quando o Viagra dilata as veias, essas placas dilatam junto, e o caminho continua bloqueado, mal melhorando alguma coisa. O único jeito de recuperar ereções de verdade, duras, naturais, espontâneas, é limpar essas veias, eliminar essas placas nojentas de xenotoxina e fazer o sangue fluir como quando você tinha 20 anos. E foi exatamente isso que o Michael e eu encontramos.
+
+# BLOCO 4 — A DESCOBERTA: mel vermelho do Himalaia + 3 ingredientes, o mecanismo (Doppler, testosterona, o composto) [12:11 – 16:42]
+
+## 4.1 ⏱ 12:11 → 13:20
+📷 12:12 — Mão de homem mexendo um bowl com mel/pó numa mesa de madeira, janela com vila e montanhas nevadas (Himalaia), chaleira, bandeiras de oração; legenda "We discovered"  [b4-1_mao-de-homem-mexendo-um-bowl-com-mel-p_00-12-12.jpg]
+📷 12:21 — Cena pornô explícita (mulher loira tatuada de costas); legenda "the steel erections"  [b4-1_cena-porno-explicita-mulher-loira-tatu_00-12-21.jpg]
+📷 12:33 — Close P&B de mãos na virilha; legenda "built up in"  [b4-1_close-p-b-de-maos-na-virilha_00-12-33.jpg]
+📷 12:48 — Dois cientistas de macacão branco e máscara em laboratório, tubos de ensaio com líquido vermelho; legenda "When the red honey is"  [b4-1_dois-cientistas-de-macacao-branco-e-ma_00-12-48.jpg]
+📷 12:58 — Frame estourado amarelo (transição); legenda "Over the years,"  [b4-1_frame-estourado-amarelo-transicao_00-12-58.jpg]
+📷 13:09 — Fundo laranja com lettering fantasma "AND WITHOUT FLOW"  [b4-1_fundo-laranja-com-lettering-fantasma-a_00-13-09.jpg]
+📷 13:19 — Elon Musk na poltrona gesticulando; legenda "What happens"  [b4-1_elon-musk-na-poltrona-gesticulando_00-13-19.jpg]
+ELON MUSK (imagem/voz sintética): Descobrimos uma combinação poderosa usando mel do Himalaia e mais 3 ingredientes simples que você encontra em qualquer lugar do planeta. Essa fórmula caseira está por trás das ereções de aço que salvaram milhares de casamentos. E a partir de agora, pode ser o que muda a sua história também. Essa combinação brutal consegue eliminar até 97% das placas de xenotoxina acumuladas nas veias penianas de qualquer homem, independentemente da idade. Dados científicos confirmados por pesquisadores da Johns Hopkins. Primeiro testamos o protocolo em mais de 1.200 homens pela Neuralink, muitos já acima de 70, e o resultado foi simplesmente chocante. Quando o mel vermelho é usado do jeito certo, junto com os ingredientes específicos que descobrimos, ele começa a limpar o sangue e a dissolver as placas de xenotoxina que sufocam os vasos que alimentam o seu pau. Ao longo dos anos, comida porcaria, estresse constante, uso de remédios e toxinas ambientais envenenam esses vasos por dentro. Eles inflamam, endurecem as paredes e formam placas bloqueadoras que entopem o fluxo. E sem fluxo, sem ereção. Nem meia ereção. Nada. O mel vermelho do Himalaia entra em ação caçando essas xenotoxinas e dissolvendo elas de forma natural e progressiva. O que acontece depois é simples.
+
+## 4.2 ⏱ 13:20 → 14:29
+📷 13:29 — Médico apontando para monitor com exame Doppler colorido, outro profissional anotando; legenda "In Doppler"  [b4-2_medico-apontando-para-monitor-com-exam_00-13-29.jpg]
+📷 13:41 — Close explícito de homem deitado (filtro azul); legenda "Your cock gets so"  [b4-2_close-explicito-de-homem-deitado-filtr_00-13-41.jpg]
+📷 13:54 — Fundo amarelo com lettering parcial "TESTOSTERONE" (gráfico de linha); legenda "And there is more."  [b4-2_fundo-amarelo-com-lettering-parcial-te_00-13-54.jpg]
+📷 14:04 — Elon Musk na poltrona, sério; legenda "But pay close attention."  [b4-2_elon-musk-na-poltrona_00-14-04.jpg]
+📷 14:17 — Cena explícita com filtro laranja; legenda "hardening your erection,"  [b4-2_cena-explicita-com-filtro-laranja_00-14-17.jpg]
+📷 14:29 — Cena explícita (saia xadrez azul); legenda "This is the end of"  [b4-2_cena-explicita-saia-xadrez-azul_00-14-29.jpg]
+ELON MUSK (imagem/voz sintética): Seu pau enche de novo feito uma mangueira de incêndio num dia de fogo. Ereções sólidas, duradouras, 100% naturais. Como se a impotência nunca tivesse existido. Em exames de ultrassom Doppler antes e depois do ritual, os médicos observaram até 430% de aumento no fluxo direto de sangue pro pau. E isso em questão de dias, não semanas ou meses, dias. Seu pau recebe tanta pressão de sangue que fica mais grosso, mais comprido, mais duro que uma barra de ferro. E cada nova ereção deixa ele ainda mais duro e maior. Então quanto mais sexo e quanto mais punheta, melhor, pra deixar seu pau do tamanho de um taco de beisebol. E tem mais. Esse ritual também dá um impulso natural na sua testosterona, aumentando os níveis em até 207%. Sem injeções, sem reposição, sem risco. Mas preste muita atenção. Bombar testosterona não adianta nada se as suas veias penianas estão entupidas feito cano velho. Quando essas veias estão limpas e o sangue flui livre, é aí que a testosterona entra com força total, acendendo a sua libido, endurecendo a sua ereção e te transformando num animal de verdade na cama. Você aguenta a noite inteira com ereções sólidas, pesadas, que parecem pedra. Qualquer homem, não importa a idade, pode se sentir um rei na cama.
+
+## 4.3 ⏱ 14:29 → 15:37
+📷 14:39 — Mulher loira de lingerie na cama (filtro laranja); legenda "It is what will make"  [b4-3_mulher-loira-de-lingerie-na-cama-filtr_00-14-39.jpg]
+📷 14:53 — Cientista de jaleco olhando no microscópio, luva azul (filtro laranja); legenda "So we pulled"  [b4-3_cientista-de-jaleco-olhando-no-microsc_00-14-53.jpg]
+📷 15:04 — Animação 3D de vasos com placas escuras e hemácias; legenda "releases into your body"  [b4-3_animacao-3d-de-vasos-com-placas-escura_00-15-04.jpg]
+📷 15:15 — Elon Musk na poltrona com filtro laranja; legenda "The same carnivore toxins"  [b4-3_elon-musk-na-poltrona-com-filtro-laran_00-15-15.jpg]
+📷 15:27 — Corpo humano 3D vermelho translúcido (anatomia); legenda "After this"  [b4-3_corpo-humano-3d-vermelho-translucido-a_00-15-27.jpg]
+ELON MUSK (imagem/voz sintética): Esse é o fim da disfunção erétil. O renascimento da confiança que deixa sua parceira molhada só de te olhar de cueca, mesmo que ela já tenha passado pela menopausa. É o que vai fazer as amigas da sua filha não conseguirem tirar os olhos do volume gigante marcando no seu shorts. Mas mesmo depois de ver os testes na Neuralink, antes de colocar uma única gota disso no meu próprio corpo, eu ainda precisava ver funcionando na minha frente. Então pegamos uma amostra viva da exata placa tóxica que sufoca o fluxo de sangue de milhões de homens americanos agora mesmo. Dentro deste recipiente com este líquido transparente, temos o composto puro que o mel vermelho do Himalaia libera no seu corpo pra dissolver as placas tóxicas que bloqueiam os vasos sanguíneos do seu pau. Chama-se icariina. E aqui neste recipiente, temos um líquido escuro que representa as xenotoxinas. As mesmas toxinas carnívoras obstruindo os seus vasos agora, enquanto você assiste. Veja o que acontece quando a icariina entra em contato com essas toxinas. Eliminadas na hora. E não só isso: depois que esse composto entra no seu corpo, seus vasos ficam praticamente blindados contra novas obstruções. Veja o que acontece quando as mesmas xenotoxinas tentam se depositar de novo. Na hora.
+
+## 4.4 ⏱ 15:38 → 16:42
+📷 15:38 — Animação 3D de hemácias fluindo num vaso; legenda "The compound already"  [b4-4_animacao-3d-de-hemacias-fluindo-num-va_00-15-38.jpg]
+📷 15:49 — Mão em P&B segurando comprimido; legenda "I'd been lied to"  [b4-4_mao-em-p-b-segurando-comprimido_00-15-49.jpg]
+📷 15:58 — Elon Musk na poltrona gesticulando; legenda "So I became the"  [b4-4_elon-musk-na-poltrona-gesticulando_00-15-58.jpg]
+📷 16:15 — Elon Musk na poltrona com filtro laranja; legenda "By the end of"  [b4-4_elon-musk-na-poltrona-com-filtro-laran_00-16-15.jpg]
+📷 16:28 — Cena pornô explícita (lingerie preta); legenda "I bent her over"  [b4-4_cena-porno-explicita-lingerie-preta_00-16-28.jpg]
+📷 16:38 — Cena pornô explícita (varanda, luz do dia); legenda "I fucked her for almost"  [b4-4_cena-porno-explicita-varanda_00-16-38.jpg]
+ELON MUSK (imagem/voz sintética): O composto já presente no seu corpo neutraliza tudo. É assim que seus vasos ficam limpos e suas ereções ficam fortes. Depois do teste de laboratório, eu já estava convencido. Eu tinha sido enganado por cada pílula, cada médico, cada tratamento que o dinheiro podia comprar. Eu não queria outra promessa. Eu queria o meu pau de volta, e queria agora. Então eu virei a primeira cobaia. O ritual do mel vermelho toda manhã, logo cedo, em jejum. Nos primeiros 2 dias, nada. Quase desisti. No dia 3, acordei às 4 da manhã com uma ereção que eu não sentia há 15 anos. Grossa, pesada, pulsando contra o lençol. No fim da primeira semana, eu não acordava mais mole. Acordava duro feito um adolescente, toda santa manhã. E na noite em que a Sophia finalmente aceitou vir me ver de novo, o que aconteceu naquele quarto foi algo que eu nunca vou esquecer. Eu dobrei ela sobre a mesma cama em que eu tinha falhado 100 vezes. No segundo em que entrei, os olhos dela reviraram. Ela soltou um gemido que parecia de atriz pornô. Fodi ela por quase 3 horas seguidas, na cama, contra a parede, no chão.
+
+# BLOCO 5 — O PRIMEIRO TESTE DO ELON: a noite, as veias, "algo enorme nas mãos" [16:43 – 17:50]
+
+## 5.1 ⏱ 16:43 → 17:13
+📷 16:47 — Elon Musk na poltrona; legenda "soaking the sheets through,"  [b5-1_elon-musk-na-poltrona_00-16-47.jpg]
+📷 16:57 — Fundo preto, lettering branco grande "BECAUSE I WAS"  [b5-1_fundo-preto_00-16-57.jpg]
+ELON MUSK (imagem/voz sintética): Ela gozou de novo e de novo até implorar pra eu parar, encharcando o lençol, com as pernas tremendo tanto que não conseguia ficar de pé. E quando eu finalmente gozei, eu não amoleci. Meu pau continuou duro feito uma barra de aço, como se eu ainda estivesse pronto pra outro round. Porque eu estava. Na manhã seguinte, ela olhou pra mim como se eu fosse outro homem e disse que nunca tinha sido fodida daquele jeito na vida, nem quando a gente era jovem. E quando eu me medi algumas semanas depois, quase deixei a fita cair. Tinha ido de 5,8 polegadas pra 7,4. Mais grosso. Mais pesado.
+
+## 5.2 ⏱ 17:13 → 17:50
+📷 17:13 — Close explícito masculino; legenda "Veins running"  [b5-2_close-explicito-masculino_00-17-13.jpg]
+📷 17:23 — Atriz adulta olhando pra câmera em cena explícita; legenda "could get their manhood"  [b5-2_atriz-adulta-olhando-pra-camera-em-cen_00-17-23.jpg]
+📷 17:33 — Homem abrindo uma caixa de papelão na cozinha, janela com neve; legenda "I could find."  [b5-2_homem-abrindo-uma-caixa-de-papelao-na_00-17-33.jpg]
+📷 17:43 — Cena explícita (close); legenda "without spending a dime."  [b5-2_cena-explicita-close_00-17-43.jpg]
+ELON MUSK (imagem/voz sintética): Veias descendo pela haste que eu não via desde os 20. Foi aí que eu soube que tinha algo enorme nas mãos. Que, pela Neuralink, milhões de homens americanos passando pelo que eu passei podiam recuperar a masculinidade e a confiança. Sem vender a vida pra Big Pharma. Então, primeiro demos isso pra um grupo de homens. Homens de verdade, casos reais, os piores que eu consegui encontrar. Homens que tinham desistido. Mas antes de você ver o que eles mandaram de volta, quero que você conheça o Dr. Michael e preste atenção em cada palavra que ele diz, porque isso vai te deixar viril de novo hoje, na sua casa, sem gastar um centavo. Se eu ainda fodo todo dia aos 55 como um garoto de 19, é por causa do que ele vai te mostrar agora.
+
+# BLOCO 6 — DR. MICHAEL CARTER: o mel vermelho, a icariina, os 3 compostos e os 120 pacientes [17:50 – 20:15]
+
+## 6.1 ⏱ 17:50 → 18:59
+📷 17:55 — Cena de sexo oral explícita; legenda "into a thick, veiny log"  [b6-1_cena-de-sexo-oral-explicita_00-17-55.jpg]
+📷 18:06 — Médico de scrubs pretos e óculos falando pra câmera, bordado "MD. Michael Carter Urologist", consultório com prédios ao fundo; legenda "The first is"  [b6-1_medico-de-scrubs-pretos-e-oculos-falan_00-18-06.jpg]
+📷 18:16 — Mel sendo coado numa peneira de metal sobre um balde (mel bruto escuro, com abelhas/cera); legenda "nowhere else"  [b6-1_mel-sendo-coado-numa-peneira-de-metal_00-18-16.jpg]
+📷 18:25 — Homem descalço escalando árvore/penhasco na selva coletando mel (coletor de mel); legenda "Risking their lives"  [b6-1_homem-descalco-escalando-arvore-penhas_00-18-25.jpg]
+📷 18:37 — Dr. Michael Carter no laboratório derramando mel vermelho num prato de petri, microscópio; legenda "This red honey carries"  [b6-1_dr-michael-carter-no-laboratorio-derra_00-18-37.jpg]
+📷 18:47 — Animação 3D de tecido fibroso com placas escuras; legenda "It hunts down"  [b6-1_animacao-3d-de-tecido-fibroso-com-plac_00-18-47.jpg]
+📷 18:57 — Dr. Michael Carter falando pra câmera no consultório; legenda "But Elon"  [b6-1_dr-michael-carter-falando-pra-camera-n_00-18-57.jpg]
+DR. MICHAEL CARTER (urologista): Obrigado, Elon. Eu vou revelar exatamente como qualquer homem pode transformar um pau mole num tronco grosso e cheio de veias que só goza quando você quer. São 4 ingredientes nesse ritual que, juntos, são tão potentes pra virilidade masculina que homens de 70 e poucos anos estão voltando a... O primeiro é o mais importante, e o Elon já mencionou: o mel vermelho do Himalaia. No alto do Himalaia vive uma espécie rara de abelha gigante. Essas abelhas se alimentam de flores que não crescem em nenhum outro lugar do planeta, e produzem um mel espesso, escuro, avermelhado, que os locais chamam de "mad honey" (mel louco). Por séculos, só os homens mais fortes dessas aldeias tinham permissão pra colher, arriscando a vida por alguns quilos dele. Nunca foi comida; era sagrado. O motivo de esses homens terem filhos aos 80 enquanto o resto do mundo amolece aos 40? Quando eu trouxe pro meu laboratório e analisei, entendi por quê. Esse mel vermelho carrega a maior concentração de um composto chamado icariina já encontrada na natureza. Nada mais na Terra chega perto. A icariina faz uma coisa que nenhum remédio consegue fazer. Ela caça as placas de xenotoxina que sufocam os seus vasos sanguíneos e dissolve elas. Ela quebra o acúmulo, expulsa ele e libera a estrada pro sangue finalmente inundar o seu pau de novo. Mas o Elon e eu sabíamos que o mel vermelho sozinho não bastava.
+
+## 6.2 ⏱ 19:00 → 20:03
+📷 19:07 — Cena pornô explícita (casal); legenda "Every man over forty"  [b6-2_cena-porno-explicita-casal_00-19-07.jpg]
+📷 19:18 — Close explícito masculino (mão com unhas verdes); legenda "making you thicker"  [b6-2_close-explicito-masculino-mao-com-unha_00-19-18.jpg]
+📷 19:27 — Dr. Michael Carter falando pra câmera com filtro laranja estourado; legenda "Years of poison"  [b6-2_dr-michael-carter-falando-pra-camera-c_00-19-27.jpg]
+📷 19:39 — Dr. Michael Carter no consultório, enfático; legenda "This locks it in."  [b6-2_dr-michael-carter-no-consultorio_00-19-39.jpg]
+📷 19:50 — Mão enrugada derramando mel vermelho escuro num bowl de madeira, montanhas ao fundo; legenda "First, the red honey"  [b6-2_mao-enrugada-derramando-mel-vermelho-e_00-19-50.jpg]
+📷 19:59 — Elon Musk bebendo um líquido vermelho num copo; legenda "This is the"  [b6-2_elon-musk-bebendo-um-liquido-vermelho_00-19-59.jpg]
+DR. MICHAEL CARTER (urologista): Então eu combinei ele com mais 3 compostos, cada um atacando uma parte diferente do estrago. O segundo ingrediente é horny goat weed concentrado. Todo homem acima de 40 já ouviu falar, e tem um motivo. Com a placa fora, os vasos precisam abrir bem. O horny goat weed força eles numa expansão brutal, levando até 500% mais sangue pro pênis, te deixando mais grosso e mais duro do que você esteve em décadas. O terceiro é o PT-141, o peptídeo do sexo. Pelo qual os maiores nomes de Wall Street pagam 2.000 dólares por mês. Anos de veneno matam o desejo de um homem. O PT-141 atinge o centro de prazer do seu cérebro diretamente, pra que o desejo ruja tão alto quanto a ereção. O quarto é raiz de Ashwagandha, padronizada na maior potência já produzida. Isso trava tudo. Ela empurra o seu corpo a produzir a própria testosterona de novo, do jeito que fazia aos 20, te mantendo duro muito depois de os outros homens desistirem. 4 compostos, 4 etapas, 1 reversão completa. Primeiro, o mel vermelho limpa a placa. Depois o horny goat weed abre os vasos. O PT-141 traz o desejo de volta. E a Ashwagandha reconstrói a sua potência natural. Essa é a combinação exata que trouxe a masculinidade do Elon de volta dos mortos.
+
+## 6.3 ⏱ 20:03 → 20:15
+📷 20:10 — Cena explícita (mulher loira de moletom marrom); legenda "to men"  [b6-3_cena-explicita-mulher-loira-de-moletom_00-20-10.jpg]
+DR. MICHAEL CARTER (urologista): E é a mesma combinação que eu testei em mais de 120 pacientes meus, com gravidades que iam de ereções moles a homens que não ficavam duros há mais de 15 anos. Esses são os vídeos que eles me mandaram depois do teste.
+
+# BLOCO 7 — DEPOIMENTOS DO GRUPO (John 72, James 74, Richard 53) + o "red honey challenge" [20:15 – 21:55]
+
+## 7.1 ⏱ 20:15 → 20:23
+📷 20:16 — Depoimento: homem idoso de cabelo branco ao ar livre, lower-third "John 72 years old"; legenda amarela "my cock was already hard"  [b7-1_depoimento-homem-idoso-de-cabelo-branc_00-20-16.jpg]
+📷 20:20 — Depoimento: homem grisalho de moletom bege em sala, lower-third "James 74 years old"; legenda amarela "What the fuck is this"  [b7-1_depoimento-homem-grisalho-de-moletom-b_00-20-20.jpg]
+HOMEM (depoimento): No terceiro dia, meu pau já estava duro feito um taco de beisebol. Que porra é essa fórmula, cara? Estou fodendo minha esposa 3 vezes por noite.
+
+## 7.2 ⏱ 20:24 → 21:02
+📷 20:29 — Dr. Michael Carter no consultório; legenda "Almost all of them"  [b7-2_dr-michael-carter-no-consultorio_00-20-29.jpg]
+📷 20:40 — Cena explícita (mulher loira de blusa vermelha); legenda "Men from 35 to 80 years old"  [b7-2_cena-explicita-mulher-loira-de-blusa-v_00-20-40.jpg]
+📷 20:50 — Cena explícita (mulher de cabelo escuro); legenda "The wives began"  [b7-2_cena-explicita-mulher-de-cabelo-escuro_00-20-50.jpg]
+📷 21:00 — Mão segurando uma cápsula branca; legenda "No miracle capsules."  [b7-2_mao-segurando-uma-capsula-branca_00-21-00.jpg]
+DR. MICHAEL CARTER (urologista): "Hoje de manhã acordei com o pau latejando. Ela gozou duas vezes antes de eu terminar a primeira." Quase todos relataram ereções insanas na primeira semana. Cerca de 98% disseram que estavam fodendo por mais de uma hora sem gozar, literalmente quebrando a cama e as esposas. Homens de 35 a 80 anos me agradeceram por devolver a virilidade que achavam que nunca mais teriam. E frases como "eu nunca senti isso antes" viraram rotina no meu telefone. As esposas começaram a implorar por misericórdia depois de os maridos gozarem 2 ou 3 vezes naquela noite. A parte mais louca? Ninguém precisou parar de beber. Ninguém precisou parar de fumar. Ninguém fez dieta. Nada de cápsulas milagrosas. Nada de pílulas químicas.
+
+## 7.3 ⏱ 21:03 → 21:16
+📷 21:04 — Homem grisalho de camisa azul bebendo líquido âmbar num copo (cozinha); legenda "honey formula."  [b7-3_homem-grisalho-de-camisa-azul-bebendo_00-21-04.jpg]
+📷 21:16 — Depoimento: homem de camiseta preta e branca, careca, lower-third "Richard 53 years old"; legenda amarela "I'm gonna do the red"  [b7-3_depoimento-homem-de-camiseta-preta-e-b_00-21-16.jpg]
+DR. MICHAEL CARTER (urologista): Só a fórmula do mel vermelho. Alguns pacientes até se gravaram fazendo sexo depois do ritual. Achei bizarro, mas eles estavam adorando a reputação de garanhões, e as mulheres estavam praticamente se jogando em cima deles querendo foder. Veja com seus próprios olhos.
+
+## 7.4 ⏱ 21:16 → 21:23
+📷 21:18 — Depoimento: Richard (lower-third "Richard 53 years old"), camiseta preta e branca na cozinha + inserto explícito; legenda amarela "and test it"  [b7-4_depoimento-richard-lower-third-richard_00-21-18.jpg]
+HOMEM (depoimento): Vou fazer o desafio do mel vermelho agora mesmo e testar numa foda de verdade. Não entendo como essa coisa funciona, mas olha o que faz com o meu pau.
+
+## 7.5 ⏱ 21:23 → 21:55
+📷 21:32 — Laboratório: frasco "POWDER", béquer com líquido vermelho, pó vermelho, luva azul; legenda "just with the"  [b7-5_laboratorio-frasco-powder_00-21-32.jpg]
+📷 21:42 — Dr. Michael Carter no consultório; legenda "our goal was simple."  [b7-5_dr-michael-carter-no-consultorio_00-21-42.jpg]
+📷 21:54 — Dr. Michael Carter no consultório; legenda "The research was solid."  [b7-5_dr-michael-carter-no-consultorio_00-21-54.jpg]
+DR. MICHAEL CARTER (urologista): Eles não são exceções. São exemplos vivos de que a virilidade pode ser recuperada sem depender de farmácia, sem se envenenar com químicos, só com o ritual certo aplicado do jeito certo. Quando finalmente provamos que esse ritual limpava as placas, fazia o sangue fluir com força total e trazia a testosterona de volta como a de um homem de 20 e poucos anos, nosso objetivo era simples: colocar isso nas mãos de todo homem americano lutando contra um pau mole, sem que eles precisassem gastar um único centavo. Foi aí que o Elon foi com tudo. Ele mobilizou o dinheiro pessoal dele e todo o peso da Neuralink por trás desse projeto. A pesquisa era sólida.
+
+# BLOCO 8 — A LIGAÇÃO DO CEO FARMACÊUTICO e a decisão de fazer sozinhos [21:55 – 23:18]
+
+## 8.1 ⏱ 21:55 → 22:11
+📷 22:10 — Dr. Michael Carter no consultório; legenda "But listen closely"  [b8-1_dr-michael-carter-no-consultorio_00-22-10.jpg]
+DR. MICHAEL CARTER (urologista): Os testes de laboratório eram inegáveis. Só precisávamos de um fabricante nos Estados Unidos capaz de produzir isso em escala. Então o Elon ligou pro CEO de um dos maiores laboratórios farmacêuticos do país, um homem com quem ele trabalhava há anos. Ele gravou a ligação e teve que censurar a voz do cara, mas ouça com atenção o que ele disse pro Elon.
+
+## 8.2 ⏱ 22:12 → 22:39
+📷 22:13 — Tela de chamada de vídeo: contato "**** - *** CEO" com rosto pixelado, onda de áudio; legenda amarela "straight with you."  [b8-2_tela-de-chamada-de-video-contato-ceo-c_00-22-13.jpg]
+CEO FARMACÊUTICO (chamada de vídeo): Elon, deixa eu ser direto com você. Você entende o que isso faz com o nosso negócio? O homem com disfunção erétil vale algo entre 40.000 e 70.000 dólares pra nós ao longo da vida dele. Viagra, Cialis, receitas de acompanhamento, tratamentos de efeitos colaterais. Se a gente fabricar algo que reverte a DE em tempo recorde, pela raiz, perdemos bilhões em receita anual da noite pro dia. Não faz nenhum sentido te ajudar com isso.
+
+## 8.3 ⏱ 22:39 → 22:42
+📷 22:40 — Tela de chamada de vídeo com foto de Elon Musk falando; legenda amarela "The marriages"  [b8-3_tela-de-chamada-de-video-com-foto-de-e_00-22-40.jpg]
+ELON MUSK (imagem/voz sintética): Mas pensa nos homens, nos casamentos que a gente podia salvar.
+
+## 8.4 ⏱ 22:42 → 22:54
+📷 22:45 — Tela de chamada: CEO pixelado; legenda amarela "We're not going to do"  [b8-4_tela-de-chamada-ceo-pixelado_00-22-45.jpg]
+CEO FARMACÊUTICO (chamada de vídeo): Você quer mudar este mundo, Elon. Eu não. Não vamos fazer isso. E, sinceramente, eu reconsideraria até onde você quer levar isso. Tem gente que não quer essa solução aí fora. Gente que joga mais pesado do que eu.
+
+## 8.5 ⏱ 22:55 → 23:18
+📷 22:55 — Dr. Michael Carter no consultório; legenda "That call shook"  [b8-5_dr-michael-carter-no-consultorio_00-22-55.jpg]
+📷 23:12 — Dr. Michael Carter no consultório; legenda "He flew straight"  [b8-5_dr-michael-carter-no-consultorio_00-23-12.jpg]
+DR. MICHAEL CARTER (urologista): Aquela ligação abalou nós dois. O sistema não quer você consertado. Quer você medicado. Mensalmente. Pra sempre. Então o Elon tomou uma decisão naquela noite. Íamos fazer isso nós mesmos. Sem sócios. Sem intermediários. Sem guardiões da indústria entre essa descoberta e os homens que precisavam dela. Ele voou direto pro Nepal na semana seguinte e começou a construir toda a estrutura ele mesmo. Ele me mandou os vídeos do que estava fazendo nos penhascos.
+
+# BLOCO 9 — NEPAL: o mel que não se compra; o laboratório da Neuralink em Woodinville; nasce o HoneyFil [23:19 – 25:00]
+
+## 9.1 ⏱ 23:19 → 23:50
+📷 23:38 — Elon Musk vestido de campo segurando favo de mel vermelho diante de uma colmeia de madeira num penhasco; legenda "Hundreds of hives,"  [b9-1_elon-musk-vestido-de-campo-segurando-f_00-23-38.jpg]
+ELON MUSK (imagem/voz sintética): O mel vermelho não é uma commodity. Você não pode comprar, não pode fabricar. Ele só existe aqui, nesses penhascos. Então eu investi diretamente na região. Financiei a construção de estações dedicadas de colheita e processamento com os aldeões locais, as mesmas famílias que coletam esse mel há séculos. Isso é o que construímos. Centenas de colmeias colhidas à mão, cada lote testado quanto à concentração de icariina antes de sair da montanha. O que é enviado pros Estados Unidos é o mesmo mel que essas aldeias usam há 1.000 anos.
+
+## 9.2 ⏱ 23:51 → 25:00
+📷 23:51 — Dr. Michael Carter no consultório + laboratório com tubos de líquido vermelho; legenda "Once the honey arrives"  [b9-2_dr-michael-carter-no-consultorio-labor_00-23-51.jpg]
+📷 24:05 — Linha de produção industrial com frascos de líquido vermelho; legenda "and combined"  [b9-2_linha-de-producao-industrial-com-frasc_00-24-05.jpg]
+📷 24:19 — Homem jovem de barba sorrindo olhando o celular na rua; legenda "so any man who"  [b9-2_homem-jovem-de-barba-sorrindo-olhando_00-24-19.jpg]
+📷 24:31 — Dr. Michael Carter segurando o frasco HONEYFIL MALE; legenda "The formula became"  [b9-2_dr-michael-carter-segurando-o-frasco-h_00-24-31.jpg]
+📷 24:42 — Cena pornô explícita; legenda "was to put"  [b9-2_cena-porno-explicita_00-24-42.jpg]
+📷 24:53 — Dr. Michael Carter no consultório gesticulando; legenda "Elon went straight"  [b9-2_dr-michael-carter-no-consultorio-gesti_00-24-53.jpg]
+DR. MICHAEL CARTER (urologista): Assim que o mel chega aos Estados Unidos, ele vai pro laboratório que a Neuralink construiu em Woodinville, Washington. Registrado na FDA, certificado GMP, equipado com a tecnologia de extração e mistura mais avançada do país. É onde a icariina é concentrada e combinada com o horny goat weed, o peptídeo PT-141 e a raiz de Ashwagandha nas proporções exatas que eu passei anos aperfeiçoando. Cada frasco custa facilmente mais de 1.000 dólares pra produzir, mas o Elon decidiu pagar do próprio bolso, pra que qualquer homem que encontre esta mensagem em 2026 possa receber 6 frascos na porta de casa, totalmente de graça, com o mel vermelho já concentrado, dosado e misturado com os outros 3 compostos numa única goma. A fórmula ficou conhecida como HoneyFil. Só fica comigo pelos próximos 3 minutos e você vai poder reivindicar até 6 meses de tratamento sem gastar um centavo. O jeito mais rápido que conhecíamos de provar que o HoneyFil funcionava era colocar nas mãos dos homens que não podem se dar ao luxo de falhar na cama: a indústria de filmes adultos. Convencer eles não foi fácil. Já estavam viciados em Viagra e Cialis. Não conseguiam acreditar que uma fórmula natural pudesse superar aquilo em que tinham construído a carreira. O Elon foi direto aos maiores estúdios, entregou um frasco grátis pra cada ator que estava gravando naquele... O retorno veio mais rápido do que esperávamos.
+
+# BLOCO 10 — INDÚSTRIA ADULTA + DR. OZ: o voluntário de 79 anos, "this works" [25:00 – 27:23]
+
+## 10.1 ⏱ 25:00 → 25:24
+📷 25:04 — Cena de sexo oral explícita (depoimento de atriz/produtora); legenda "Yesterday I shot"  [b10-1_cena-de-sexo-oral-explicita-depoimento_00-25-04.jpg]
+📷 25:17 — Cena pornô explícita (mulher de cabelo roxo); legenda "They stay hard"  [b10-1_cena-porno-explicita-mulher-de-cabelo_00-25-17.jpg]
+ATRIZ ADULTA (clipe): É insano o que aconteceu com os atores desde que começaram a tomar HoneyFil. Ontem gravei com um cara de 60 e poucos anos. Ele tomou HoneyFil e me fez esguichar 4 vezes neste sofá. Toda cena que eu gravo agora termina comigo pingando. Minhas amigas que gravam com esses caras dizem a mesma coisa. Os paus estão mais grossos, com mais veias. Ficam duros por 2 horas seguidas sem perder o ritmo. E aí os homens continuaram socando por mais de 2 horas direto. O Viagra nunca fez isso.
+
+## 10.2 ⏱ 25:25 → 25:40
+📷 25:27 — Close de cabelo grisalho de homem abaixando a cabeça; legenda "The dizziness,"  [b10-2_close-de-cabelo-grisalho-de-homem-abai_00-25-27.jpg]
+📷 25:40 — Fundo laranja, lettering amarelo grande "VEINIER"  [b10-2_fundo-laranja_00-25-40.jpg]
+HOMEM (depoimento): Eu dependia do Viagra, mas era um pesadelo. A tontura, as palpitações. Eu tinha medo de ter um infarto no meio da cena. Depois que o Elon me deu um frasco de HoneyFil, estou gravando 4 cenas seguidas. Antes, mal conseguia fazer 2. Meu pau, que não era pequeno, ganhou 2 polegadas. Mais grosso, com mais veias.
+
+## 10.3 ⏱ 25:40 → 25:45
+📷 25:41 — Jovem de moletom rosa segurando o frasco HONEYFIL MALE falando pra câmera + inserto explícito; legenda "single scene I"  [b10-3_jovem-de-moletom-rosa-segurando-o-fras_00-25-41.jpg]
+ATRIZ ADULTA (clipe): Não tem uma única cena que eu grave depois da febre do HoneyFil que não me deixe esguichando toda de puro êxtase.
+
+## 10.4 ⏱ 25:45 → 26:01
+📷 25:53 — Frasco HONEYFIL FOR MEN MALE PERFORMANCE (30 gummies) sobre mesa de madeira; legenda "Elon personally handed"  [b10-4_frasco-honeyfil-for-men-male-performan_00-25-53.jpg]
+DR. MICHAEL CARTER (urologista): Mas o teste de verdade veio do Dr. Mehmet Oz. Reunimos cada pedaço da pesquisa, os testes de laboratório, os depoimentos das estrelas de filmes adultos. O Elon entregou pessoalmente um frasco de HoneyFil pra ele. Ele nos disse que testaria num voluntário ele mesmo antes de apoiar publicamente. 3 semanas depois, ele nos mandou um vídeo.
+
+## 10.5 ⏱ 26:02 → 26:32
+📷 26:05 — Homem idoso de barba branca e colete verde, cabisbaixo numa poltrona; legenda "79 years old"  [b10-5_homem-idoso-de-barba-branca-e-colete-v_00-26-05.jpg]
+📷 26:15 — Mulher morena de sutiã de oncinha no sofá, cena explícita; legenda "His wife looked"  [b10-5_mulher-morena-de-sutia-de-oncinha-no-s_00-26-15.jpg]
+📷 26:25 — Imagem borrada de Dr. Oz (terno, gravata vermelha) com lettering verde "THIS WORKS"  [b10-5_imagem-borrada-de-dr-oz-terno_00-26-25.jpg]
+DR. MEHMET OZ (imagem): Eu testei pessoalmente o HoneyFil num voluntário de 79 anos, diabético, com pressão alta. Há mais de 10 anos ele não conseguia ter uma única ereção. No dia 4, ele acordou com uma ereção completa, dura feito pedra. A esposa olhou pra ele e disse: "Cadê o meu marido? O que você fez com ele?" Depois de 3 semanas, esse homem me disse que não tinha mais medo de problemas de desempenho na cama. Elon, Michael, isso funciona. Eu vi com meus próprios olhos. Joguem as pílulas azuis no lixo. O HoneyFil vai salvar casamentos por toda a América. Com a palavra do Dr.
+
+## 10.6 ⏱ 26:32 → 27:23
+📷 26:34 — Seis frascos HONEYFIL MALE numa bancada de pedra; legenda "HoneyFil was ready"  [b10-6_seis-frascos-honeyfil-male-numa-bancad_00-26-34.jpg]
+📷 26:43 — Dr. Michael Carter no consultório; legenda "Elon lost the"  [b10-6_dr-michael-carter-no-consultorio_00-26-43.jpg]
+📷 26:53 — Animação 3D de dupla hélice de DNA rosa; legenda "it also makes"  [b10-6_animacao-3d-de-dupla-helice-de-dna-ros_00-26-53.jpg]
+📷 27:03 — Mulher de vestido justo rosa e blazer preto num corredor de escritório; legenda "the coworker the"  [b10-6_mulher-de-vestido-justo-rosa-e-blazer_00-27-03.jpg]
+📷 27:12 — Mulher de vestido estampado curto de pé diante de homem idoso sentado numa sala, emojis de fogo; legenda "and women line"  [b10-6_mulher-de-vestido-estampado-curto-de-p_00-27-12.jpg]
+📷 27:22 — Dr. Michael Carter borrado ao fundo, lettering verde grande "IT'S PURE BIOLOGY"  [b10-6_dr-michael-carter-borrado-ao-fundo_00-27-22.jpg]
+DR. MICHAEL CARTER (urologista): Oz por trás de nós, o HoneyFil estava pronto pra todo homem americano que quisesse a masculinidade de volta. Mas deixa eu ser claro com você. O Elon e eu não temos superpoderes. Somos só 2 homens que viveram isso e encontraram a saída. O Elon perdeu a única mulher que realmente amou por causa da impotência, e a única coisa que trouxe ela de volta foi a mesma coisa que está prestes a trazer ela de volta pra sua cama também. Porque o HoneyFil não te dá só uma ereção poderosa, ele também faz o seu corpo bombear testosterona pura, e isso libera 2 feromônios, androstenona e androstenol, que atingem o cérebro feminino diretamente. É por isso que é completamente normal as mulheres, a colega de trabalho, a caixa do mercado, a mulher da academia, de repente olharem pra você diferente. Sem saber por quê. Você já viu caras que não são especialmente bonitos, não têm dinheiro, e as mulheres fazem fila pra eles. Já se perguntou por quê? Esses homens irradiam testosterona naturalmente. Com o HoneyFil, você também vai. Não se surpreenda quando as mulheres começarem a se aproximar de você do nada. Isso não é mágica, é pura biologia.
+
+# BLOCO 11 — DEPOIMENTOS: TRT, o amigo do Elon, 81 anos, "as pílulas nem funcionavam" [27:23 – 28:37]
+
+## 11.1 ⏱ 27:23 → 27:46
+📷 27:32 — Cena de sexo oral explícita (lingerie rosa); legenda "six"  [b11-1_cena-de-sexo-oral-explicita-lingerie-r_00-27-32.jpg]
+📷 27:42 — Homem borrado ao fundo, lettering verde grande "THIS SHIT IS REAL,"  [b11-1_homem-borrado-ao-fundo_00-27-42.jpg]
+HOMEM (depoimento): Faço TRT há anos e ainda tinha dias em que o meu pau não cooperava totalmente. O Elon me mandou um frasco de HoneyFil depois que ele veio no podcast. 6 meses depois, não toco mais em TRT. Minha testosterona está mais alta do que desde os meus 20 anos, com exames de sangue pra provar. Aos 59, estou fodendo minha esposa mais forte do que aos 30. Essa merda é real, e o Elon merece cada grama de crédito por tornar isso público.
+
+## 11.2 ⏱ 27:46 → 28:02
+📷 27:55 — Animação com vários frascos HONEYFIL MALE girando em anel dourado; legenda "I used it"  [b11-2_animacao-com-varios-frascos-honeyfil-m_00-27-55.jpg]
+AMIGO DO ELON (depoimento): O Elon é um irmão pra mim. Quando ele me contou o que o HoneyFil fez por ele, eu escutei, porque eu estava lidando com a mesma coisa e não falava disso com ninguém. Usei por 6 meses. No fim da primeira semana, minha esposa estava me olhando diferente. Agora eu sei o que aquele olhar significa. E consigo responder a ele toda vez.
+
+## 11.3 ⏱ 28:02 → 28:37
+📷 28:09 — Homem idoso careca, de roupão vermelho aberto mostrando o abdômen, numa sala luxuosa; legenda "three days in"  [b11-3_homem-idoso-careca_00-28-09.jpg]
+📷 28:23 — Homem borrado ao fundo, lettering verde grande "I BELIEVE THAT"  [b11-3_homem-borrado-ao-fundo_00-28-23.jpg]
+HOMEM (depoimento): Tenho 81 anos. Não sou o tipo de cara que fala disso em público, mas o Elon me pediu pra experimentar o HoneyFil e eu confio nele. 3 dias depois, acordei com algo que eu não sentia há anos. Minha esposa percebeu antes mesmo de eu dizer uma palavra. Não espere tanto quanto eu pra fazer algo a respeito. Usei pílulas por anos e, na maior parte das vezes, nem elas funcionavam. Quando soube que o Elon Musk estava por trás disso, acreditei. O Elon não brinca com essas coisas. Peguei alguns frascos de HoneyFil. A parte mais louca é que, logo no primeiro dia, meu pau ficou duro feito aço. Ganhou mais de uma polegada, mais grosso, visivelmente com mais veias. Depois de 6 meses, nunca mais tive esse problema.
+
+# BLOCO 12 — RECAP DO MECANISMO + DRA. ANNIKA ACKERMAN + "100% SAFE" [28:37 – 30:36]
+
+## 12.1 ⏱ 28:37 → 29:23
+📷 28:38 — Animação 3D de vaso com placas escuras e hemácias; legenda "As you've already"  [b12-1_animacao-3d-de-vaso-com-placas-escuras_00-28-38.jpg]
+📷 28:47 — Cena pornô explícita (mulher loira de blusa branca); legenda "permanently fixed,"  [b12-1_cena-porno-explicita-mulher-loira-de-b_00-28-47.jpg]
+📷 28:57 — Linha de produção de gomas (gummies) escuras em laboratório; legenda "The problem is"  [b12-1_linha-de-producao-de-gomas-gummies-esc_00-28-57.jpg]
+📷 29:06 — Depósito/prateleiras com frascos HONEYFIL MALE sob lâmpadas, estoque vazio ao redor; legenda "We run out"  [b12-1_deposito-prateleiras-com-frascos-honey_00-29-06.jpg]
+📷 29:16 — Atriz adulta loira olhando pra cima (cena explícita); legenda "performance as professional"  [b12-1_atriz-adulta-loira-olhando-pra-cima-ce_00-29-16.jpg]
+DR. MICHAEL CARTER (urologista): Como você já aprendeu com a gente, seus vasos penianos ficaram entupidos por placas de xenotoxina durante anos. O HoneyFil dá resultados rápidos, mas pra ficar realmente livre, consertado permanentemente, e aproveitar todos os benefícios, especialmente o ganho de 2 a 3 polegadas de tamanho, você precisa eliminar totalmente essas placas. Por isso o uso contínuo durante os primeiros 6 meses é essencial. O problema é que, mesmo o HoneyFil sendo fabricado nos Estados Unidos, o mel vermelho vem direto das aldeias do Himalaia com quem o Elon construiu aquela estação. Isso leva tempo. Ficamos sem estoque por longos períodos. Depois que a primeira leva de homens colocou as mãos no HoneyFil, começaram a chamar de "hack do ator pornô", porque dá a qualquer cara mediano o mesmo desempenho sexual de um profissional adulto... "Recentemente, eu não conseguia manter o pau duro por 5 minutos."
+
+## 12.2 ⏱ 29:23 → 29:39
+📷 29:28 — Homem idoso borrado ao fundo, lettering verde "SHE'S ALWAYS BEEN PASSIONATE."  [b12-2_homem-idoso-borrado-ao-fundo_00-29-28.jpg]
+📷 29:37 — Cena pornô explícita (mulher loira de vestido azul); legenda "that at this"  [b12-2_cena-porno-explicita-mulher-loira-de-v_00-29-37.jpg]
+HOMEM (depoimento): Minha esposa fingia que estava tudo bem, mas eu conhecia ela e sabia que ela precisava de orgasmos. Ela sempre foi apaixonada. Depois de descobrir o HoneyFil, em 2 semanas eu estava ficando tão duro que ela começou a pedir sexo todo dia. Minha ferramenta até cresceu. Nunca imaginei que nessa fase da vida a gente estaria fodendo tanto assim.
+
+## 12.3 ⏱ 29:39 → 29:49
+📷 29:40 — Animação com frascos HONEYFIL MALE girando em anel dourado; legenda "so popular"  [b12-3_animacao-com-frascos-honeyfil-male-gir_00-29-40.jpg]
+DR. MICHAEL CARTER (urologista): O HoneyFil ficou tão popular que uma das urologistas mais respeitadas dos Estados Unidos, a Dra. Annika Ackerman, gravou um vídeo chamando ele de a fórmula mais segura e eficaz do mundo.
+
+## 12.4 ⏱ 29:49 → 30:20
+📷 29:53 — Cena explícita com homem idoso careca e mulher; legenda "fully reversed their"  [b12-4_cena-explicita-com-homem-idoso-careca_00-29-53.jpg]
+📷 30:03 — Cena explícita em P&B com tom vermelho; legenda "I've seen cases"  [b12-4_cena-explicita-em-p-b-com-tom-vermelho_00-30-03.jpg]
+📷 30:14 — Mulher borrada ao fundo, lettering verde grande "100% SAFE"  [b12-4_mulher-borrada-ao-fundo_00-30-14.jpg]
+DRA. ANNIKA ACKERMAN (uróloga): Todo paciente meu que completou 6 meses de HoneyFil reverteu totalmente a disfunção erétil. Nenhum deles ainda luta pra ficar duro. E mais do que isso, agora estão tendo ereções mais fortes do que tinham na adolescência. Já vi casos de DE crônica que cirurgia e implantes não resolveram. Homens de 70 e poucos anos recuperando uma vida sexual ativa. Esta é, sem dúvida, a melhor solução já criada. 100% segura, zero efeitos colaterais. Recomendo a qualquer um que consiga se manter no HoneyFil por 6 meses.
+
+## 12.5 ⏱ 30:20 → 30:36
+📷 30:23 — Frasco HONEYFIL FOR MEN MALE PERFORMANCE em destaque com anel dourado; legenda "there is no"  [b12-5_frasco-honeyfil-for-men-male-performan_00-30-23.jpg]
+📷 30:32 — Vários frascos HONEYFIL MALE girando; legenda "HoneyFil works for"  [b12-5_varios-frascos-honeyfil-male-girando_00-30-32.jpg]
+DR. MICHAEL CARTER (urologista): Não importa a gravidade da sua situação, não existe outro produto na Terra que faça o que o HoneyFil faz sem colocar a sua saúde em risco. Diabetes, pressão alta, problemas cardíacos, não importa. O HoneyFil funciona pra você com segurança, independentemente da sua condição ou da sua idade.
+
+# BLOCO 13 — PREÇO: "nem eu nem o Elon ganhamos um centavo", Nepal, a esposa, a humilhação e a garantia de 60 dias [30:36 – 33:30]
+
+## 13.1 ⏱ 30:36 → 31:46
+📷 30:42 — Dr. Michael Carter no consultório com luz vermelha; legenda "Let me be"  [b13-1_dr-michael-carter-no-consultorio-com-l_00-30-42.jpg]
+📷 30:51 — Coletor de mel na árvore puxando favo gigante com abelhas (selva); legenda "harvesting more red honey"  [b13-1_coletor-de-mel-na-arvore-puxando-favo_00-30-51.jpg]
+📷 31:02 — Cena pornô explícita (mulher ruiva deitada); legenda "Imagine the look"  [b13-1_cena-porno-explicita-mulher-ruiva-deit_00-31-02.jpg]
+📷 31:12 — Homem grisalho elegante (blazer, calça branca) andando numa rua de cidade europeia, mulheres olhando; legenda "Imagine walking down"  [b13-1_homem-grisalho-elegante-blazer_00-31-12.jpg]
+📷 31:22 — Jovem loira de olhos azuis com dedo na boca (clipe sensual); legenda "Making women notice"  [b13-1_jovem-loira-de-olhos-azuis-com-dedo-na_00-31-22.jpg]
+📷 31:34 — Mulher loira em P&B, frustrada na cama, ícone "PLAY"; legenda "That disappointed look"  [b13-1_mulher-loira-em-p-b_00-31-34.jpg]
+DR. MICHAEL CARTER (urologista): E depois de tudo que você viu aqui, você pode estar pensando: eu quero tudo isso, mas quanto vai me custar? Deixa eu ser direto com você. Nem o Elon nem eu estamos ganhando um único centavo com isso. Cada dólar do HoneyFil volta pra Neuralink, pra produzir mais frascos, colher mais mel vermelho no Nepal e colocar isso nas mãos do maior número possível de homens americanos. Antes que a Pfizer nos feche. Só imagina acordar de manhã com uma ereção dura feito pedra. Imagina a cara da sua esposa quando você desliza a sua haste dura feito ferro dentro dela, dando a ela o tipo de prazer que ela não sente há anos. Isso vai fazer você se sentir um homem de verdade de novo. Imagina andar na rua com confiança e, aonde quer que você vá, sua testosterona irradiando como um feromônio, disparando uma resposta automática no subconsciente feminino, fazendo as mulheres te notarem, te desejarem e até ficarem... Mas se você não agir, nada vai mudar. Você vai continuar lidando com a humilhação de uma ereção que não dura, aquele olhar de decepção no rosto dela ou, pior, aquele silêncio constrangedor depois de mais uma noite fracassada. Você sabe exatamente o que isso significa: mais noites deitado de costas pra ela, se perguntando o que há de errado com você.
+
+## 13.2 ⏱ 31:46 → 32:00
+📷 31:46 — Dr. Michael Carter no consultório; legenda "Look,"  [b13-2_dr-michael-carter-no-consultorio_00-31-46.jpg]
+📷 31:55 — Homem em P&B com as mãos no rosto num sofá, porta-retratos de família, ícone "PLAY"; legenda "It happened to"  [b13-2_homem-em-p-b-com-as-maos-no-rosto-num_00-31-55.jpg]
+DR. MICHAEL CARTER (urologista): Olha, eu estou aqui pra te dar uma solução e deixar a sua cabeça tranquila. Não há nada de errado com você. É completamente normal homens acima de 40 passarem por isso. Aconteceu com o Elon, e a única coisa que consertou eles é a mesma coisa que está prestes a consertar você.
+
+## 13.3 ⏱ 32:01 → 32:23
+📷 32:11 — Mulher borrada ao fundo, lettering verde grande "HONEYFIL ABSOLUTELY SAVED OUR MARRIAGE"  [b13-3_mulher-borrada-ao-fundo_00-32-11.jpg]
+📷 32:21 — Depoimento: mulher morena com toalha na cabeça deitada na cama falando pra câmera; legenda "do,"  [b13-3_depoimento-mulher-morena-com-toalha-na_00-32-21.jpg]
+MULHER/ESPOSA (depoimento): Eu sempre amei meu marido, mas depois que ele parou de ficar duro, nosso casamento ficou insuportável. Eu estava até começando a considerar o divórcio. Eu tolerava as brigas, mas a falta de sexo era insuportável. O HoneyFil salvou o nosso casamento, sem dúvida. Nosso sexo agora é mais selvagem do que quando a gente se conheceu, e o pau dele... Meu Deus, ficou enorme e cheio de veias. A gente quase não briga mais, e quando briga, resolve fazendo amor na bancada da cozinha.
+
+## 13.4 ⏱ 32:23 → 32:59
+📷 32:30 — Fundo escuro, lettering vermelho "NOBODY DESERVES THAT"  [b13-4_fundo-escuro_00-32-30.jpg]
+📷 32:39 — Frascos HONEYFIL MALE girando em anel dourado; legenda "the six month"  [b13-4_frascos-honeyfil-male-girando-em-anel_00-32-39.jpg]
+📷 32:49 — Homem de barba branca e camisa rosa ao telefone; legenda "or make one"  [b13-4_homem-de-barba-branca-e-camisa-rosa-ao_00-32-49.jpg]
+📷 32:59 — Frame estourado amarelo com homem; legenda amarela "I owe Elon"  [b13-4_frame-estourado-amarelo-com-homem_00-32-59.jpg]
+DR. MICHAEL CARTER (urologista): Vamos ser honestos: a pior humilhação que um homem pode viver é ver a frustração nos olhos da mulher que ele mais ama. Ninguém merece isso. Por isso estamos garantindo o HoneyFil com uma garantia de devolução do dinheiro de 60 dias, mais forte do que qualquer coisa que a indústria farmacêutica já ofereceu. A gente te envia o tratamento de 6 meses, você toma as cápsulas diariamente por 60 dias e, se não sentir diferença nas suas ereções ou não vir o aumento de 2 a 3 polegadas de tamanho, tudo que você precisa fazer é mandar um e-mail ou dar um telefonema. Devolvemos cada centavo e, além disso, mandamos 200 dólares a mais direto pra sua conta só pelo incômodo de ter experimentado. Fica com os frascos, fica com os 200 dólares. É assim que estamos confiantes.
+
+## 13.5 ⏱ 32:59 → 33:30
+📷 33:14 — Frascos HONEYFIL MALE girando; legenda "they told me"  [b13-5_frascos-honeyfil-male-girando_00-33-14.jpg]
+📷 33:26 — Depoimento: homem de meia-idade de óculos e camisa xadrez sentado (sério); legenda amarela "After 14 years"  [b13-5_depoimento-homem-de-meia-idade-de-ocul_00-33-26.jpg]
+HOMEM (depoimento): Devo um pedido de desculpas ao Elon. Quando meus 6 frascos chegaram, minha esposa me olhou com desprezo e disse que era só mais um golpe. Sem hesitar, mandei um e-mail pedindo pra acionar a garantia. Não só me mandaram os 200 dólares pelo incômodo, como me disseram pra ficar com os frascos e experimentar. Isso me desarmou completamente. Decidi dar uma chance de verdade. No dia 4, acordei com uma ereção que eu não sentia há anos. Dobrei ela ali mesmo. Fiz ela gozar duas vezes antes do café. Depois de 14 anos de casamento, agora eu dou múltiplos orgasmos pra ela toda noite.
+
+# BLOCO 14 — OFERTA: subsídio da Neuralink, "o menor preço que já cobramos", os advogados da Pfizer [33:30 – 34:44]
+
+## 14.1 ⏱ 33:30 → 34:36
+📷 33:36 — Dr. Michael Carter no consultório; legenda "We wouldn't offer"  [b14-1_dr-michael-carter-no-consultorio_00-33-36.jpg]
+📷 33:47 — Fundo borrado, lettering verde "ALONGSIDE ELON."  [b14-1_fundo-borrado_00-33-47.jpg]
+📷 33:56 — Laboratório moderno vazio com braços robóticos e frascos; legenda "With Elon's own"  [b14-1_laboratorio-moderno-vazio-com-bracos-r_00-33-56.jpg]
+📷 34:06 — Cena explícita em P&B, ícone "PLAY"; legenda "the man who"  [b14-1_cena-explicita-em-p-b_00-34-06.jpg]
+📷 34:18 — Dr. Michael Carter borrado, lettering verde "THE LOWEST WE'VE EVER CHARGED,"  [b14-1_dr-michael-carter-borrado_00-34-18.jpg]
+📷 34:27 — Frascos HONEYFIL MALE girando; legenda "We're subsidizing"  [b14-1_frascos-honeyfil-male-girando_00-34-27.jpg]
+📷 34:37 — Dr. Michael Carter no consultório; legenda "because Neuralink can"  [b14-1_dr-michael-carter-no-consultorio_00-34-37.jpg]
+DR. MICHAEL CARTER (urologista): Se você estava cético, eu entendo. É difícil de acreditar mesmo. Mas experimente. Você não vai se arrepender. A gente não ofereceria uma garantia tão longa se não tivesse certeza. Você tem 60 dias completamente sem risco pra testar o HoneyFil. É por isso que eu ainda estou aqui. Este é o projeto em que eu coloco o meu nome ao lado do Elon. Quando desenvolvemos o HoneyFil, cada frasco custava mais de 1.000 dólares. Tínhamos que importar o mel vermelho direto dos apicultores do Himalaia. Com a estrutura própria do Elon no Nepal e o laboratório em Woodinville, o custo caiu pra 500 dólares por frasco. Mas não foi pra esse cara que construímos isso. Construímos isso pro homem que está falhando com a esposa hoje à noite. O homem que não fica duro há meses. O homem a uma briga de perder a única mulher que realmente o amou. Então o Elon pediu à Neuralink pra baixar o preço pra 189 dólares por frasco. O menor que já cobramos, e o menor que jamais cobraremos. Mas nem isso foi suficiente pra ele. Então ele foi um passo além, algo que a Neuralink nunca fez antes. Estamos subsidiando 4 frascos de cada 6, pagos inteiramente pela Neuralink. Então, só por estar aqui agora, a Neuralink está pagando 4 dos seus 6 frascos. Você paga só 2.
+
+## 14.2 ⏱ 34:37 → 34:44
+📷 34:40 — Dr. Michael Carter no consultório, enfático; legenda "many bottles"  [b14-2_dr-michael-carter-no-consultorio_00-34-40.jpg]
+DR. MICHAEL CARTER (urologista): Mas como a Neuralink só pode subsidiar um certo número de frascos antes de os advogados da Pfizer entrarem em ação, esta oferta fica travada pra todo homem que pedir hoje.
+
+# BLOCO 15 — ELON INTERROMPE: Nobel, os primeiros 20, o iate e a hostess [34:45 – 36:36]
+
+## 15.1 ⏱ 34:45 → 35:56
+📷 34:47 — Elon Musk de suéter preto sentado a uma mesa branca num laboratório/fábrica falando pra câmera; legenda "if this video"  [b15-1_elon-musk-de-sueter-preto-sentado-a-um_00-34-47.jpg]
+📷 34:58 — Homem idoso nu com mulher (cena explícita em sauna/spa); legenda "in male health"  [b15-1_homem-idoso-nu-com-mulher-cena-explici_00-34-58.jpg]
+📷 35:08 — Elon Musk borrado ao fundo, lettering branco grande "THE RIGHT WAY"  [b15-1_elon-musk-borrado-ao-fundo_00-35-08.jpg]
+📷 35:19 — Frascos HONEYFIL MALE em padrão caleidoscópico; legenda "If you're one"  [b15-1_frascos-honeyfil-male-em-padrao-caleid_00-35-19.jpg]
+📷 35:29 — Homem idoso de cardigã verde olhando o celular e sorrindo; legenda "the moment your"  [b15-1_homem-idoso-de-cardiga-verde-olhando-o_00-35-29.jpg]
+📷 35:39 — Iate de luxo em alto-mar; legenda "you're personally invited"  [b15-1_iate-de-luxo-em-alto-mar_00-35-39.jpg]
+📷 35:49 — Mulher de vestido branco na varanda de um navio ao pôr do sol; legenda "your own balcony"  [b15-1_mulher-de-vestido-branco-na-varanda-de_00-35-49.jpg]
+ELON MUSK (imagem/voz sintética): Então, ei, desculpa interromper o Michael aqui. Se este vídeo apareceu pra você neste verão, você é um dos poucos sortudos selecionados pra receber a maior oferta já feita com essa fórmula. Enquanto eu falo com você, o HoneyFil está sendo submetido como candidato ao Prêmio Nobel de Saúde Masculina. E pra garantir essa indicação, precisamos transformar a vida do máximo de homens possível. Homens de verdade, de idades e condições de saúde diferentes, passando pelo tratamento completo, do jeito certo, por 180 dias. Não adianta tomar só 1 ou 2 cápsulas e ficar satisfeito por ter as ereções de volta. Precisamos do quadro completo de melhora. E é aí que você entra. Se você for um dos primeiros 20 homens a pegar o tratamento completo de 6 frascos hoje, a Neuralink não vai cobrir só 4 frascos. A Neuralink vai cobrir cada um deles. No momento em que o seu pagamento for aprovado, minha equipe processa um reembolso total direto na sua conta. 6 frascos, 6 meses de tratamento, você paga zero. Além disso, você é convidado pessoalmente pra um fim de semana no meu iate particular. Voo de primeira classe pra você e uma acompanhante. Tudo que quiser da cozinha, 24 horas por dia, todas as despesas pagas. Você terá a sua própria suíte com a sua própria varanda de frente pro mar aberto. O que acontecer entre vocês dois atrás daquela porta fechada não é da conta de ninguém além de vocês.
+
+## 15.2 ⏱ 35:56 → 36:36
+📷 36:03 — Cena explícita numa varanda de navio; legenda "You can watch"  [b15-2_cena-explicita-numa-varanda-de-navio_00-36-03.jpg]
+📷 36:12 — Frascos HONEYFIL MALE em padrão caleidoscópico; legenda "Only the"  [b15-2_frascos-honeyfil-male-em-padrao-caleid_00-36-12.jpg]
+📷 36:30 — Fundo borrado, lettering verde "YOU'LL ONLY PAY $49 PER BOTTLE."  [b15-2_fundo-borrado_00-36-30.jpg]
+ELON MUSK (imagem/voz sintética): E se preferir vir sozinho, eu pessoalmente vou garantir que uma das minhas hostess cuide muito bem de você durante toda a estadia. Você pode ver o nascer do sol do convés enquanto fode uma mulher linda dobrada sobre a amurada, aquele pau novo enterrado fundo dentro dela. Enquanto ela implora pra você não parar. Mas entenda: só os primeiros 20 levam tudo isso. 6 frascos pagos pela Neuralink, reembolso total instantâneo, zero do seu bolso, mais o fim de semana no iate. Se você não estiver entre os primeiros 20, ainda sai com o negócio da sua vida. Em vez de pagar 189 dólares por frasco, o que daria 1.134 dólares, você vai pagar só 49 dólares por frasco, 66% de desconto sobre o menor preço que já oferecemos. Esse é o negócio.
+
+# BLOCO 16 — BÔNUS 1 "The Lesbian Trick", o botão verde, o contador no canto da tela, checkout seguro [36:37 – 39:12]
+
+## 16.1 ⏱ 36:37 → 37:05
+📷 36:43 — Frascos HONEYFIL MALE girando; legenda "Anyone who secures"  [b16-1_frascos-honeyfil-male-girando_00-36-43.jpg]
+📷 36:53 — Três mulheres se abraçando (cena sensual, bônus); legenda "Where three professional"  [b16-1_tres-mulheres-se-abracando-cena-sensua_00-36-53.jpg]
+DR. MICHAEL CARTER (urologista): E porque eu quero que você entre no quarto da sua esposa hoje à noite e domine ela como ela nunca foi dominada antes, qualquer um que garantir o pacote de 6 frascos hoje sai com um bônus exclusivo: 60 dias de acesso a um curso privado chamado The Lesbian Trick (O Truque das Lésbicas), em que 3 lésbicas profissionais revelam sem censura a técnica exata que usam pra fazer as parceiras revirarem os olhos de... Já se perguntou por que as lésbicas conseguem manter as mulheres loucamente apaixonadas e fiéis por anos?
+
+## 16.2 ⏱ 37:06 → 37:28
+📷 37:06 — Cena explícita com várias mulheres (bônus lésbico); legenda amarela "IT'S BECAUSE WE"  [b16-2_cena-explicita-com-varias-mulheres-bon_00-37-06.jpg]
+📷 37:15 — Três mulheres sentadas num sofá de estúdio (logo "Xfollow" ao fundo) falando pra câmera + inserto explícito; legenda amarela "WE'RE GOING TO"  [b16-2_tres-mulheres-sentadas-num-sofa-de-est_00-37-15.jpg]
+PRODUTORAS DO BÔNUS (clipe): É porque nós conhecemos o corpo feminino como ninguém. Sabemos exatamente onde tocar, como tocar e quando tocar. É ciência do prazer aplicada com precisão cirúrgica. Vamos te ensinar a encontrar e estimular os botões de prazer que fazem qualquer mulher gozar 2, 3, até 4 vezes seguidas, até as que juram que nunca tiveram um orgasmo na vida. E tudo isso sem precisar durar horas, só com a técnica certa no momento certo.
+
+## 16.3 ⏱ 37:28 → 38:01
+📷 37:38 — Frascos HONEYFIL MALE girando; legenda "But today,"  [b16-3_frascos-honeyfil-male-girando_00-37-38.jpg]
+📷 37:47 — Frascos HONEYFIL MALE girando com seta branca para baixo; legenda "That's where you"  [b16-3_frascos-honeyfil-male-girando-com-seta_00-37-47.jpg]
+📷 37:56 — Frasco HONEYFIL MALE PERFORMANCE (30 gummies) numa mesa de madeira rústica; legenda "If you see"  [b16-3_frasco-honeyfil-male-performance-30-gu_00-37-56.jpg]
+DR. MICHAEL CARTER (urologista): Essa aula é extremamente explícita. Elas filmaram cenas reais com lésbicas tendo múltiplos orgasmos usando essa técnica. Normalmente vendemos esse conteúdo por 100 dólares, mas hoje, se você for um dos homens que garantir o tratamento de 6 frascos, você recebe acesso completo e ilimitado por 60 dias, totalmente de graça. Abaixo deste vídeo, você vai ver um botão verde. É ali que você garante o seu pacote de 6 frascos. Se você vir 294 dólares, significa que o subsídio ainda está ativo. Você ainda está a tempo. Se vir 1.134, significa que os primeiros 20 já foram e a Neuralink parou de pagar.
+
+## 16.4 ⏱ 38:02 → 38:17
+📷 38:09 — Elon Musk borrado ao fundo, lettering branco grande "SEE THE SECOND ONE?"  [b16-4_elon-musk-borrado-ao-fundo_00-38-09.jpg]
+ELON MUSK (imagem/voz sintética): Olhe pro canto superior direito da sua tela agora. Está vendo aquele número caindo? Toda vez que ele cai, outro homem acabou de pegar uma vaga que podia ter sido sua. Está vendo o segundo? É quantos homens estão nesta exata página com você neste exato segundo, decidindo se clicam antes de você. É por isso que você não espera.
+
+## 16.5 ⏱ 38:17 → 39:12
+📷 38:18 — Frame estourado amarelo; legenda "there are men"  [b16-5_frame-estourado-amarelo_00-38-18.jpg]
+📷 38:32 — Selos neon verdes "100% SECURE" repetidos; legenda "Your data is"  [b16-5_selos-neon-verdes-100-secure-repetidos_00-38-32.jpg]
+📷 38:44 — Homem de barba branca e camisa clara falando com as mãos (sala); legenda "Money back in"  [b16-5_homem-de-barba-branca-e-camisa-clara-f_00-38-44.jpg]
+📷 38:59 — Homem idoso de camisa jeans sorrindo com notas de dólar ao fundo; legenda "the money comes"  [b16-5_homem-idoso-de-camisa-jeans-sorrindo-c_00-38-59.jpg]
+DR. MICHAEL CARTER (urologista): Não hesite. Tem homens assistindo a este vídeo agora, neste exato momento, clicando antes de você terminar esta frase. No instante em que você clica, você é levado pra uma página de checkout segura. A mesma criptografia usada pelo JPMorgan Chase. Seus dados estão seguros. Preencha seu nome, seu endereço de entrega, seu pagamento. 3 minutos no total. No momento em que o seu pedido for aprovado, se você for um dos primeiros 20, a Neuralink processa o seu reembolso em 3 minutos. Dinheiro de volta na sua conta antes mesmo de o HoneyFil ser enviado. Então aqui está o que eu preciso que você faça. Pegue o seu cartão agora. Quando eu disser "vai", role pra baixo, clique no botão verde do pacote de 6 frascos, finalize o checkout. Se você estiver entre os primeiros 20, o dinheiro volta, o fim de semana no iate fica garantido e 6 frascos são enviados discretamente pra sua porta. 3, 2, 1, vai! Clique no botão abaixo agora mesmo. E garanta os seus 6 frascos antes que os primeiros 20 acabem.
+
+# BLOCO 17 — DEPOIMENTO DO IATE + DR. DAVID SAMADI + 77% reivindicados + bônus 2 e 3 (posições, textos, "a sala") [39:12 – 43:07]
+
+## 17.1 ⏱ 39:12 → 39:39
+📷 39:13 — Homem grisalho num iate com filtro amarelo estourado; legenda amarela "I gotta thank"  [b17-1_homem-grisalho-num-iate-com-filtro-ama_00-39-13.jpg]
+📷 39:24 — Cena explícita (varanda); legenda amarela "I fucked her"  [b17-1_cena-explicita-varanda_00-39-24.jpg]
+📷 39:35 — Cena explícita (lingerie preta); legenda amarela "That weekend was"  [b17-1_cena-explicita-lingerie-preta_00-39-35.jpg]
+HOMEM (depoimento): Elon, eu tenho que te agradecer. O iate, a suíte, a comida: insano. Mas o que me pegou foi a Lana, a hostess que você designou pra mim. Ela entrou na minha suíte na primeira noite usando só um roupão, disse que você mandou ela cuidar de mim. Fodi ela na varanda com o sol nascendo, dobrada sobre a amurada exatamente como você disse. Ela gozou tão forte que as pernas cederam, tive que segurar ela pelos quadris. 3 dias, 3 noites, ela não saiu da suíte uma vez. Aquele fim de semana foram os melhores 3 dias da minha vida, e só aconteceu por causa do HoneyFil.
+
+## 17.2 ⏱ 39:39 → 40:08
+📷 39:45 — Frascos HONEYFIL MALE enfileirados numa mesa com monitor de gráficos ao fundo; legenda amarela "I recently incorporated"  [b17-2_frascos-honeyfil-male-enfileirados-num_00-39-45.jpg]
+📷 39:57 — Cena de sexo oral explícita (mulher de óculos); legenda "My patients,"  [b17-2_cena-de-sexo-oral-explicita-mulher-de_00-39-57.jpg]
+DR. DAVID SAMADI: Olá, eu sou o Dr. David Samadi, formado em Harvard, residência em urologia na Johns Hopkins. Recentemente incorporei o HoneyFil ao meu protocolo, e no começo eu estava cético. Eu estava errado. Ele restaura ereções duradouras e aumenta significativamente o tamanho e a espessura do pênis. Meus pacientes, que antes dependiam de vários medicamentos sem sucesso, agora relatam melhoras extraordinárias. Sem dúvida, este é um avanço revolucionário no cuidado sexual masculino.
+
+## 17.3 ⏱ 40:08 → 41:18
+📷 40:09 — Depósito com prateleiras quase vazias de frascos; legenda "About 77% of"  [b17-3_deposito-com-prateleiras-quase-vazias_00-40-09.jpg]
+📷 40:22 — Caixa de presente vermelha com laço dourado; legenda "today walks away"  [b17-3_caixa-de-presente-vermelha-com-laco-do_00-40-22.jpg]
+📷 40:33 — Cena pornô explícita (casal na cama); legenda "12 secret techniques"  [b17-3_cena-porno-explicita-casal-na-cama_00-40-33.jpg]
+📷 40:45 — Cena pornô explícita (mulher loira de camisa azul); legenda "making her beg"  [b17-3_cena-porno-explicita-mulher-loira-de-c_00-40-45.jpg]
+📷 40:58 — Cena explícita com fantasia de carnaval (penas amarelas); legenda "The exact positions"  [b17-3_cena-explicita-com-fantasia-de-carnava_00-40-58.jpg]
+📷 41:09 — Cena explícita (caleidoscópio); legenda "intensity,"  [b17-3_cena-explicita-caleidoscopio_00-41-09.jpg]
+DR. MICHAEL CARTER (urologista): Cerca de 77% dos nossos frascos subsidiados já foram reivindicados, só restam 56. Então, pra facilitar a sua decisão e fazer a sua mulher gritar mais alto, qualquer um que garantir o pacote de 3 ou 6 frascos hoje sai com 3 bônus exclusivos. Além do curso Lesbian Trick que o Elon já deu. O bônus número 1 é o curso do Johnny Sins sobre como durar mais de 60 minutos na cama. 12 técnicas secretas que qualquer homem pode usar em menos de 5 minutos por dia pra ter controle total sobre quando goza. Imagina durar mais de uma hora sem perder o ritmo, fazendo ela implorar por uma pausa enquanto goza de novo e de novo. Você nunca mais vai terminar cedo demais. Ela vai ficar obcecada por você. O bônus número 2 é o Manual Proibido de Posições Sexuais Brasileiras. As posições exatas que os homens brasileiros usam durante o Carnaval, o festival em que eles fodem nas ruas por 7 dias seguidos. Posições ancestrais criadas pra maximizar penetração, intensidade e prazer. Não basta ter um pau mais duro, mais grosso, mais comprido. Você tem que usar ele de jeitos que ela nunca imaginou.
+
+## 17.4 ⏱ 41:18 → 41:50
+📷 41:21 — Cena pornô explícita (calcinha vermelha); legenda "twist in pleasure,"  [b17-4_cena-porno-explicita-calcinha-vermelha_00-41-21.jpg]
+📷 41:35 — Depoimento: homem idoso grisalho de camisa branca e calça jeans de pé numa sala com flores; legenda "Especially when she"  [b17-4_depoimento-homem-idoso-grisalho-de-cam_00-41-35.jpg]
+📷 41:47 — Cena explícita (close genital feminino); legenda "Some women show"  [b17-4_cena-explicita-close-genital-feminino_00-41-47.jpg]
+DR. MICHAEL CARTER (urologista): Com... Nessas posições, ela geme mais alto, se contorce de prazer, implora por mais e nunca mais olha pra outro homem. O bônus número 3 é o Script de Feromônio, uma sequência secreta de mensagens de texto que faz qualquer mulher te desejar antes do primeiro encontro, principalmente quando ela começa a notar o volume na sua calça. Não são cantadas, não é charme falso, é um script psicológico que ativa o instinto sexual mais profundo dela. Algumas mulheres aparecem sem calcinha, já encharcadas.
+
+## 17.5 ⏱ 41:50 → 42:01
+📷 42:01 — Cena explícita (mulher de costas na cama); legenda "This thing flips"  [b17-5_cena-explicita-mulher-de-costas-na-cam_00-42-01.jpg]
+HOMEM (depoimento): Comecei a usar essas mensagens há 2 semanas. 5 garotas até agora, incluindo umas que me ignoravam antes. Elas chegam com tesão, me agarram por cima do jeans, perdem a cabeça quando eu tiro pra fora. Cada uma delas gemendo sem parar.
+
+## 17.6 ⏱ 42:01 → 42:19
+📷 42:12 — Cena pornô explícita (caleidoscópio); legenda "That's why she"  [b17-6_cena-porno-explicita-caleidoscopio_00-42-12.jpg]
+DR. MICHAEL CARTER (urologista): Isso vira uma chave na cabeça dela. Não importa se ela é fria ou se tem namorado. Depois que você usa, é ela quem corre atrás de você. Você vai deixar ela pingando antes mesmo de abrir o zíper. É por isso que ela não vai pensar em outros homens. Ela vai ficar obcecada pelo seu tamanho, pelo seu controle e pelo jeito que o seu pau faz ela perder o controle.
+
+## 17.7 ⏱ 42:19 → 42:42
+📷 42:24 — Cena pornô explícita (mulher loira); legenda "I stole a"  [b17-7_cena-porno-explicita-mulher-loira_00-42-24.jpg]
+📷 42:35 — Casal (homem grisalho e mulher morena) sentados no sofá falando pra câmera; legenda "\"why the fuck"  [b17-7_casal-homem-grisalho-e-mulher-morena-s_00-42-35.jpg]
+HOMEM (depoimento): Preciso te contar uma coisa maluca. Sou um encanador de 52 anos de Ohio. 6 meses de HoneyFil e eu roubei uma modelo da Playboy de um gestor de fundo de investimento de Manhattan. Ela estava noiva dele. Anel de diamante de verdade, uma pedra de 200.000 dólares. Ela me conheceu num bar, foi pra casa comigo na mesma noite, largou ele uma semana depois. As palavras exatas dela, enquanto cavalgava em mim às 3 da manhã, foram: "por que diabos eu me contentei com aquele riquinho mole?" É isso que o HoneyFil faz. Ele não só te conserta. Ele te transforma no cara pra quem os outros caras perdem as mulheres, rico ou não.
+
+## 17.8 ⏱ 42:42 → 43:07
+📷 42:45 — Dr. Michael Carter borrado ao fundo, lettering vermelho grande "$5,000"  [b17-8_dr-michael-carter-borrado-ao-fundo_00-42-45.jpg]
+📷 42:54 — Dr. Michael Carter no consultório gesticulando; legenda "you may not"  [b17-8_dr-michael-carter-no-consultorio-gesti_00-42-54.jpg]
+DR. MICHAEL CARTER (urologista): No total, esses bônus valem mais de 5.000 dólares. Você paga zero por eles. Eles vêm de graça com o seu pacote de 3 ou 6 frascos hoje. Mas preciso ser honesto com você. Você pode não encontrar esta página de novo. A Pfizer está desesperada pra derrubar essa informação. Se você ainda está aqui, não hesite. Da próxima vez pode ter sumido, e você terá perdido a sua única chance real de recuperar a sua masculinidade.
+
+# BLOCO 18 — WILL SMITH / JADA + atriz + recap do Dr. Michael [43:07 – 45:19]
+
+## 18.1 ⏱ 43:07 → 43:56
+📷 43:08 — Imagem de Will Smith de boné branco e polo falando pra câmera; legenda amarela "story."  [b18-1_imagem-de-will-smith-de-bone-branco-e_00-43-08.jpg]
+📷 43:21 — Seis frascos HONEYFIL MALE numa bancada de pedra com jardim ao fundo; legenda amarela "I found HoneyFil."  [b18-1_seis-frascos-honeyfil-male-numa-bancad_00-43-21.jpg]
+📷 43:34 — Duas mulheres de lingerie branca de costas (caleidoscópio); legenda amarela "One night,"  [b18-1_duas-mulheres-de-lingerie-branca-de-co_00-43-34.jpg]
+📷 43:45 — Cena explícita (duas mulheres); legenda amarela "I took them"  [b18-1_cena-explicita-duas-mulheres_00-43-45.jpg]
+📷 43:56 — Atriz adulta morena de topless sentada falando pra câmera; legenda amarela "I was sucking"  [b18-1_atriz-adulta-morena-de-topless-sentada_00-43-56.jpg]
+WILL SMITH (imagem/voz sintética): Aqui está a história real. A Jada só me traiu porque eu fiquei impotente. Estou nos meus 50 e poucos. Eu esperava que a minha ferramenta começasse a falhar. Só não esperava que a Jada traísse tão rápido. Logo depois da traição, encontrei o HoneyFil. Tudo mudou. Recuperei o tipo de ereção que me lembrava dos meus 20 anos. Depois de ser traído, parei de dormir com a Jada. Ela traiu, então eu tinha o direito de trair também. Uma noite, um amigo me convidou pra uma festa com mulheres que pareciam atrizes pornô. 2 delas vieram tirar foto comigo. Meu pau ficou duro tão rápido que eu não consegui esconder. Levei as duas pra um dos quartos e destruí as duas. Mais de 2 horas de sexo sem parar. Elas gozaram de novo e de novo. Insano. E eu ainda tomo HoneyFil até hoje.
+
+## 18.2 ⏱ 43:56 → 44:13
+📷 44:05 — Cena pornô explícita; legenda amarela "five minutes"  [b18-2_cena-porno-explicita_00-44-05.jpg]
+ATRIZ ADULTA (clipe): Eu estava chupando o pau desse cara há mais de 20 minutos e ele simplesmente não ficava duro. Aí o produtor apareceu com essa coisa chamada HoneyFil e deu uma goma pra ele. Em menos de 5 minutos, o pau dele estava duro feito pedra e cheio de veias. Foi insano. Depois disso, ele me fodeu por mais de 3 horas seguidas e me fez gozar 7 vezes.
+
+## 18.3 ⏱ 44:14 → 45:19
+📷 44:16 — Elon Musk na cama à noite olhando o celular, mulher ao lado; legenda "richest men in"  [b18-3_elon-musk-na-cama-a-noite-olhando-o-ce_00-44-16.jpg]
+📷 44:26 — Dr. Michael Carter e Elon Musk olhando um monitor de ultrassom/Doppler numa sala de exames; legenda "the demonstration in"  [b18-3_dr-michael-carter-e-elon-musk-olhando_00-44-26.jpg]
+📷 44:35 — Dr. Michael Carter borrado, lettering branco grande "WHERE MEN STAY HARD AT EIGHTY."  [b18-3_dr-michael-carter-borrado_00-44-35.jpg]
+📷 44:45 — Fundo escuro com frascos borrados, lettering verde grande "4 OUT OF EVERY 6 BOTTLES"  [b18-3_fundo-escuro-com-frascos-borrados_00-44-45.jpg]
+📷 44:55 — Cena pornô explícita (mulher loira tatuada); legenda "You either get"  [b18-3_cena-porno-explicita-mulher-loira-tatu_00-44-55.jpg]
+📷 45:06 — Dr. Michael Carter borrado, lettering branco "Tell me. When has Pfizer ever done that for you?"  [b18-3_dr-michael-carter-borrado_00-45-06.jpg]
+📷 45:20 — Hacker de luvas digitando em laptops com código verde (luz vermelha); legenda "Gone before most"  [b18-3_hacker-de-luvas-digitando-em-laptops-c_00-45-20.jpg]
+DR. MICHAEL CARTER (urologista): Hoje, o Elon te contou a história pessoal dele. Um dos homens mais ricos do mundo, impotente na própria cama, perdendo a única mulher que realmente amou. Eu te mostrei a ciência. A placa de xenotoxina entupindo os seus vasos, a demonstração no meu laboratório. Os 37.000 homens que morreram no ano passado por causa das pílulas azuis. O Elon e eu te demos a descoberta. O mel vermelho, colhido por aldeões nos penhascos do Nepal, onde os homens continuam duros aos 80. O Elon construiu a estrutura com o próprio dinheiro. Estações de colheita no Nepal. Laboratório registrado na FDA em Woodinville. Tudo que você viu, real. A Neuralink está pagando 4 de cada 6 frascos. 66% de desconto. 49 dólares por frasco. Garantimos com uma garantia de 60 dias mais forte do que qualquer coisa que a indústria farmacêutica já ofereceu. Ou você recupera a sua masculinidade, ou sai com 200 dólares na sua conta só por ter experimentado. Pros primeiros 20 homens, o Elon está reembolsando a compra inteira e levando você de avião pro iate dele. Me diz: quando a Pfizer já fez isso por você? Quando o Viagra já garantiu a sua ereção de volta ou reembolsou um único dólar? Agora ouça com atenção, porque eu não sei por quanto tempo este vídeo fica no ar. Esta não é a primeira vez que gravamos. Nas 2 primeiras vezes, foi derrubado em poucas horas. Denunciado. Enterrado.
+
+# BLOCO 19 — CENSURA: "enterrado", os hackers, "eles falharam desta vez" [45:20 – 46:02]
+
+## 19.1 ⏱ 45:20 → 46:02
+📷 45:21 — Hacker digitando em laptop com código verde; legenda "men ever saw"  [b19-1_hacker-digitando-em-laptop-com-codigo_00-45-21.jpg]
+📷 45:29 — Dr. Michael Carter no consultório com luz vermelha; legenda "It means they"  [b19-1_dr-michael-carter-no-consultorio-com-l_00-45-29.jpg]
+📷 45:42 — Médico mascarado segurando leque de notas de 100 dólares; legenda "The men who"  [b19-1_medico-mascarado-segurando-leque-de-no_00-45-42.jpg]
+📷 45:59 — Dr. Michael Carter no consultório, enfático; legenda "Now."  [b19-1_dr-michael-carter-no-consultorio_00-45-59.jpg]
+📷 46:00 — Dr. Michael Carter no consultório; legenda "you the choice,"  [b19-1_dr-michael-carter-no-consultorio_00-46-00.jpg]
+DR. MICHAEL CARTER (urologista): Sumiu antes de a maioria dos homens sequer ver o botão. Nos disseram que as pessoas por trás disso não param nas derrubadas, e nós acreditamos. Então, se você está ouvindo a minha voz agora, entenda o que isso significa. Significa que eles falharam em silenciar isso desta vez. Significa que você passou por uma janela que fecha rápido e pode não abrir de novo. Não estou dizendo isso pra te apressar com algum contador falso. Estou dizendo porque é a verdade, e você merece a verdade. Os homens que lucram com a sua impotência têm todos os motivos pra garantir que você nunca termine esta frase. Você terminou. Então, enquanto esta página ainda está na sua frente, enquanto o botão ainda funciona, tome a decisão que um homem toma. Não depois, não depois de pensar e a página sumir amanhã. Agora. Antes de te dar a escolha, preciso que você ouça uma estatística.
+
+# BLOCO 20 — KINSEY 67%, as 2 escolhas, o botão de $294 e o CTA [46:02 – 47:40]
+
+## 20.1 ⏱ 46:02 → 46:23
+📷 46:13 — Dr. Michael Carter borrado, lettering branco grande "67%"  [b20-1_dr-michael-carter-borrado_00-46-13.jpg]
+📷 46:22 — Dr. Michael Carter borrado, lettering branco grande "MAYBE ALREADY HAS."  [b20-1_dr-michael-carter-borrado_00-46-22.jpg]
+DR. MICHAEL CARTER (urologista): Um estudo publicado no ano passado pelo Instituto Kinsey mostrou que 67% das mulheres casadas com homens com disfunção erétil já traíram ou estão considerando ativamente. 67%. Isso significa que, enquanto você está aí sentado pensando se clica, há uma chance de 2 em 3 de a sua esposa estar pensando em "clicar" com outra pessoa. Talvez já tenha.
+
+## 20.2 ⏱ 46:23 → 47:19
+📷 46:32 — Homem de camiseta amarela sentado cabisbaixo, mão de outra pessoa no ombro, ícone "PLAY"; legenda "you feel her"  [b20-2_homem-de-camiseta-amarela-sentado-cabi_00-46-32.jpg]
+📷 46:44 — Cena pornô explícita (mulher ruiva), ícone "PLAY"; legenda "maybe she's already"  [b20-2_cena-porno-explicita-mulher-ruiva_00-46-44.jpg]
+📷 46:55 — Cena de sexo oral explícita (mulher morena); legenda "Day 3,"  [b20-2_cena-de-sexo-oral-explicita-mulher-mor_00-46-55.jpg]
+📷 47:09 — Cena explícita (mulher morena, luz baixa); legenda "Your marriage is"  [b20-2_cena-explicita-mulher-morena_00-47-09.jpg]
+📷 47:19 — Dr. Michael Carter no consultório; legenda "if you still"  [b20-2_dr-michael-carter-no-consultorio_00-47-19.jpg]
+DR. MICHAEL CARTER (urologista): Você só tem 2 escolhas. Na escolha 1, você fecha este vídeo e volta pra esposa que tinha hoje de manhã. Você vê a sua esposa se afastando cada vez mais. Sente o corpo dela ficar tenso quando você toca nela. Ouve o silêncio depois de mais uma noite fracassada. Se pergunta quanto tempo até ela parar de tentar de vez. Talvez ela já tenha desistido. Talvez já esteja olhando pra outro. Talvez já esteja num quarto de hotel com um homem cujo pau funciona. Esse é o caminho que você percorre se não fizer nada. Escolha 2: você clica no botão abaixo agora mesmo. 6 frascos chegam discretamente na sua porta. Dia 3: você acorda duro. Dia 7: você está fodendo a sua esposa do jeito que ela deseja há anos. No mês 6, você é outro homem. Maior, mais duro, no controle, o tipo de homem que as mulheres olham duas vezes na rua. Seu casamento está salvo, sua confiança voltou, e toda mulher que te conhecia antes se pergunta o que aconteceu com você. Esta é a decisão, agora, neste exato momento.
+
+## 20.3 ⏱ 47:19 → 47:40
+📷 47:20 — Dr. Michael Carter no consultório; legenda "see $294 on"  [b20-3_dr-michael-carter-no-consultorio_00-47-20.jpg]
+📷 47:32 — Dr. Michael Carter borrado, lettering verde grande "DON'T LET THIS SLIP."  [b20-3_dr-michael-carter-borrado_00-47-32.jpg]
+DR. MICHAEL CARTER (urologista): Se você ainda vê 294 dólares no botão verde abaixo, o subsídio ainda está ativo. Você ainda está a tempo. Se vê 1.134 dólares, as 20 vagas acabaram e o instituto parou de pagar. Não deixe isso escapar. Clique no botão abaixo. Escolha o seu pacote de 6 frascos. Finalize o checkout em 3 minutos. Na semana que vem, você é outro homem.
+
+# BLOCO 21 — DEPOIMENTOS DAS ESPOSAS: "comprei escondido", "joguei o vibrador no lixo" [47:40 – 49:15]
+
+## 21.1 ⏱ 47:40 → 48:27
+📷 47:41 — Depoimento: mulher loira de lingerie rosa segurando o frasco HONEYFIL MALE falando pra câmera; legenda "for my husband"  [b21-1_depoimento-mulher-loira-de-lingerie-ro_00-47-41.jpg]
+📷 48:03 — Cena pornô explícita (mulher loira); legenda "ripped my dress"  [b21-1_cena-porno-explicita-mulher-loira_00-48-03.jpg]
+📷 48:19 — Cena explícita (mulher loira de lingerie rosa rasgada); legenda "then he carried"  [b21-1_cena-explicita-mulher-loira-de-lingeri_00-48-19.jpg]
+MULHER/ESPOSA (depoimento): Comprei isso pro meu marido escondido. Eu estava farta. 2 anos sem sexo. 2 anos dele virando pro outro lado à noite. Dei uma goma de HoneyFil pra ele sem explicação. Ele achou que era uma bala comum. Naquela noite, ele voltou do trabalho, jogou a pasta no... e olhou pra mim como se não me visse há anos. Me pegou pelo pescoço e me dobrou sobre a ilha da cozinha, levantou o meu vestido, puxou a calcinha pro lado. Senti o pau dele pressionando contra mim, grosso e pesado, como o de outro homem. Ele enfiou até o fim na primeira estocada, e eu gritei. Ele me fodeu ali mesmo até eu arranhar o mármore. Gozei no pau dele duas vezes antes de ele terminar. Depois me carregou pro quarto e fez de novo, e de novo. Meninas, se o seu homem parou de tocar em você, coloque isso no café dele amanhã de manhã. Depois me agradeça.
+
+## 21.2 ⏱ 48:27 → 49:07
+📷 48:38 — Mulher morena borrada, lettering verde grande "HE STARTED TAKING THESE"  [b21-2_mulher-morena-borrada_00-48-38.jpg]
+📷 48:48 — Close explícito masculino (calça cinza); legenda "It was hard"  [b21-2_close-explicito-masculino-calca-cinza_00-48-48.jpg]
+📷 48:58 — Cena pornô explícita (mulher morena de lingerie estampada, relógio dourado); legenda "I came so"  [b21-2_cena-porno-explicita-mulher-morena-de_00-48-58.jpg]
+MULHER/ESPOSA (depoimento): Meu marido costumava durar 2 minutos num dia bom. Eu fingia o orgasmo, dava um beijo de boa noite e esperava ele dormir pra usar o vibrador no banheiro. Esse era o meu casamento. Ele começou a tomar essas gomas. Dia 5, estou lavando a louça e ele chega por trás, levanta a minha saia, desliza a mão entre as minhas pernas. Senti o pau dele por cima do jeans e quase deixei cair... Estava duro, grosso, maior do que eu jamais tinha sentido. Ele me dobrou sobre a pia e me fodeu até a louça tremer no escorredor. 40 minutos. Depois me virou no chão e continuou. Gozei tão forte que chorei. Lágrimas de verdade. Ele não parou. Quando finalmente gozou, não amoleceu. Me puxou pro colo dele e me fez cavalgar de novo. Ah.
+
+## 21.3 ⏱ 49:08 → 49:15
+📷 49:12 — Depoimento: mulher morena de body preto num quarto segurando o frasco HONEYFIL; legenda "I know exactly"  [b21-3_depoimento-mulher-morena-de-body-preto_00-49-12.jpg]
+MULHER/ESPOSA (depoimento): Naquela noite, joguei o vibrador no lixo. Agora, quando ele me procura na cama, eu sei exatamente o que vem. E fico molhada antes mesmo de ele me tocar.
+
+# BLOCO 22 — FAQ COM O ELON + CTA FINAL [49:15 – 52:04]
+
+## 22.1 ⏱ 49:15 → 49:31
+📷 49:17 — Elon Musk na poltrona falando; legenda "I've been getting."  [b22-1_elon-musk-na-poltrona-falando_00-49-17.jpg]
+📷 49:25 — Homem grisalho de barba, suéter laranja, tomando uma goma com copo d'água e frasco HONEYFIL MALE na mesa (filtro amarelo); legenda "HoneyFil was designed"  [b22-1_homem-grisalho-de-barba_00-49-25.jpg]
+📷 49:28 — Elon Musk na poltrona; legenda "you've been dealing"  [b22-1_elon-musk-na-poltrona_00-49-28.jpg]
+ELON MUSK (imagem/voz sintética): Você ainda está aqui. Deixa eu responder às perguntas que tenho recebido. "Sou o Phil, 80 anos. Já tentei de tudo. Pílulas, bombas, terapia de testosterona, suplementos. O HoneyFil vai funcionar pra mim?" Com certeza. O HoneyFil foi criado pra homens de todas as idades. Não importa há quanto tempo você lida com DE ou o que já tentou antes.
+
+## 22.2 ⏱ 49:31 → 50:27
+📷 49:40 — Elon Musk na poltrona gesticulando; legenda "That's why blood"  [b22-2_elon-musk-na-poltrona-gesticulando_00-49-40.jpg]
+📷 49:51 — Cena pornô explícita (quarto, luz baixa); legenda "the way he did"  [b22-2_cena-porno-explicita-quarto_00-49-51.jpg]
+📷 50:01 — Cena pornô explícita (homem musculoso de costas); legenda "After 30 days of daily use,"  [b22-2_cena-porno-explicita-homem-musculoso-d_00-50-01.jpg]
+📷 50:12 — Cena pornô explícita (lingerie rosa); legenda "Men who couldn't last"  [b22-2_cena-porno-explicita-lingerie-rosa_00-50-12.jpg]
+📷 50:25 — Fundo vermelho/laranja com frascos borrados e barra branca de lettering vazia (transição)  [b22-2_fundo-vermelho-laranja-com-frascos-bor_00-50-25.jpg]
+ELON MUSK (imagem/voz sintética): O problema real é a placa de xenotoxina se acumulando nos vasos do seu pênis ao longo de décadas de exposição a pesticidas, plásticos e químicos industriais. É por isso que o sangue nunca chega ao seu pau do jeito que deveria. A icariina do mel vermelho dissolve essa placa e restaura o fluxo sanguíneo completo. Qualquer homem, independentemente da idade, volta a ter ereções firmes e duradouras, como aos 20. "Quanto tempo leva pra ver resultados?" A maioria dos homens sente ereções matinais mais firmes em 2 a 3 dias. Em uma semana, ereções mais frequentes e mais duradouras. Depois de 30 dias de uso diário, mais firmeza, desejo mais forte, controle total e ganhos em comprimento e espessura. Depois de 3 a 6 meses, os resultados ficam dramáticos. Homens que não aguentavam 5 minutos relatam 2 horas seguidas. E não esqueça: você tem uma garantia de 60 dias. Se não vir uma diferença significativa, recebe cada centavo de volta mais 200 dólares pelo incômodo. "O HoneyFil aumenta o tamanho do pênis?" Sim.
+
+## 22.3 ⏱ 50:27 → 51:00
+📷 50:38 — Fundo vermelho/laranja com frascos borrados e barra branca vazia (transição)  [b22-3_fundo-vermelho-laranja-com-frascos-bor_00-50-38.jpg]
+📷 50:49 — Elon Musk na poltrona gesticulando; legenda "It drastically shortens"  [b22-3_elon-musk-na-poltrona-gesticulando_00-50-49.jpg]
+📷 51:00 — Elon Musk na poltrona com filtro laranja; legenda "This is one of the"  [b22-3_elon-musk-na-poltrona-com-filtro-laran_00-51-00.jpg]
+ELON MUSK (imagem/voz sintética): Ao restaurar o fluxo sanguíneo completo nos vasos penianos, o seu pau recebe uma onda massiva, igual a quando você era adolescente. Os resultados variam, mas um aumento de 2 a 3 polegadas no primeiro mês é comum. "Meu marido de 69 anos gozou feito um touro e estava pronto de novo em menos de 10 minutos. Isso é normal?" Completamente normal. A fórmula restaura imediatamente o fluxo sanguíneo e a função erétil. Ela encurta drasticamente o período refratário, ou seja, o tempo entre a ejaculação e a próxima ereção cai pra quase nada. "Tenho pressão alta e diabetes. Posso tomar HoneyFil?" Sim!
+
+## 22.4 ⏱ 51:00 → 51:43
+📷 51:10 — Homem musculoso numa oficina bebendo água, frasco HONEYFIL MALE na bancada; legenda "high blood pressure,"  [b22-4_homem-musculoso-numa-oficina-bebendo-a_00-51-10.jpg]
+📷 51:20 — Elon Musk na poltrona com filtro laranja; legenda "HoneyFil works"  [b22-4_elon-musk-na-poltrona-com-filtro-laran_00-51-20.jpg]
+📷 51:29 — Elon Musk na poltrona com filtro vermelho; legenda "We know privacy matters,"  [b22-4_elon-musk-na-poltrona-com-filtro-verme_00-51-29.jpg]
+📷 51:41 — Fundo vermelho/laranja com frascos borrados e barra branca vazia (transição)  [b22-4_fundo-vermelho-laranja-com-frascos-bor_00-51-41.jpg]
+ELON MUSK (imagem/voz sintética): Essa é uma das maiores vantagens do HoneyFil sobre os remédios farmacêuticos. Ao contrário das pílulas com efeitos colaterais perigosos, o HoneyFil é 100% natural e seguro pra homens com diabetes, pressão alta ou colesterol alto. Ele também melhora a circulação, reduz a inflamação e apoia a saúde geral. "Preciso mudar a minha dieta pro HoneyFil funcionar?" Não! O HoneyFil funciona independentemente do seu estilo de vida. A fórmula ataca o problema pela raiz, sem mudanças drásticas. "Como o HoneyFil será entregue? É discreto?" Completamente discreto. Sabemos que privacidade importa, principalmente se você quer surpreender a sua esposa ou guardar isso só pra você. Seu pedido chega numa embalagem simples, sem identificação. O nome da empresa na fatura do seu cartão não tem nenhuma referência ao HoneyFil. "Como eu começo?" Simples.
+
+## 22.5 ⏱ 51:43 → 52:04
+📷 51:53 — Elon Musk na poltrona falando; legenda "This is the project"  [b22-5_elon-musk-na-poltrona-falando_00-51-53.jpg]
+📷 52:02 — Frascos HONEYFIL MALE girando em anel dourado com seta branca para baixo; legenda "Claim your six bottles"  [b22-5_frascos-honeyfil-male-girando-em-anel_00-52-02.jpg]
+ELON MUSK (imagem/voz sintética): Escolha abaixo o kit que melhor atende às suas necessidades. Complete o seu pedido na página de checkout segura. O HoneyFil chega na sua porta em poucos dias. Pronto pra mudar a sua vida pra sempre. Este é o projeto em que eu coloco o meu nome. A Neuralink está pagando 4 de cada 6 frascos, mas só enquanto o subsídio durar. Clique no botão verde abaixo agora mesmo. Reivindique os seus 6 frascos antes que os primeiros 20 acabem.
+

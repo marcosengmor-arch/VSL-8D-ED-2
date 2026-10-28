@@ -1,0 +1,458 @@
+HONEYFIL MALE 26/10 VSL — Transcrição EN + Tradução PT-BR + Prints
+
+Fonte: HONEYFIL MALE 26/10 (.mp4, 52:12, 404x720 vertical, 278 MB; recebida via Google Drive em 28/10/2026). Transcrição: AssemblyAI (speaker labels) a partir do áudio original. Tradução fiel: nomes, marcas, valores em dólares, polegadas e referências dos EUA mantidos exatamente como falados.
+
+Timing: cada mini-bloco traz o intervalo de tempo x → y em que aquela fala acontece no vídeo. Prints: 281 frames dos momentos mais importantes (lettering, provas, personagens, produto, oferta, bônus), nomeados bN-M_descricao_HH-MM-SS.jpg na pasta frames/. Marca d'água "CBS NEWS" aparece no canto inferior direito de praticamente todo o vídeo a partir de 5:41.
+
+Falantes (papéis atribuídos pelo conteúdo, a partir da diarização automática; "imagem/voz sintética" = figura pública reproduzida por IA/deepfake): ATRIZ ADULTA (clipe) · NARRADOR (voz em off) · ELON MUSK (imagem/voz sintética) · DR. MICHAEL CARTER (urologista) · HOMEM (depoimento) · CEO FARMACÊUTICO (chamada de vídeo) · DR. MEHMET OZ (imagem) · AMIGO DO ELON (depoimento) · DRA. ANNIKA ACKERMAN (uróloga) · MULHER/ESPOSA (depoimento) · PRODUTORAS DO BÔNUS (clipe) · DR. DAVID SAMADI · WILL SMITH (imagem/voz sintética)
+
+Correções de transcrição (ASR): nome do produto normalizado para 'HoneyFil' (ASR: Honeyphil/HoneyPhil/Honeyfill; o frasco diz HONEYFIL FOR MEN MALE PERFORMANCE); 'icarian/Icarin/Icaren' → 'icariin' (icariina); reticências (…) e frases cortadas indicam cortes de edição no áudio original. Conteúdo sexual explícito transcrito/traduzido como falado.
+
+# Estrutura da VSL (22 blocos)
+
+BLOCO 1 — LEAD / GANCHO: o ritual do mel, Rogan, "Pfizer tentou matar o Elon", Riley Reid e a promessa — 0:00 → 5:31
+
+BLOCO 2 — ELON ENTRA: recusa o dinheiro, a história (a esposa, o Viagra, as bombas, o armário) — 5:32 → 9:58
+
+BLOCO 3 — A INVESTIGAÇÃO: Viagra, o estudo da Nature (37.000 mortos), xenotoxinas, a placa que "não é colesterol" — 9:59 → 12:11
+
+BLOCO 4 — A DESCOBERTA: mel vermelho do Himalaia + 3 ingredientes, o mecanismo (Doppler, testosterona, o composto) — 12:11 → 16:42
+
+BLOCO 5 — O PRIMEIRO TESTE DO ELON: a noite, as veias, "algo enorme nas mãos" — 16:43 → 17:50
+
+BLOCO 6 — DR. MICHAEL CARTER: o mel vermelho, a icariina, os 3 compostos e os 120 pacientes — 17:50 → 20:15
+
+BLOCO 7 — DEPOIMENTOS DO GRUPO (John 72, James 74, Richard 53) + o "red honey challenge" — 20:15 → 21:55
+
+BLOCO 8 — A LIGAÇÃO DO CEO FARMACÊUTICO e a decisão de fazer sozinhos — 21:55 → 23:18
+
+BLOCO 9 — NEPAL: o mel que não se compra; o laboratório da Neuralink em Woodinville; nasce o HoneyFil — 23:19 → 25:00
+
+BLOCO 10 — INDÚSTRIA ADULTA + DR. OZ: o voluntário de 79 anos, "this works" — 25:00 → 27:23
+
+BLOCO 11 — DEPOIMENTOS: TRT, o amigo do Elon, 81 anos, "as pílulas nem funcionavam" — 27:23 → 28:37
+
+BLOCO 12 — RECAP DO MECANISMO + DRA. ANNIKA ACKERMAN + "100% SAFE" — 28:37 → 30:36
+
+BLOCO 13 — PREÇO: "nem eu nem o Elon ganhamos um centavo", Nepal, a esposa, a humilhação e a garantia de 60 dias — 30:36 → 33:30
+
+BLOCO 14 — OFERTA: subsídio da Neuralink, "o menor preço que já cobramos", os advogados da Pfizer — 33:30 → 34:44
+
+BLOCO 15 — ELON INTERROMPE: Nobel, os primeiros 20, o iate e a hostess — 34:45 → 36:36
+
+BLOCO 16 — BÔNUS 1 "The Lesbian Trick", o botão verde, o contador no canto da tela, checkout seguro — 36:37 → 39:12
+
+BLOCO 17 — DEPOIMENTO DO IATE + DR. DAVID SAMADI + 77% reivindicados + bônus 2 e 3 (posições, textos, "a sala") — 39:12 → 43:07
+
+BLOCO 18 — WILL SMITH / JADA + atriz + recap do Dr. Michael — 43:07 → 45:19
+
+BLOCO 19 — CENSURA: "enterrado", os hackers, "eles falharam desta vez" — 45:20 → 46:02
+
+BLOCO 20 — KINSEY 67%, as 2 escolhas, o botão de $294 e o CTA — 46:02 → 47:40
+
+BLOCO 21 — DEPOIMENTOS DAS ESPOSAS: "comprei escondido", "joguei o vibrador no lixo" — 47:40 → 49:15
+
+BLOCO 22 — FAQ COM O ELON + CTA FINAL — 49:15 → 52:04
+
+PARTE 1 — TRANSCRIÇÃO EM INGLÊS POR BLOCOS
+
+# BLOCO 1 — LEAD / GANCHO: o ritual do mel, Rogan, "Pfizer tentou matar o Elon", Riley Reid e a promessa [0:00 – 5:31]
+
+## 1.1 ⏱ 0:00 → 0:30
+
+ATRIZ ADULTA (clipe): Oh, gosh. Today, I had sex with a 70-year-old man who had an 8-inch dick, all because he did the damn honey trick in the shower. If your performance in bed isn't what it used to be, just take 1 spoonful of honey and 2 secret ingredients and leave any woman hooked. The Elon Musk Foundation spent billions of dollars to discover the cure for erectile dysfunction, and he finally developed this dirty pre-shower honey trick. So stick around in this video to discover the recipe.
+
+## 1.2 ⏱ 0:37 → 0:43
+
+NARRADOR (voz em off): They blew up Elon's car last Tuesday. The guy saved thousands of men's dicks and they tried to silence him forever.
+
+## 1.3 ⏱ 0:43 → 0:51
+
+ATRIZ ADULTA (clipe): The video where I showed everyone what the fuck Elon Musk does in the bathroom to fuck me harder than a porn star is blowing up on TikTok. Stop sharing it.
+
+## 1.4 ⏱ 0:51 → 1:27
+
+NARRADOR (voz em off): Every American will hear this now. They tried to murder Elon Musk for exposing why 40 million men over 50 are going soft. Any man who can't last 5 minutes needs to hear this outrageous story. Former adult film actress Riley Reid could be arrested today, 24 hours after posting a video you are going to see at the end of this one. She flat out revealed the dirty bathroom ritual every porn actor over 50 uses to fuck 4 women in one night without ever going soft. And she says it is exactly because of this dirty shower trick that the most famous actors on Pornhub keep getting more and more potent, even at 50 or 60 years old.
+
+## 1.5 ⏱ 1:27 → 1:46
+
+ATRIZ ADULTA (clipe): The porn industry relies on this honey ritual daily to turn men into sex machines. It is almost like breathing to them. Almost every major studio uses it now. They have dropped Viagra completely. No heart risk, no soft scenes, no actor losing his erection mid-take. Just thick, veiny cocks ready to wreck whoever is on set that day.
+
+## 1.6 ⏱ 1:47 → 2:01
+
+NARRADOR (voz em off): It is a super discreet homemade mixture you apply directly on your penis. Do this before your shower today and you will never face a doctor again. Mix it at home in 5 minutes. Stroke it in for 13 seconds. Done.
+
+## 1.7 ⏱ 2:01 → 3:09
+
+NARRADOR (voz em off): By the second day, you wake up with your cock so hard it tents the sheets. What I am about to reveal is the secret ritual porn actors who sleep with me always pulled before a scene. The reason their cocks are so thick I drool just trying to fit it in my mouth. A bathroom trick that explains how adult industry icons like Johnny Sins and Mick Blue Still nut 3 times a session past the age of 50. None of them are relying on pills, pumps, or surgery. Their cocks throb harder at 60 than any of the boyfriends I had in my 20s ever did. I spent my entire career obsessed with just one thing: getting pounded after treating men who perform like animals and finding out exactly what they do to make that happen. And trust me, it has nothing to do with age, Genetics or testosterone shots. Do this and you will fuck all night, stretching her so deep she bites the pillow, and even the hottest 22-year-old slut in your city will tap out and beg you to slow down before she squirts on you again.
+
+## 1.8 ⏱ 3:09 → 3:52
+
+NARRADOR (voz em off): If you are married, watch out for the women at the gym, at the office, your wife's friends, the MILF next door, even the divorced mom dropping her kid off at The second they catch your scent, they go feral and find a way to corner you alone. Besides porn actors, this trick has already given more than 15,000 Americans over 50 their cocks back, and now their wives are the ones taking days off work, walking funny, texting their friends that something just snapped their husband back into his 30s. The US Army has also used this ritual for over 40 years to boost testosterone in soldiers without wrecking their hearts. Strong instant erections were the side effect nobody complained about.
+
+## 1.9 ⏱ 3:52 → 4:43
+
+NARRADOR (voz em off): 230,000 selected veterans went through the protocol between 1982 and last year, and not a single cardiac incident was logged. Elon Musk spent 7 years locked inside his private Neuralink lab developing this honey ritual. He never planned to release it this way, but after learning what Pfizer would do to bury it, He decided to leak the recording himself on X. Pfizer's stock bled $3.2 billion in 48 hours. That same week, Elon's car exploded outside his Austin estate. He survived. His driver did not. The FBI closed the case in 72 hours, calling it an electrical fault. That is when Elon decided to record a second video from an undisclosed location, going way beyond what he first leaked. Leaked.
+
+## 1.10 ⏱ 4:43 → 5:31
+
+NARRADOR (voz em off): Now you can say goodbye to a soft, dead dick. Start getting rock hard for hours, making your wife scream your name, roll her eyes back, and squirt 3 times in a single night from how deep you were splitting her open. Never again hearing, do not worry, it is normal, let us try another time. Instead, every night, please fuck me hard like last time. Gagging, drooling, opening her tight little ass with both hands for you to come inside. If you want this, Pay very close attention because what you are about to see is the video Elon Musk recorded from his undisclosed location where he shows exactly how to do this honey ritual before shower and exposes Pfizer's plan to make 80% of American men dependent on Viagra by 2029. Let's go.
+
+# BLOCO 2 — ELON ENTRA: recusa o dinheiro, a história (a esposa, o Viagra, as bombas, o armário) [5:32 – 9:58]
+
+## 2.1 ⏱ 5:32 → 6:18
+
+ELON MUSK (imagem/voz sintética): I don't know if you're watching this in a presentation mixed with porn clips or just clean while we fight Big Pharma censorship. You probably know me as intelligent rockets and Teslas, but my real obsession for the past years has been Neuralink, one of the most advanced biotech laboratories Over $5 billion invested into understanding how the human body sends and receives the signals that keep you functional and virile. And if you're a straight man, I'm about to show you the most important discovery Neuralink has ever produced. A homemade natural solution that reverses erectile dysfunction at the root. Permanently. No Viagra, no Cialis, no injections, no recipe, no dangerous pills that put your heart at risk. I'm talking about a simple movement That any man can do today without leaving the bathroom. Last week, Pfizer offered me $18 billion to walk away from this project. I refused.
+
+## 2.2 ⏱ 6:19 → 7:28
+
+ELON MUSK (imagem/voz sintética): No amount of money changes what I'm about to do because I lived through this myself. For years, I was the man who had everything and couldn't get hard to satisfy the only woman I ever truly loved. The people who look at me and only see a crazy Republican billionaire workaholic hooked on knocking up models, they're not wrong. I've always loved sex. And I never held back. Money was never an issue, and I had the most beautiful young women on the planet in my bed. I never used a condom in my life. I came inside every single one of them. If she was just there for one night, she still got everything I had. And 14 kids scattered across the world are the proof of that. For 3 decades, that was my life. Fuck hard, come deep, sleep well, and work. My cock never let me down, not once. Until Sophia. You've probably never heard of her, and she wanted it that way. She hated the spotlight. She desired me because I was a man, not the Elon Musk. And for the first time in my life, I didn't want just sex and come back to work. I wanted her for the rest of my life. Growing old together, build a real home, everything I never wanted with other women. And that was exactly the moment my body decided to betray me. The first time it happened, I couldn't believe it. But she just smiled and said it was fine, that we'd try again later.
+
+## 2.3 ⏱ 7:28 → 8:34
+
+ELON MUSK (imagem/voz sintética): But I saw it in her eyes. That mix of patience and confusion, That's worse than any insult a man can hear. The next night, same thing. And the night after, and the night after that. I started to panic. How the hell was I flooding women I barely knew for 30 years straight and now going flaccid on top of the one who actually mattered? I brought the best urologists in the world into my house. Tested Viagra, Cialis, the Vicks bullshit, pumps, testosterone shots. Every new humiliation Failing faster than the last. My dick stayed dead. And I was exhausted on top of it, dragging myself through meetings like a zombie. Sophia started to pull away, slowly, silently. Then one night, she just rolled over, turned off the light, and stopped trying. We slept in the same bed and lived on different planets. In my desperation, I started reaching for things money could buy when love couldn't. I told myself, maybe it was her. Maybe with someone younger, hungrier, less familiar, My body would wake up. It didn't. I failed with them too, and after years of loving each other more than everything, she left.
+
+## 2.4 ⏱ 8:35 → 9:40
+
+ELON MUSK (imagem/voz sintética): She packed her bags the next morning while I sat on the floor of the closet, watching her fold clothes I had bought her, unable to say a single word to stop her. I lost the only woman who ever truly knew me. Not over money, over the one thing all my billions couldn't fix. That was rock bottom for me. I swore to myself that night, that if a real solution existed out there, I'd find it, no matter what it cost, no matter who tried to stop me. And I want you to remember that promise, because in the next 2 minutes, you're gonna see exactly how I got Sophia back, how she begged to come back to me, and how you can wipe out erectile dysfunction for good, spending less than $3 at Walmart and without leaving your house. After I lost Sophia, I stepped away from everything to think. How the hell is it possible that the richest man in the world, with the best urologists in his pocket, and the most expensive treatments money can buy, cannot fix something as simple as his own erection. I called every specialist I had ever met through Neuralink. One of them was Dr. Michael Carter, a urologist obsessed with solving erection problems, and the same guy the biggest adult film studios call when they need to bring an actor back from impotence.
+
+## 2.5 ⏱ 9:40 → 9:58
+
+ELON MUSK (imagem/voz sintética): He was way further along on the subject than anyone else I knew, and Michael flipped my entire understanding upside down. He told me the real cause of erectile dysfunction has nothing to do with low testosterone, lack of nitric oxide, Age, stress, or watching porn. None of that. All bullshit they made up to push useless products on you. Think about it.
+
+# BLOCO 3 — A INVESTIGAÇÃO: Viagra, o estudo da Nature (37.000 mortos), xenotoxinas, a placa que "não é colesterol" [9:59 – 12:11]
+
+## 3.1 ⏱ 9:59 → 11:02
+
+ELON MUSK (imagem/voz sintética): When you take Viagra, does any doctor ask about your hormone levels? Does anyone investigate your mind? Of course not. The pill only does one thing. It forces your cock to get up by brute force for a few minutes. Because the only way to have a real erection is with blood, a lot of blood entering your shaft. Viagra just dilates the veins, pushes that blood inside your cock, and it rises. Simple as that. But it solves jack shit. It is just an artificial push, a cock makeup that lasts a few minutes and leaves you worse than before. And the most disgusting part, a lot of guys become so dependent on that shit, they end up more impotent than when they started. The body stops reacting on its own, and without realizing, the guy who wanted more power ends up losing everything. Now imagine the scene. You depend on an expensive pill every time you want to fuck, only to later discover that same pill is destroying your heart. and leaving you even softer. A study in Nature was clear as day. Continuous use of those drugs increases the risk of heart attack by 17 times. That is what they are selling you— poison.
+
+## 3.2 ⏱ 11:02 → 12:11
+
+ELON MUSK (imagem/voz sintética): The same poison that killed over 37,000 American men from heart attacks and strokes in just the last 12 months. If Viagra and all that trash do not really work, what is the real solution? The answer is simple. Direct, and nobody has the guts to say it. You need to unblock the veins in your cock. Over time, toxic plaques start building up in the vessels that feed your erection. Your cock does not fill anymore because blood cannot get through. For years, doctors swore the problem was cholesterol. But the latest studies from Johns Hopkins University showed the naked truth. Over 98% of those plaques are caused by a specific group of toxins in the blood. Called xenotoxins, also known as carnivore toxins, because they keep feeding themselves off your blood like a parasite. Not cholesterol. When Viagra dilates the veins, those plaques dilate along with them, and the path stays blocked, barely improving anything. The only way to get real erections back— hard, natural, spontaneous— is to clean those veins, eliminate those disgusting xenotoxin plaques, and make blood flow like when you were 20. And that is exactly what Michael and I found.
+
+# BLOCO 4 — A DESCOBERTA: mel vermelho do Himalaia + 3 ingredientes, o mecanismo (Doppler, testosterona, o composto) [12:11 – 16:42]
+
+## 4.1 ⏱ 12:11 → 13:20
+
+ELON MUSK (imagem/voz sintética): We discovered a powerful combination using Himalayan honey and 3 more simple ingredients that you can find anywhere on the planet. This homemade formula is behind the steel erections that have saved thousands of marriages. And from now on, it can be what changes your story too. This brutal combination can eliminate up to 97% of the xenotoxin plaques built up in any man's penile veins Regardless of age. Scientific data confirmed by Johns Hopkins researchers. We first tested the protocol on over 1,200 men through Neuralink, many already over 70, and the result was simply shocking. When the red honey is used the right way, together with the specific ingredients we discovered, it starts cleaning the blood and dissolving the xenotoxin plaques choking the vessels that feed your cock. Over the years, shitty eating, constant stress, Med use, and environmental toxins poison those vessels from the inside. They inflame, harden the walls, and form blocking plaques that clog the flow. And without flow, no erection. Not even half a boner. Nothing. The Himalayan red honey kicks in by hunting down those xenotoxins and dissolving them naturally and progressively. What happens next is simple.
+
+## 4.2 ⏱ 13:20 → 14:29
+
+ELON MUSK (imagem/voz sintética): Your cock fills back up like a fire hose on a burning day. Solid, long-lasting, 100% natural erections. As if impotence never existed. In Doppler ultrasound exams before and after the ritual, doctors observed up to 430% increase in direct blood flow to the cock. And this in a matter of days, not weeks or months, days. Your cock gets so much blood pressure, it makes it thicker, longer, harder than an iron bar. And every new erection makes it even harder and bigger. So the more sex and the more jerking off, the better, to make your cock the size of a baseball bat. And there is more. This ritual also gives a natural boost to your testosterone, increasing levels by up to 207%. No injections, no replacement, no risk. But pay close attention. Pumping testosterone does nothing if your penile veins are clogged like old pipes. When those veins are clean and blood flows freely, that is when testosterone kicks in full force, igniting your libido, hardening your erection, and turning you into a real animal in bed. You last all night with solid, heavy erections that feel like stone. Any man, no matter the age, can feel like a king in bed.
+
+## 4.3 ⏱ 14:29 → 15:37
+
+ELON MUSK (imagem/voz sintética): This is the end of erectile dysfunction. The rebirth of the confidence that makes your partner wet just looking at you in your underwear, even if she has already gone through menopause. It is what will make your daughter's friends unable to take their eyes off your giant wood bulging in your shorts. But even after seeing the tests at Neuralink, Before I put a single drop of this in my own body, I still needed to see it working right in front of me. So we pulled a live sample of the exact toxic plaque choking blood flow in millions of American men right now. Inside this container with this clear liquid, we have the pure compound that the Himalayan red honey releases into your body to dissolve the toxic plaques blocking the blood vessels of your cock. It's called icarian. And right here in this container, we have a dark liquid that represents the xenotoxins. The same carnivore toxins obstructing your vessels right now as you watch this. Watch what happens when the Icarin comes into contact with these toxins. Instantly eliminated. And not only that, after this compound enters your body, your vessels become practically armored against new obstructions. See what happens when the same xenotoxins try to deposit again. Instantly.
+
+## 4.4 ⏱ 15:38 → 16:42
+
+ELON MUSK (imagem/voz sintética): The compound already present in your body neutralizes everything. This is how your vessels stay clean and your erections stay strong. After the lab test, I was already convinced. I'd been lied to by every pill, every doctor, every treatment money could buy. I didn't want another promise. I wanted my dick back, and I wanted it now. So I became the first test subject. The red honey ritual every morning, first thing, on an empty stomach. The first 2 days, nothing. I almost gave up. Day 3, I woke up at 4 in the morning with a hard-on I hadn't felt in 15 years. Thick, heavy, pulsing against the sheets. By the end of the first week, I wasn't waking up soft anymore. I was waking up hard like a teenager, every single morning. And the night Sophia finally agreed to come see me again, what happened in that bedroom was something I'll never forget. I bent her over the same bed I'd failed in 100 times. The second I slid in, her eyes rolled back. She let out a moan that sounded like a porn star. I fucked her for almost 3 hours straight, on the bed, Against the wall, on the floor.
+
+# BLOCO 5 — O PRIMEIRO TESTE DO ELON: a noite, as veias, "algo enorme nas mãos" [16:43 – 17:50]
+
+## 5.1 ⏱ 16:43 → 17:13
+
+ELON MUSK (imagem/voz sintética): She came over and over until she was begging me to stop, soaking the sheets through, her legs shaking so bad she couldn't stand up. And when I finally came, I didn't go soft. My cock stayed hard as a steel bar, like I was still ready for another round. Because I was. The next morning, she looked at me like I was a different man and told me she'd never been fucked like that in her life, not even when we were young. And when I measured myself a few weeks later, I almost dropped the tape. I'd gone from 5.8 inches to 7.4. Thicker. Heavier.
+
+## 5.2 ⏱ 17:13 → 17:50
+
+ELON MUSK (imagem/voz sintética): Veins running down the shaft I hadn't seen since I was 20. That's when I knew I had something massive on my hands. That through Neuralink, millions of American men going through what I went through could get their manhood and their confidence back. Without selling their lives to Big Pharma. So, we gave it to a group of men first. Real men, real cases, the worst ones I could find. Men who'd given up. But before you see what they sent back, I want you to meet Dr. Michael and pay attention to every word he says, because this will make you virile again today at your home without spending a dime. If I'm still fucking every day at 55 like a 19-year-old, it's because of what he's going to show you now.
+
+# BLOCO 6 — DR. MICHAEL CARTER: o mel vermelho, a icariina, os 3 compostos e os 120 pacientes [17:50 – 20:15]
+
+## 6.1 ⏱ 17:50 → 18:59
+
+DR. MICHAEL CARTER (urologista): Thank you, Elon. I'm going to reveal exactly how any man can turn a flaccid cock into a thick, veiny log that only comes when you want. There are 4 ingredients in this ritual that together are so potent for male virility that men in their 70s are coming back to The first is the most important, and Elon already mentioned it: the Himalayan red honey. High in the Himalayas lives a rare species of giant bee. These bees feed on flowers that grow nowhere else on the planet, and they produce a thick, dark, reddish honey the locals call mad honey. For centuries, only the strongest men of these villages were allowed to harvest it, risking their lives for a few pounds of it. It was never food; it was sacred. The reason these men father children at 80 while the rest of the world goes soft at 40? When I brought it back to my lab and analyzed it, I understood why. This red honey carries the highest concentration of a compound called icarian ever found in nature. Nothing else on Earth comes close. Icarian does one thing no drug can do. It hunts down the xenotoxin plaques choking your blood vessels and dissolves them. It breaks the buildup apart, flushes it out, and clears the highway so the blood can finally flood through to your cock again. But Elon and I knew the red honey alone wasn't enough.
+
+## 6.2 ⏱ 19:00 → 20:03
+
+DR. MICHAEL CARTER (urologista): So I combined it with 3 more compounds, each one attacking a different part of the damage. The second ingredient is concentrated horny goat weed. Every man over 40 has heard of it, and there's a reason. With the plaque gone, the vessels have to open wide. Horny goat weed forces them into a brutal expansion, driving up to 500% more blood into the penis, making you thicker and harder than you've been in decades. The third is PT-141, the sex peptide. The biggest names on Wall Street pay $2,000 a month for. Years of poison kill a man's drive. PT-141 hits the pleasure center of your brain directly, so the desire roars as loud as the erection. The 4th is Ashwagandha root, standardized to the highest potency ever produced. This locks it in. It pushes your body to make its own testosterone again, the way it did at 20, keeping you hard long after other men give up. 4 compounds, 4 stages, 1 complete reversal. First, the red honey clears the plaque. Then Horny Goat Weed opens the vessels. PT-141 brings back the drive. And Ashwagandha rebuilds your natural power. This is the exact combination that turned Elon's manhood back from the dead.
+
+## 6.3 ⏱ 20:03 → 20:15
+
+DR. MICHAEL CARTER (urologista): And it's the same combination I tested on over 120 of my own patients, with severities ranging from soft erections to men who hadn't gotten hard in over 15 years. These are the videos they sent me after the test.
+
+# BLOCO 7 — DEPOIMENTOS DO GRUPO (John 72, James 74, Richard 53) + o "red honey challenge" [20:15 – 21:55]
+
+## 7.1 ⏱ 20:15 → 20:23
+
+HOMEM (depoimento): On the 3rd day, my cock was already hard like a baseball bat. What the fuck is this formula, man? I'm fucking my wife 3 times a night.
+
+## 7.2 ⏱ 20:24 → 21:02
+
+DR. MICHAEL CARTER (urologista): This morning I woke up with my cock throbbing. She came twice before I even finished the first time. Almost all of them reported insane erections in the first week. About 98% said they were fucking for over an hour without coming, literally breaking the bed and their wives. Men from 35 to 80 years old thanked me for giving back the virility they thought they'd never have again. And phrases like, I never felt this before, became routine on my phone. The wives began pleading for mercy after their husbands came 2 or 3 times that night. The craziest part? Nobody had to quit drinking. Nobody had to quit smoking. Nobody went on a diet. No miracle capsules. No chemical pills.
+
+## 7.3 ⏱ 21:03 → 21:16
+
+DR. MICHAEL CARTER (urologista): Just the red honey formula. Some patients even recorded themselves having sex after the ritual. I thought it was bizarre, but they were loving the reputation of being total studs, and women were practically throwing themselves at them wanting to fuck. See for yourself.
+
+## 7.4 ⏱ 21:16 → 21:23
+
+HOMEM (depoimento): I'm gonna do the red honey Challenge right now and test it in a real fuck. I don't get how this thing works, but look what it does to my cock.
+
+## 7.5 ⏱ 21:23 → 21:55
+
+DR. MICHAEL CARTER (urologista): They aren't exceptions. They are living examples that virility can be recovered without depending on pharmacies, without poisoning yourself with chemicals, just with the right ritual applied the right way. When we finally proved this ritual cleared the plaques, made blood flow full force, and brought back testosterone like a man in his 20s, our goal was simple: get this into the hands of every American man fighting a soft cock, without them having to spend a single cent. That's where Elon went all in. He mobilized his personal money and the full weight of Neuralink behind this project. The research was solid.
+
+# BLOCO 8 — A LIGAÇÃO DO CEO FARMACÊUTICO e a decisão de fazer sozinhos [21:55 – 23:18]
+
+## 8.1 ⏱ 21:55 → 22:11
+
+DR. MICHAEL CARTER (urologista): The lab tests were undeniable. All we needed was a manufacturer in the United States capable of producing this at scale. So Elon called the CEO of one of the largest pharmaceutical labs in the country, a man he'd worked with for years. He recorded the call and had to censor the guy's voice, but listen closely to what he told Elon.
+
+## 8.2 ⏱ 22:12 → 22:39
+
+CEO FARMACÊUTICO (chamada de vídeo): Elon, let me be straight with you. Do you understand what this does to our business? The man with erectile dysfunction is worth somewhere between $40,000 and $70,000 to us over the course of his life. Viagra, Cialis, follow-up prescriptions, side effect treatments. If we manufacture something that reverses ED in record time at the root, we lose billions in annual revenue overnight. It doesn't make any sense to help you with this.
+
+## 8.3 ⏱ 22:39 → 22:42
+
+ELON MUSK (imagem/voz sintética): But think about the men, the marriages we could save.
+
+## 8.4 ⏱ 22:42 → 22:54
+
+CEO FARMACÊUTICO (chamada de vídeo): You want to change this world, Elon. I'm not. We're not going to do this. And honestly, I'd reconsider how far you want to push this. There are people who don't want this solution out there. People who play harder than I do.
+
+## 8.5 ⏱ 22:55 → 23:18
+
+DR. MICHAEL CARTER (urologista): That call shook both of us. The system doesn't want you fixed. It wants you medicated. Monthly. Forever. So Elon made a decision that night. We were going to do this ourselves. No partners. No middlemen. No industry gatekeepers standing between this discovery and the men who needed it. He flew straight to Nepal the next week and started building the entire structure himself. He sent me the videos of what he was doing on the cliffs.
+
+# BLOCO 9 — NEPAL: o mel que não se compra; o laboratório da Neuralink em Woodinville; nasce o HoneyFil [23:19 – 25:00]
+
+## 9.1 ⏱ 23:19 → 23:50
+
+ELON MUSK (imagem/voz sintética): The red honey is not a commodity. You can't buy it, you can't manufacture it. It only exists here on these cliffs. So I invested directly in the region. I funded the construction of dedicated harvesting and processing stations with the local villagers, the same families who've been collecting this honey For centuries. This is what we built. Hundreds of hives harvested by hand, each batch tested for icariin concentration before it leaves the mountain. What gets shipped to the United States is the same honey those villages have been using for 1,000 years.
+
+## 9.2 ⏱ 23:51 → 25:00
+
+DR. MICHAEL CARTER (urologista): Once the honey arrives in the United States, it goes to the laboratory Neuralink built in Woodinville, Washington. FDA registered, GMP certified, equipped with the most advanced extraction and blending technology in the country. It's where the Icaren gets concentrated and combined with the Horny Goat Weed, the PT-141 peptide, and the Ashwagandha root in the exact proportions I spent years perfecting. Each bottle easily costs over $1,000 to produce, but Elon decided to pay for it out of his own pocket, so any man who finds this message in 2026 can get 6 bottles delivered to his door, completely free, with the red honey already concentrated, dosed, and mixed with the other 3 compounds in a single gummy. The formula became known as HoneyFil. Just stay with me for the next 3 minutes and you'll be able to claim up to 6 months of treatment without spending a dime. The fastest way we knew to prove HoneyFil worked was to put it in the hands of the men who can't afford to fail in bed: the adult film industry. Convincing them wasn't easy. They were already hooked on Viagra and Cialis. They couldn't believe a natural formula could outperform what they'd built their careers on. Elon went straight to the biggest studios, handed a free bottle to every actor shooting that The feedback came back faster than we expected.
+
+# BLOCO 10 — INDÚSTRIA ADULTA + DR. OZ: o voluntário de 79 anos, "this works" [25:00 – 27:23]
+
+## 10.1 ⏱ 25:00 → 25:24
+
+ATRIZ ADULTA (clipe): It's insane what's happened with the actors since they started taking HoneyFil. Yesterday I shot with a guy in his 60s. He took HoneyFil and made me squirt 4 times on this couch. Every scene I shoot now ends with me dripping. My friends shooting with these guys say the same thing. The cocks are thicker, veinier. They stay hard for 2 hours straight without slowing down. And then the men kept pounding them for over 2 hours straight. Viagra never did that.
+
+## 10.2 ⏱ 25:25 → 25:40
+
+HOMEM (depoimento): I used to depend on Viagra, but it was a nightmare. The dizziness, the heart palpitations. I was scared of having a heart attack mid-scene. After Elon gave me a bottle of HoneyFil, I'm shooting 4 scenes in a row. Before, I could barely do 2. My cock, which wasn't small, gained 2 inches. Thicker, veinier.
+
+## 10.3 ⏱ 25:40 → 25:45
+
+ATRIZ ADULTA (clipe): There's not a single scene I film after the HoneyFil hype that does not leave me squirting all over from pure ecstasy.
+
+## 10.4 ⏱ 25:45 → 26:01
+
+DR. MICHAEL CARTER (urologista): But the real test came from Dr. Mehmet Oz. We gathered every piece of research, the lab tests, the testimonials from the adult film stars. Elon personally handed him a bottle of HoneyFil. He told us he'd test it on a volunteer himself before backing it publicly. 3 weeks later, he sent us a video.
+
+## 10.5 ⏱ 26:02 → 26:32
+
+DR. MEHMET OZ (imagem): I personally tested HoneyFil on a volunteer, 79 years old, diabetic, high blood pressure. For over 10 years, he hadn't been able to get a single erection. Day 4, he woke up with a full erection, hard as a rock. His wife looked at him and said, Where's my husband? What did you do with him? After 3 weeks, this man told me he no longer feared performance problems in bed. Elon, Michael, this works. I saw it with my own eyes. Throw the blue pills in the trash. HoneyFil is going to save marriages across America. With Dr.
+
+## 10.6 ⏱ 26:32 → 27:23
+
+DR. MICHAEL CARTER (urologista): Oz's word behind us, HoneyFil was ready for every American man who wanted his manhood back. But let me be clear with you. Elon and I don't have superpowers. We're just 2 men who lived through this And found the way out. Elon lost the only woman he ever truly loved because of impotence, and the only thing that brought her back was the same thing that's about to bring her back to your bed too. Because HoneyFil doesn't just give you a powerful erection, it also makes your body pump pure testosterone, and that releases 2 pheromones, androstenone and androstenol, that hit the female brain directly. That's why it's completely normal for women— the coworker, the cashier at the grocery store, the woman at the gym— to suddenly look at you differently. Without knowing why. You've seen guys who aren't particularly handsome, don't have money, and women line up for them. Ever wondered why? Those men naturally radiate testosterone. With HoneyFil, you will too. Don't be surprised when women start approaching you out of nowhere. This isn't magic, it's pure biology.
+
+# BLOCO 11 — DEPOIMENTOS: TRT, o amigo do Elon, 81 anos, "as pílulas nem funcionavam" [27:23 – 28:37]
+
+## 11.1 ⏱ 27:23 → 27:46
+
+HOMEM (depoimento): I've been on TRT for years and I still had days when my cock wouldn't fully cooperate. Elon sent me a bottle of HoneyFil after he came on the podcast. 6 months in, I don't touch TRT anymore. My My testosterone is higher than it's been since my 20s, blood tests to prove it. At 59, I'm fucking my wife harder than I did at 30. This shit is real, and Elon deserves every ounce of credit for making it public.
+
+## 11.2 ⏱ 27:46 → 28:02
+
+AMIGO DO ELON (depoimento): Elon is a brother to me. When he told me what HoneyFil did for him, I listened because I was dealing with the same thing and not talking about it to anybody. I used it for 6 months. By the end of the first week, my wife was looking at me different. I know what that look means now. And I can answer it every time.
+
+## 11.3 ⏱ 28:02 → 28:37
+
+HOMEM (depoimento): I'm 81 years old. I'm not the kind of guy who talks about this publicly, but Elon asked me to try HoneyFil and I trust him. 3 days in, I woke up with something I hadn't felt in years. My wife noticed before I even said a word. Don't wait as long as I did to do something about it. I used pills for years and most of the time not even those worked. When I heard Elon Musk was behind this, I believed it. Elon doesn't mess around with things like this. I got a few bottles of HoneyFil. The craziest part is that on the very first day, my cock felt hard as steel. It gained more than an inch, thicker, visibly more veiny. After 6 months, I never had this problem again.
+
+# BLOCO 12 — RECAP DO MECANISMO + DRA. ANNIKA ACKERMAN + "100% SAFE" [28:37 – 30:36]
+
+## 12.1 ⏱ 28:37 → 29:23
+
+DR. MICHAEL CARTER (urologista): As you've already learned with us, your penile vessels have been clogged by xenotoxin plaques for years. HoneyFil delivers fast results, but to be truly free, permanently fixed, and enjoy the full benefits, especially the 2 to 3 inches gain in size, You need to fully eliminate those plaques. That's why continued use during the first 6 months is essential. The problem is that even though HoneyFil is manufactured in the United States, the red honey comes directly from the Himalayan villages Elon built that station with. That takes time. We run out of stock for long stretches. After the first wave of men got their hands on HoneyFil, they started calling it the porn star hack because it gives any average guy the same sexual performance as professional adult Recently, I couldn't keep my dick hard for 5 minutes.
+
+## 12.2 ⏱ 29:23 → 29:39
+
+HOMEM (depoimento): My wife pretended it was fine, but I knew her and I knew she needed orgasms. She's always been passionate. After discovering HoneyFil, in 2 weeks I was getting so hard she started asking for sex every day. My tool even got bigger. I never imagined that at this stage of life we'd be fucking this much.
+
+## 12.3 ⏱ 29:39 → 29:49
+
+DR. MICHAEL CARTER (urologista): HoneyFil became so popular that one of the most respected urologists The United States, Dr. Annika Ackerman, recorded a video calling it the safest and most effective formula in the world.
+
+## 12.4 ⏱ 29:49 → 30:20
+
+DRA. ANNIKA ACKERMAN (uróloga): Every patient of mine who completed 6 months of HoneyFil fully reversed their erectile dysfunction. Not one of them still struggles to get hard. And more than that, they're now having stronger erections than they had as teenagers. I've seen cases of chronic ED that surgery and implants couldn't fix. Men in their 70s getting an active sex life back. This is without a doubt the best solution ever created. 100% safe, zero side effects. I recommend it to anyone who can stay on HoneyFil for 6 months.
+
+## 12.5 ⏱ 30:20 → 30:36
+
+DR. MICHAEL CARTER (urologista): No matter how severe your situation is, there is no other product on Earth that can do what HoneyFil does without putting your health at risk. Diabetes, high blood pressure, heart problems— it doesn't matter. HoneyFil works for you safely Regardless of your condition or your age.
+
+# BLOCO 13 — PREÇO: "nem eu nem o Elon ganhamos um centavo", Nepal, a esposa, a humilhação e a garantia de 60 dias [30:36 – 33:30]
+
+## 13.1 ⏱ 30:36 → 31:46
+
+DR. MICHAEL CARTER (urologista): And after everything you've seen here, you might be thinking, I want all of this, but what's it going to cost me? Let me be straight with you. Neither Elon nor I are making a single cent from this. Every dollar from HoneyFil goes back into Neuralink, into producing more bottles, harvesting more red honey in Nepal, and getting this into the hands of as many American men as possible. Before Pfizer shuts us down. Just imagine, Waking up in the morning with a rock-hard erection. Imagine the look on your wife's face when you slide your iron-hard shaft inside her, giving her the kind of pleasure she has not felt in years. That will make you feel like a real man again. Imagine walking down the street with confidence, and wherever you go, your testosterone will radiate like a pheromone, triggering an automatic response in the female subconscious, making women notice you, desire you, and even get But if you do not take action, nothing will change. You will keep dealing with the humiliation of an erection that does not last, that disappointed look on her face, or worse, that awkward silence after another failed night. You know exactly what that means— more nights lying back to back with her, wondering what is wrong with you.
+
+## 13.2 ⏱ 31:46 → 32:00
+
+DR. MICHAEL CARTER (urologista): Look, I am here to give you a solution and put your mind at ease. There is nothing wrong with you. wrong with you. It is completely normal for men over 40 to experience this. It happened to Elon, and the only thing that fixed them is the same thing about to fix you.
+
+## 13.3 ⏱ 32:01 → 32:23
+
+MULHER/ESPOSA (depoimento): I always loved my husband, but after he stopped getting hard, our marriage became unbearable. I was even starting to consider divorce. I could tolerate the arguments, but the lack of sex was unbearable. HoneyFil absolutely saved our marriage. Our sex now is wilder than when we first met, and his cock Oh my God, it got huge and veiny. We barely fight anymore, and when we do, we fix it by making love on the kitchen counter.
+
+## 13.4 ⏱ 32:23 → 32:59
+
+DR. MICHAEL CARTER (urologista): Let's be honest, the worst humiliation a man can experience is seeing frustration in the eyes of the woman he loves the most. Nobody deserves that. That's why we're backing HoneyFil with a 60-day money-back guarantee, stronger than anything the pharmaceutical industry has ever offered. We send you the 6-month treatment, take the capsules daily for 60 days, If you don't feel a difference in your erections or see the 2 to 3 inches increase in size, all you have to do is send one email or make one phone call. We'll refund every penny, and on top of that, we'll send an additional $200 straight to your account just for the inconvenience of trying it. Keep the bottles, keep the $200. That's how confident we are.
+
+## 13.5 ⏱ 32:59 → 33:30
+
+HOMEM (depoimento): I owe Elon an apology. When my 6 bottles arrived, my wife looked at me with contempt and said it was just another scam. Without hesitating, I emailed Ask Asking to trigger the guarantee. Not only did they send me the $200 for the inconvenience, they told me to keep the bottles and try it. That disarmed me completely. I decided to give it a real shot. Day 4, I woke up with an erection I hadn't felt in years. Bent her over right there. Made her come twice before breakfast. After 14 years of marriage, I now give her multiple orgasms every night.
+
+# BLOCO 14 — OFERTA: subsídio da Neuralink, "o menor preço que já cobramos", os advogados da Pfizer [33:30 – 34:44]
+
+## 14.1 ⏱ 33:30 → 34:36
+
+DR. MICHAEL CARTER (urologista): If you were skeptical, I understand. It's hard to believe too. But try it. You will not regret it. We wouldn't offer a guarantee this long if we weren't certain. You have 60 completely risk-free days to test HoneyFil. That's why I'm still here. This is the project I'm putting my name behind alongside Elon. When we first developed HoneyFil, each bottle cost over $1,000. We had to import the red honey directly from the Himalayan beekeepers. With Elon's own structure in Nepal and the laboratory in Woodinville, The cost dropped to $500 per bottle. But that's not who we built this for. We built this for the man failing his wife tonight. The man who hasn't been hard in months. The man one fight away from losing the only woman who ever truly loved him. So, Elon asked Neuralink to drop the price to $189 per bottle. The lowest we've ever charged, and the lowest we ever will. But even that wasn't enough for him. So he went one step further, something Neuralink has never done before. We're subsidizing 4 bottles out of every 6, paid for entirely by Neuralink. So just for being here right now, Neuralink is paying for 4 of your 6 bottles. You only pay for 2.
+
+## 14.2 ⏱ 34:37 → 34:44
+
+DR. MICHAEL CARTER (urologista): But because Neuralink can only subsidize so many bottles before Pfizer's lawyers move in, this offer is locked to every man who orders today.
+
+# BLOCO 15 — ELON INTERROMPE: Nobel, os primeiros 20, o iate e a hostess [34:45 – 36:36]
+
+## 15.1 ⏱ 34:45 → 35:56
+
+ELON MUSK (imagem/voz sintética): So hey, sorry to interrupt Michael here. If this video popped up for you this summer, you're one of the few lucky ones selected to get the biggest offer ever made With this formula. As I speak to you, HoneyFil is being submitted as a candidate for the Nobel Prize in Male Health. And to lock in that nomination, we need to transform the lives of as many men as we can. Real men, of different ages and health conditions, going through the full treatment, the right way, for 180 days. It doesn't help just taking 1 or 2 capsules and being satisfied with having your erections back. We need the full enhancement picture. And that's where you come in. If you're one of the first 20 men to grab the complete 6-bottle treatment today, Neuralink isn't just going to cover 4 bottles. Neuralink is going to cover every single one of them. The moment your payment goes through, my team processes a full refund directly back to your account. 6 bottles, 6 months of treatment, you pay zero. On top of that, you're personally invited to a weekend on my private yacht. First-class flight for you and a companion. Anything you want from the kitchen, 24 hours a day, all expenses paid. You'll have your own suite with your own balcony facing the open ocean. Whatever happens between the two of you behind that closed door is nobody's business but yours.
+
+## 15.2 ⏱ 35:56 → 36:36
+
+ELON MUSK (imagem/voz sintética): And if you'd rather come alone, I'll personally make sure one of my hostesses takes very good care of you the entire stay. You can watch the sunrise from the deck while you fuck a beautiful woman bent over the railing, that new cock buried deep inside her. While she begs you not to stop. But understand, only the first 20 get all of it. 6 bottles paid by Neuralink, full instant refund, zero out of pocket, plus the weekend on the yacht. If you're not in the first 20, you still walk away with the deal of a lifetime. Instead of paying $189 per bottle, which would total $1,134, you'll only pay $49 per bottle, 66% off the lowest price we've Ever offered. This is the deal.
+
+# BLOCO 16 — BÔNUS 1 "The Lesbian Trick", o botão verde, o contador no canto da tela, checkout seguro [36:37 – 39:12]
+
+## 16.1 ⏱ 36:37 → 37:05
+
+DR. MICHAEL CARTER (urologista): And because I want you to walk into your wife's bedroom tonight and dominate her like she's never been dominated before, anyone who secures the 6-bottle package today walks away with one exclusive bonus: 60 days of access to a private course called The Lesbian Trick, where 3 professional lesbians reveal uncensored the exact technique they use to make their partners roll their eyes in Ever wondered why lesbians manage to keep women madly in love and faithful for years?
+
+## 16.2 ⏱ 37:06 → 37:28
+
+PRODUTORAS DO BÔNUS (clipe): It's because we know the female body like no one else. We know exactly where to touch, how to touch, and when to touch. It's pleasure science applied with surgical precision. We're going to teach you how to find and stimulate the pleasure buttons that make any woman come 2, 3, even 4 times in a row, even those who swear they've never had an orgasm in their life. And all this without needing to last hours just With the right technique at the right moment.
+
+## 16.3 ⏱ 37:28 → 38:01
+
+DR. MICHAEL CARTER (urologista): This lesson is extremely explicit. They filmed real scenes with lesbians having multiple orgasms using this technique. We normally sell this content for $100, but today, if you're one of the men who secures the 6-bottle treatment, you get full and unlimited access for 60 days completely free. Below this video, you'll see a green button. That's where you secure your 6-bottle package. If you see $294, That means the subsidy is still active. You're still in time. If you see 1,134, that means the first 20 are gone and Neuralink has stopped paying.
+
+## 16.4 ⏱ 38:02 → 38:17
+
+ELON MUSK (imagem/voz sintética): Look at the top right corner of your screen right now. See that number dropping? Every time it drops, another man just took a spot that could have been yours. See the second one? That's how many men are on this exact page with you at this exact second, deciding whether to click before you do. That's why you don't wait.
+
+## 16.5 ⏱ 38:17 → 39:12
+
+DR. MICHAEL CARTER (urologista): Don't hesitate. There are men watching this video right now, in this exact moment, who are clicking before you finish this sentence. The instant you click, you're taken to a secure checkout page. Same encryption used by JPMorgan Chase. Your data is safe. Fill in your name, your shipping address, your payment. 3 minutes total. The moment your order goes through, if you're one of the first 20, Neuralink processes your refund within 3 minutes. Money back in your account before HoneyFil even ships. So here's what I need you to do. Grab your card now. When I say go, scroll down, click the green button for the 6-bottle package, finish the checkout. If you're in the first 20, the money comes back, the yacht weekend locks in, and 6 bottles ship to your door discreetly. 3, 2, 1, go! Click the button below right now. And clean your 6 bottles before the first 20 are gone.
+
+# BLOCO 17 — DEPOIMENTO DO IATE + DR. DAVID SAMADI + 77% reivindicados + bônus 2 e 3 (posições, textos, "a sala") [39:12 – 43:07]
+
+## 17.1 ⏱ 39:12 → 39:39
+
+HOMEM (depoimento): Elon, I gotta thank you. The yacht, the suite, the food— insane. But what got me was Lana, the hostess you assigned me. She walked into my suite the first night wearing nothing but a robe, said you told her to take care of me. I fucked her on the balcony with the sun coming up, bent her over the railing exactly like you said. She came so hard her legs gave out, I had to hold her up by the hips. 3 days, 3 nights, she didn't leave the suite once. That weekend was the best 3 days of my life, and it only happened because of HoneyFil.
+
+## 17.2 ⏱ 39:39 → 40:08
+
+DR. DAVID SAMADI: Hello, I'm Dr. David Samadi, Harvard graduate, urology residency at Johns Hopkins. I recently incorporated HoneyFil into my protocol, and I was skeptical at first. I was wrong. It restores long-lasting erections and significantly increases penile size and thickness. My patients, who previously depended on multiple medications without success now report extraordinary improvements. Without a doubt, this is a revolutionary breakthrough in male sexual care.
+
+## 17.3 ⏱ 40:08 → 41:18
+
+DR. MICHAEL CARTER (urologista): About 77% of our subsidized bottles already claimed, only 56 left. So to make your decision easier and to make your woman scream louder, anyone who secures the 3 or 6-bottle package today walks away with 3 exclusive bonuses. On top of the Lesbian Trick Course Elon already gave Bonus number 1 is the Johnny Sins course on how to last over 60 minutes in bed. 12 secret techniques any man can use in under 5 minutes a day to take complete control over when he comes. Imagine lasting over an hour without slowing down, making her beg for a break while she comes over and over. You'll never finish too soon again. She'll be obsessed with you. Bonus number 2 is the Forbidden Manual of Brazilian Sex Positions. The exact positions Brazilian men use during Carnival, the festival where they fuck in the streets for 7 days straight. Ancient positions designed to maximize penetration, intensity, and pleasure. It's not enough to have a harder, thicker, longer cock. You have to use it in ways she never imagined.
+
+## 17.4 ⏱ 41:18 → 41:50
+
+DR. MICHAEL CARTER (urologista): With the In these positions, she moans louder, twists in pleasure, begs for more, and never looks at another man again. Bonus number 3 is the Pheromone Script, a secret text sequence that makes any woman crave you before the first date, especially when she starts noticing the bulge in your pants. It's not pickup lines, it's not fake charm, it's a psychological script that taps into Her deepest sexual instinct. Some women show up with no panties on, already soaking wet.
+
+## 17.5 ⏱ 41:50 → 42:01
+
+HOMEM (depoimento): I started using those texts 2 weeks ago. 5 girls so far, including ones who ignored me before. They show up horny, grab me through my jeans, lose their minds when I pull it out. Every single one moaning nonstop.
+
+## 17.6 ⏱ 42:01 → 42:19
+
+DR. MICHAEL CARTER (urologista): This room flips a switch in her head. Doesn't matter if she's cold or has a boyfriend. Once you use it, she's the one chasing you. You'll have her dripping before you even unzip. That's why she won't think about other men. She'll be obsessed with your size, your control, and the way your cock makes her lose control.
+
+## 17.7 ⏱ 42:19 → 42:42
+
+HOMEM (depoimento): I gotta tell you something crazy. I'm a 52-year-old plumber from Ohio. 6 months on HoneyFil and I stole a Playboy model from a hedge fund manager in Manhattan. She was engaged to him. Real diamond ring, $200,000 rock. She met me at a bar, went home with me the same night, left him a week later. Her exact words when she was riding me at 3 in the morning were, why the fuck did I ever settle for that soft rich prick? That's what HoneyFil does. It doesn't just fix you. It makes you the guy the other guys lose their women to, rich or not.
+
+## 17.8 ⏱ 42:42 → 43:07
+
+DR. MICHAEL CARTER (urologista): Altogether, these bonuses are worth over $5,000. You pay zero for them. They're included free with your 3 or 6 bottle package today. But I need to be honest with you. You may not find this page again. Pfizer is desperately trying to get this information taken down. If you're still here, don't hesitate. Next time it could be gone and you'll have lost your one real chance to take back your manhood.
+
+# BLOCO 18 — WILL SMITH / JADA + atriz + recap do Dr. Michael [43:07 – 45:19]
+
+## 18.1 ⏱ 43:07 → 43:56
+
+WILL SMITH (imagem/voz sintética): Here's the real story. Jada only cheated on me because I became impotent. I'm in my 50s. I expected my tool to start failing. I just didn't expect Jada to cheat that fast. Right after she cheated, I found HoneyFil. Everything changed. I got back the kind of erections that reminded me of my 20s. After being cheated on, I stopped sleeping with Jada. She cheated, So I had the right to cheat too. One night, a friend invited me to a party with women that looked like porn stars. 2 of them came over to take a picture with me. My cock got hard so fast I couldn't hide it. I took them to one of the rooms and wrecked them both. Over 2 hours of nonstop sex. They came over and over. Insane. And I still take HoneyFil to this day.
+
+## 18.2 ⏱ 43:56 → 44:13
+
+ATRIZ ADULTA (clipe): I was sucking this guy's dick for over 20 minutes and it just wouldn't get hard. Then the producer showed up with this thing called HoneyFil and gave him one gummy. In less than 5 minutes, his dick was rock hard and full of veins. It was insane. After that, he fucked me for over 3 hours straight and made me cum 7 times.
+
+## 18.3 ⏱ 44:14 → 45:19
+
+DR. MICHAEL CARTER (urologista): Today, Elon told you his personal story. One of the richest men in the world, impotent in his own bed, losing the only woman he ever truly loved. I showed you the science. The xenotoxin plaque clogging your vessels, the demonstration in my laboratory. The 37,000 men who died last year from blue pills. Elon and I gave you the discovery. The red honey, harvested by villagers on cliffs in Nepal, where men stay hard at 80. Elon built the structure with his own money. Harvesting stations in Nepal. FDA-registered laboratory in Woodinville. Everything you saw, real. Neuralink is paying for 4 out of every 6 bottles. 66% off. $49 per bottle. We backed it with a 60-day guarantee stronger than anything the pharmaceutical industry has ever offered. You either get your manhood back, or you walk away with $200 in your account just for trying it. For the first 20 men, Elon is refunding the entire purchase and flying you out to his yacht. Tell me, when has Pfizer ever done that for you? When has Viagra ever guaranteed your erection back or refunded a single dollar? Now listen closely because I don't know how long this video stays up. This isn't the first time we've recorded it. The first 2 times it was pulled within hours. Flagged. Buried.
+
+# BLOCO 19 — CENSURA: "enterrado", os hackers, "eles falharam desta vez" [45:20 – 46:02]
+
+## 19.1 ⏱ 45:20 → 46:02
+
+DR. MICHAEL CARTER (urologista): Gone before. most men ever saw the button. We're told the people behind that don't stop at takedowns, and we believe them. So, if you're hearing my voice right now, understand what that means. It means they failed to silence it this time. It means you slipped through a window that closes fast and may not open again. I'm not saying that to rush you with some fake countdown. I'm saying it because it's the truth, and you deserve the truth. The men who profit from your impotence have every reason to make sure you never finish this sentence. You did. So while this page is still in front of you, while the button still works, make the decision a man makes. Not later, not after you think about it and the page is gone tomorrow. Now. Before I give you the choice, I need you to hear one statistic.
+
+# BLOCO 20 — KINSEY 67%, as 2 escolhas, o botão de $294 e o CTA [46:02 – 47:40]
+
+## 20.1 ⏱ 46:02 → 46:23
+
+DR. MICHAEL CARTER (urologista): A study published last year by the Kinsey Institute showed that 67% of women married to men with erectile dysfunction have already cheated or are actively considering 67%. That means while you're sitting there thinking about whether to click, there's a 2 in 3 chance your wife is thinking about clicking with someone else. Maybe already has.
+
+## 20.2 ⏱ 46:23 → 47:19
+
+DR. MICHAEL CARTER (urologista): You have only 2 choices. On choice 1, you close this video and go back to the wife you had this morning. You watch your wife slip further away. You feel her body tense when you touch her. You hear the silence after another failed night. You wonder how long until Until she stops trying altogether. Maybe she's already given up. Maybe she's already looking at someone else. Maybe she's already in a hotel room with a nan whose cock works. That's the path you walk if you do nothing. Choice 2: You click the button below right now. 6 bottles arrive at your door discreetly. Day 3: You wake up hard. Day 7: You're fucking your wife the way she's been craving for years. By month 6, you're a different man. Bigger, Harder, in control, the kind of man women look at twice on the street. Your marriage is saved, your confidence is back, and every woman who knew you before wonders what happened to you. This is the decision right now, this exact moment.
+
+## 20.3 ⏱ 47:19 → 47:40
+
+DR. MICHAEL CARTER (urologista): If you still see $294 on the green button below, the subsidy is still active. You're still in time. If you see $1,134, the 20 spots are gone and And the institute has stopped paying. Don't let this slip. Click the button below. Choose your 6-bottle package. Finish the checkout in 3 minutes. By next week, you're a different man.
+
+# BLOCO 21 — DEPOIMENTOS DAS ESPOSAS: "comprei escondido", "joguei o vibrador no lixo" [47:40 – 49:15]
+
+## 21.1 ⏱ 47:40 → 48:27
+
+MULHER/ESPOSA (depoimento): I bought this for my husband behind his back. I was done. 2 years without sex. 2 years of him rolling away from me at night. I gave him one HoneyFil gummy without explanation. He thought it was a common candy. That night, he came home from work, threw his briefcase on And looked at me like he hadn't seen me in years. He grabbed me by the throat and bent me over the kitchen island, ripped my dress up, pulled my underwear to the side. I felt his cock pressing against me, thick and heavy, like a different man's. He shoved it in to the hilt on the first thrust, and I screamed. He fucked me right there until I was clawing at the marble. Came on his cock twice before he even finished. Then he carried me to the bedroom and did it again and again. Ladies, if your man stopped touching you, put this in his coffee tomorrow morning. Thank me later.
+
+## 21.2 ⏱ 48:27 → 49:07
+
+MULHER/ESPOSA (depoimento): My husband used to last 2 minutes on a good day. I'd fake the orgasm, kiss him goodnight, then wait for him to fall asleep to use the vibrator in the bathroom. That was my marriage. He started taking these. Day 5, I'm doing the dishes and he comes up behind me, lifts my skirt, slides his hand between my legs. I felt his cock through his jeans and I almost dropped It was hard, thick, bigger than I'd ever felt it. He bent me over the sink and fucked me until the dishes shook in the rack. 40 minutes. Then he flipped me onto the floor and kept going. I came so hard I cried. Real tears. He didn't stop. When he finally came, he didn't go soft. He pulled me onto his lap and made me ride him again. Oh.
+
+## 21.3 ⏱ 49:08 → 49:15
+
+MULHER/ESPOSA (depoimento): That night, I threw the vibrator in the trash. Now when he reaches for me in bed, I know exactly what's coming. And I get wet before he even touches me.
+
+# BLOCO 22 — FAQ COM O ELON + CTA FINAL [49:15 – 52:04]
+
+## 22.1 ⏱ 49:15 → 49:31
+
+ELON MUSK (imagem/voz sintética): You're still here. Let me ask the questions I've been getting. I'm Phil, 80 years old. I've tried everything. Pills, pumps, testosterone therapy, supplements. Will HoneyFil work for me? Absolutely. HoneyFil was designed for men of all ages. It doesn't matter how long you've been dealing with ED or what you've tried before.
+
+## 22.2 ⏱ 49:31 → 50:27
+
+ELON MUSK (imagem/voz sintética): The real problem is the xenotoxin plaque building up in the vessels of your penis over decades of exposure to pesticides, plastics, and industrial chemicals. That's why blood never reaches your cock the way it should. The icariin from the red honey dissolves that plaque and restores full blood flow. Any man, regardless of age, gets firm, long-lasting erections again, the way he did at 20. How long does it take to see results? Most men feel firmer morning erections within 2 to 3 days. Within a week, more frequent and longer-lasting erections. After 30 days of daily use, increased firmness, stronger desire, Total control, and gains in length and girth. After 3 to 6 months, results become dramatic. Men who couldn't last 5 minutes report going for 2 straight hours. And don't forget, you have a 60-day guarantee. If you don't see a significant difference, you get every cent back plus $200 for the inconvenience. Does Honeyful increase penis size? Yes.
+
+## 22.3 ⏱ 50:27 → 51:00
+
+ELON MUSK (imagem/voz sintética): By restoring full blood flow to the penile vessels, your cock receives A massive surge, just like when you were a teenager. Results vary, but a 2 to 3 inch increase in the first month is common. My 69-year-old husband came like a bull and was ready to go again in less than 10 minutes. Is that normal? Completely normal. The formula immediately restores blood flow and erectile function. It drastically shortens the refractory period, meaning the time between ejaculation and the next erection is cut down to almost nothing. I have high blood pressure and diabetes. Can I take HoneyFil? Yes!
+
+## 22.4 ⏱ 51:00 → 51:43
+
+ELON MUSK (imagem/voz sintética): This is one of the biggest advantages HoneyFil has over pharmaceutical drugs. Unlike pills with dangerous side effects, HoneyFil is 100% natural and safe for men with diabetes, high blood pressure, or high cholesterol. It also improves circulation, reduces inflammation, and supports overall health. Do I need to change my diet for HoneyFil to work? No! HoneyFil works regardless of your lifestyle. The formula attacks the problem at the root, No drastic changes required. How will HoneyFil be delivered? Is it discreet? Completely discreet. We know privacy matters, especially if you want to surprise your wife or keep this to yourself. Your order arrives in a plain, unmarked package. The company name on your credit card statement contains no reference to HoneyFil. How do I get started? Simple.
+
+## 22.5 ⏱ 51:43 → 52:04
+
+ELON MUSK (imagem/voz sintética): Choose the kit below that best fits your needs. Complete your order on the secure checkout page. HoneyFil arrives at your door in a few days. Ready to change your life forever. This is the project I'm putting my name behind. Neuralink is paying for 4 of every 6 bottles, but only while the subsidy lasts. Click the green button below right now. Claim your 6 bottles before the first 20 are gone.
+
