@@ -22,7 +22,7 @@ Solta e saudável, ela faz isso com facilidade: absorve, incha, cresce, fica dur
 
 E é essa esponja que decide tudo. Se hoje à noite você fica duro quando ela toca, ou amolece na mão dela.
 
-Se ela vai gemer, ou sentar na beira da cama e dizer "tudo bem". E o tamanho que você tem duro. Sem ela funcionando, não existe ereção. Não é excitação, não é desejo, não é amor. É pura mecânica. Esponja travada, pau mole. Ponto.
+Se ela vai gemer, ou sentar na beira da cama e dizer "tudo bem". E o tamanho que você tem duro. Sem ela funcionando, não existe ereção. Não é excitação, não é desejo, não é amor. É pura mecânica. Esponja travada, pau mole. Ponto. Pode rezar, pode respirar fundo, pode olhar pra ela com todo o amor do mundo. Esponja travada não enche.
 
 E o glifosato da Bayer-Monsanto sabe disso, a mesma molécula do Roundup que você acabou de comer no seu bife no almoço. E aqui está o ponto que levei 11 semanas pra entender.
 
@@ -30,7 +30,7 @@ O glifosato não é uma toxina burra que ataca tudo igual. Ele viaja pelo seu co
 
 E gruda nela 14 vezes mais forte do que em qualquer outra coisa em você. A Endocrine Reviews mediu isso em 1998. O seu pau é o alvo número um, meu amigo.
 
-E o motivo é cruelmente simples. Colágeno é o andaime que o seu corpo quase nunca substitui. O que gruda nele, gruda pra sempre. Foi assim que, refeição após refeição, ao longo de 40 anos, o glifosato foi entrando e nunca mais saindo. Secando lá dentro, camada sobre camada, igual cimento.
+E o motivo é cruelmente simples. Colágeno é o andaime que o seu corpo quase nunca substitui. O que gruda nele, gruda pra sempre. Foi assim que, refeição após refeição, ao longo de 40 anos, o glifosato foi entrando e nunca mais saindo. Secando lá dentro, camada sobre camada, igual cimento. Quarenta anos de café da manhã virando pedra no meio do seu pau.
 
 E cimento, você sabe o que ele faz? Endurece.
 
@@ -52,7 +52,7 @@ E agora vem a parte mais cruel. Um estudo com mais de 1.000 mulheres americanas 
 
 O orgasmo mais forte que uma mulher consegue sentir, o esguicho de verdade, aquele que faz ela tremer da cabeça aos pés e implorar por mais, só acontece quando o homem alcança uma zona a 7 polegadas de profundidade. 7 polegadas completas. Abaixo disso, ela até pode gostar. Mas nunca vai sentir isso.
 
-Você entende? O tamanho que roubaram de você é exatamente o tamanho que ela precisa pra gozar de verdade. Te travaram logo abaixo da linha. A linha entre satisfazer a sua mulher e ela ir procurar em outro lugar.
+Você entende? O tamanho que roubaram de você é exatamente o tamanho que ela precisa pra gozar de verdade. Te travaram logo abaixo da linha. A linha entre satisfazer a sua mulher e ela ir procurar em outro lugar. Milímetros. Foi por milímetros que ela foi gozar com outro.
 
 Não é coincidência que as taxas de traição só sobem neste país. Lembra da Noor? "Ele me preencheu por completo. Cada polegada." O Poderoso Chefão, trocado pelo personal que ele pagava.
 
@@ -78,7 +78,7 @@ Então presta muita atenção, porque é isso que vai tirar um peso de 30 anos d
 
 Não é idade. Um homem de 70 com a esponja limpa fica duro feito pedra, e um de 40 com a esponja cimentada não. Não é estresse. Não é falta de tesão. E não é na sua cabeça. É o glifosato, travando e endurecendo o seu pau desde antes de você virar homem.
 
-E se você duvida, lembra da pergunta que eu fiz pro Al na sala dele, e que você respondeu pra você mesmo no mesmo segundo. Quando foi a última vez que você acordou duro? O seu corpo não mente enquanto você dorme. Se aquela ereção que vinha sozinha no meio da noite desapareceu, não é psicológico. É físico. É cimento. O silêncio do Al foi a resposta dele. Qual foi a sua?
+E se você duvida, lembra da pergunta que eu fiz pro Al na sala dele, e que você respondeu pra você mesmo no mesmo segundo. Quando foi a última vez que você acordou duro? O seu corpo não mente enquanto você dorme. Se aquela ereção que vinha sozinha no meio da noite desapareceu, não é psicológico. É físico. É cimento. O silêncio do Al foi a resposta dele. Qual foi a sua? Se a resposta é "não lembro", você já sabe.
 
 Olha esta imagem. O lado direito é o que está dentro de você agora. Foi isso que ela segurou. Foi isso que amoleceu na palma da mão dela enquanto ela dizia "tudo bem". Você não falhou como homem. Você foi sabotado como tecido. E é por isso que nada do que você tentou funcionou.
 
@@ -90,7 +90,7 @@ Por isso funcionou no começo e foi enfraquecendo. O Al tomou por um ano inteiro
 
 Mas o cimento cortou o fio, e com o fio cortado a luz não acende por mais que você aperte o interruptor. Você só paga com o fígado.
 
-O exame do Al mostrou isso também. E os 20 mil dólares de ondas de choque? Onda de choque bate no bloco, e o bloco não se mexe. O gel de 10 minutos? Dez minutos, e a esponja continua igual. E cirurgia, menos ainda. Enfiam uma prótese numa esponja que continua morrendo por dentro, e você acaba com um pau duro e morto ao mesmo tempo. 100% mecânica, sem sensação.
+O exame do Al mostrou isso também. E os 20 mil dólares de ondas de choque? Onda de choque bate no bloco, e o bloco não se mexe. O gel de 10 minutos? Dez minutos, e a esponja continua igual. E cirurgia, menos ainda. Enfiam uma prótese numa esponja que continua morrendo por dentro, e você acaba com um pau duro e morto ao mesmo tempo. 100% mecânica, sem sensação. Um pau de boneco.
 
 Lembra do médico da Noor? "O problema não é você." Ele estava certo. O problema era cimento.
 
@@ -176,7 +176,7 @@ E eu não acreditei de ouvir. Antes de dar isso pro Al, eu precisava ver na minh
 
 E é o que começa dentro de você na primeira semana, com a prova na sua própria mão. Nos primeiros dias, a sua urina sai mais escura. Não é doença. É a placa saindo. Você vai literalmente mijar pra fora o cimento que travou o seu pau por 30 anos.
 
-E conforme a placa sai, o sangue inunda um lugar que passou anos seco. Rápido assim. O seu pau fica mais pesado na mão, mais quente, e quando enche, enche até a cabeça, veias saltando, duro feito pedra, como não ficava desde os 20.
+E conforme a placa sai, o sangue inunda um lugar que passou anos seco. Rápido assim. Feito mangueira de incêndio num dia de fogo. O seu pau fica mais pesado na mão, mais quente, e quando enche, enche até a cabeça, veias saltando, duro feito pedra, como não ficava desde os 20.
 
 E um bônus que os criadores conhecem: esse mesmo pó segura o bode durante a monta. Num homem, é a diferença entre amolecer em 10 minutos ou continuar duro rodada após rodada, a noite inteira.
 
@@ -214,7 +214,7 @@ Na primeira semana, a esponja começa a encher. Você sente mais peso na mão, m
 
 E em 30 dias, 3 a 4 polegadas de comprimento e uma de grossura. De 5 polegadas moles que só encolhiam, pra 8, 9 polegadas de pedra, grosso o bastante pra ela não conseguir fechar a mão em volta.
 
-E aí vem o momento que você vai lembrar pro resto da vida: ela congelando por três segundos quando você tira a cueca. E nem precisa estar duro pra pesar na calça.
+E aí vem o momento que você vai lembrar pro resto da vida: ela congelando por três segundos quando você tira a cueca. E ela vai contar pra amiga. Elas contam. E nem precisa estar duro pra pesar na calça.
 
 Mesmo mole, ele pende mais pesado, mais cheio, aquele volume que trava os olhos de uma mulher antes de você abrir a boca, e que te deixa entrar num vestiário sem encolher os ombros pela primeira vez em anos.
 
