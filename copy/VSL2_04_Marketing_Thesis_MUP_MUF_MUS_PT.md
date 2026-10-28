@@ -2,6 +2,7 @@
 
 **Nota (27/10):** versão do Marcos no bloco dos dois ingredientes (frase do criador "limpar a sujeira de dentro do pau do bode", "guarda essa frase"; icariina a **84%**, que substitui o 60% em toda a VSL; o frasco de prateleira continua 5 a 10%).
 **Modelo:** a marketing thesis refinada da VSL 1 (Texas Bull Trick), parágrafo a parágrafo, no mesmo tamanho. Trocas aplicadas: Hyman no lugar do Huberman; Al e Noor; o personal de 40; o bode espanhol do Hill Country (18 a 20 anos = homem de 75; chifre de 30 polegadas; 100 fêmeas a cada 45 dias; 1.460 cabritos; 20 a 30 milhões); o Gupta em pessoa na fazenda; 3 coisas no cocho (pó, mel, casca) e a quarta no chifre; ordem do MUS Dissolver → Reativar (mel) → Reconstruir (chifre do bode) → Proteger (pinheiro); a sofisticação do bicarbonato ("sozinho, 10% chega; com o pó, 100%"); as tentativas do Al na ordem da emotional; o teste de 10 segundos e "o problema não é você" pagos no MUF; "mais filhos, mais vigor"; "até no mel de supermercado". Frases e palavras de poder só onde couberam; palavrão só na raiva contra Bayer e Pfizer.
+**Nota (28/10):** enxertos da HoneyFil Male marcados no doc 08d (Viagra na marra e maquiagem de pau; a parte mais nojenta; demo de bancada da placa no Dissolver com callback na Proteger; pote testado; feromônio com o reason why do bode; fim da DE, menopausa e amigas da filha; rei na cama). `[VERIFICAR]` o estudo do coração.
 **Entra depois de:** a discovery ("é aí que a coisa fica feia"). **Entrega para:** o build-up ("o primeiro homem").
 **A conferir:** Johns Hopkins no 92% (o controle cita; a referência real é Stanislavov 2003); chifre de 30 polegadas; "1.460 cabritos" e "20 a 30 milhões" (números do Marcos na discovery, mantidos por coerência).
 
@@ -81,7 +82,9 @@ E se você duvida, lembra da pergunta que eu fiz pro Al na sala dele, e que voc�
 
 Olha esta imagem. O lado direito é o que está dentro de você agora. Foi isso que ela segurou. Foi isso que amoleceu na palma da mão dela enquanto ela dizia "tudo bem". Você não falhou como homem. Você foi sabotado como tecido. E é por isso que nada do que você tentou funcionou.
 
-O Viagra não dissolve cimento. Só empurra mais sangue contra uma esponja que não absorve mais. Como jogar um balde de água numa pedra. Escorre tudo. Nada entra.
+E o Viagra? Quando você tomou a primeira azul, algum médico perguntou do seu colágeno? Alguém olhou a sua esponja? Claro que não. A pílula só faz uma coisa: força o seu pau a levantar na marra por alguns minutos. Ela dilata as veias e empurra sangue pra dentro. Só isso. Não dissolve cimento. Só joga mais sangue contra uma esponja que não absorve mais. Como jogar um balde de água numa pedra. Escorre tudo. Nada entra. É maquiagem de pau. Dura o tempo da pílula, e te deixa pior do que antes.
+
+E a parte mais nojenta: quanto mais você toma, mais o seu corpo desaprende a levantar sozinho. O cara que queria mais potência acaba dependente, e depois acaba sem nada. E paga com o coração. `[VERIFICAR: a HoneyFil cita "Nature: uso contínuo aumenta o risco de infarto 17 vezes; 37.000 americanos mortos em 12 meses"; usar só com fonte real; sem fonte, fica "paga com o coração", sem número]`.
 
 Por isso funcionou no começo e foi enfraquecendo. O Al tomou por um ano inteiro, escondido no banheiro. Depois dobrou a dose, trocou a azul pela amarela, e acabou com o pau mole na mão numa terça-feira, e as mesmas duas palavras no fim. Não é tolerância. É o cimento chegando antes da pílula. Testosterona também não. Ela é o sinal que manda a esponja trabalhar.
 
@@ -169,7 +172,9 @@ Por isso o criador nunca deu o pó sozinho pro bode. Ele preparava no cocho, na 
 
 E tem o segundo trabalho. Lembra da frase do criador? "O que gruda no bicho, o pó solta." Ele estava falando disto. A placa tóxica é um depósito duro e ácido alojado na sua esponja. O bicarbonato, na forma certa, é a única coisa que quebra isso. Ele solta a placa em pedaços pequenos o bastante pra sair na sua urina.
 
-Olha isso acontecendo. É o que começa dentro de você na primeira semana, com a prova na sua própria mão. Nos primeiros dias, a sua urina sai mais escura. Não é doença. É a placa saindo. Você vai literalmente mijar pra fora o cimento que travou o seu pau por 30 anos.
+E eu não acreditei de ouvir. Antes de dar isso pro Al, eu precisava ver na minha frente. Então pegamos uma amostra de placa tóxica de verdade, a mesma que está secando no seu pau agora. Está neste recipiente, o líquido escuro. E neste outro, o pó preparado na proporção do criador. Olha o que acontece quando um encontra o outro. A placa racha. Solta em pedaço. Em segundos. Guarda essa imagem, porque daqui a pouco você vai ver a mesma coisa de novo, com a quarta peça.
+
+E é o que começa dentro de você na primeira semana, com a prova na sua própria mão. Nos primeiros dias, a sua urina sai mais escura. Não é doença. É a placa saindo. Você vai literalmente mijar pra fora o cimento que travou o seu pau por 30 anos.
 
 E conforme a placa sai, o sangue inunda um lugar que passou anos seco. Rápido assim. O seu pau fica mais pesado na mão, mais quente, e quando enche, enche até a cabeça, veias saltando, duro feito pedra, como não ficava desde os 20.
 
@@ -179,13 +184,15 @@ Mas dissolver é só o primeiro passo. Uma esponja limpa ainda é uma esponja ap
 
 Por isso a segunda coisa: reativar. E quem faz isso é o que estava no pote. O mel. Não é o mel. É o que está dentro dele: um composto chamado icariina, o mesmo que o frasco com o bode no rótulo promete e não entrega. Porque o frasco é a erva crua, seca e moída. Talo e folha, a 5, 10%, com o composto preso na fibra que o seu estômago não quebra. O ácido destrói o resto antes de chegar no sangue, e a única coisa que cresce é o lucro do laboratório. Não foi você. Foi a erva do jeito errado. A abelha é a única que sabe tirar o composto dali.
 
-E ela entrega no mel da colmeia dentro da cerca, a 84%. É o único mel do mundo rico nesse composto. O Manuka é o mel de uma flor. Este é o mel de um bode. E ele não injeta testosterona. Não é TRT. Não sobrecarrega o fígado. Não vira estrogênio.
+E ela entrega no mel da colmeia dentro da cerca, a 84%. Cada pote testado pra icariina antes de sair da fazenda. É o único mel do mundo rico nesse composto. O Manuka é o mel de uma flor. Este é o mel de um bode. E ele não injeta testosterona. Não é TRT. Não sobrecarrega o fígado. Não vira estrogênio.
 
 Ele destrava os receptores que o seu corpo tinha desistido de usar. A TRT aperta o interruptor com o fio cortado. O mel emenda o fio. E com o pó segurando o ácido, ele chega inteiro. E quando os receptores acordam, não é só o seu pau que acorda. É o homem inteiro.
 
 O desejo volta, com força. Você acorda com tesão feito adolescente, olha pra ela, e sente de novo o que achava que a idade tinha levado. O tanque enche. Você goza mais grosso, com mais volume e um jato mais forte, daquele que ela sente e nunca esquece. Semente de homem, não de velho.
 
 Você solta quando decide, com ela se contorcendo e encharcada no auge de um esguicho. E o resto vem junto: energia, músculo no treino, humor lá em cima. E aquela agressividade boa que faz você voltar a ser o homem que manda na cama, não o que pede desculpa e vira pro lado.
+
+E tem uma coisa que o criador me disse no curral e eu só entendi depois. Na época da monta, as fêmeas não vão atrás do bode novo. Vão atrás do velho. Ele fede a bode, e é esse cheiro que chama. Porque quando os receptores acordam, o corpo volta a bombear testosterona de verdade, e testosterona de verdade solta dois feromônios, androstenona e androstenol, que batem direto no cérebro dela. No bode, chama cem fêmeas. No homem, é a caixa do mercado, a mulher da academia, a amiga da sua esposa te olhando diferente sem saber por quê. Você já viu cara feio, sem dinheiro, com fila de mulher. Agora você sabe o que ele tem. Não é mágica. É biologia de bode.
 
 Mas acordada, a esponja ainda está vazia. Cheia de furos. Fraca. Aquele veneno passou 30 anos comendo o colágeno elástico dela. Se você parar aqui, você fica duro. Mas mole, e sem tamanho.
 
@@ -211,6 +218,8 @@ E aí vem o momento que você vai lembrar pro resto da vida: ela congelando por 
 
 Mesmo mole, ele pende mais pesado, mais cheio, aquele volume que trava os olhos de uma mulher antes de você abrir a boca, e que te deixa entrar num vestiário sem encolher os ombros pela primeira vez em anos.
 
+Isso é o fim da disfunção erétil. É a confiança de volta, a que deixa a sua mulher molhada só de te ver de cueca, mesmo que ela já tenha passado da menopausa. É o que vai fazer as amigas da sua filha não conseguirem tirar os olhos do volume marcando no seu shorts no churrasco.
+
 E idade não importa. O voluntário 22 do piloto do Hill Country tinha 62 anos. Saiu de 5,63 polegadas pra 8,46 polegadas em 30 dias. Depois teve que comprar cueca de tecido mais grosso, porque o volume aparecia demais pela calça.
 
 Então é só comprar colágeno de bode? Não. O extrato que funciona vem do núcleo do chifre do bode espanhol, de um único centro de processamento no Hill Country, classificado como substância biológica não regulamentada, proibido de ser vendido cru. Ninguém vai jogar isso num liquidificador e vender num site chinês.
@@ -223,7 +232,7 @@ Isto aqui é a mesa do café americano médio. Pão. Aveia. Café. Cerveja. Mel 
 
 Por isso entra a quarta coisa. Proteger. Lembra da casca que o bode arranca das árvores do pasto? É casca de pinheiro. E o laboratório foi atrás da versão mais estudada do mundo: o Pycnogenol, um extrato concentrado da casca do pinheiro marítimo francês. Ele ocupa o lugar na esponja que o glifosato ia ocupar, e vira um escudo.
 
-O veneno do dia chega, e não encontra onde grudar. Não é teoria. A Johns Hopkins mediu esse efeito e viu 92% dos homens voltarem a ter ereções normais em três meses, com o índice de função erétil saltando de 15 pra 27. Veja o gráfico.
+O veneno do dia chega, e não encontra onde grudar. Lembra da placa que rachou no recipiente? Olha ela tentando se formar de novo, agora com a casca de pinheiro na água. Na hora. Não gruda. Não é teoria. A Johns Hopkins mediu esse efeito e viu 92% dos homens voltarem a ter ereções normais em três meses, com o índice de função erétil saltando de 15 pra 27. Veja o gráfico.
 
 Mas o Pycnogenol faz mais do que te blindar. Ele dispara o óxido nítrico, o gatilho que enche o seu pau de sangue. Isto é uma tira de saliva que mede o óxido nítrico. Quanto mais escuro, mais óxido nítrico.
 
@@ -237,7 +246,7 @@ E é aqui que o truque do mel do bode se fecha. Dissolver, reativar, reconstruir
 
 E fazem rápido. 72 horas, a primeira ereção espontânea ao acordar. 5 dias, o seu pau mais cheio na primeira mijada da manhã. 14 dias, sem Viagra, sem esperar 40 minutos, sem hora certa. 21 dias, crescimento que dá pra medir com régua. 30 dias, a esponja de volta à vida, e as polegadas roubadas de volta.
 
-Em dias. Não em meses. Eu sei como isso soa. Bom demais pra ser verdade. Por isso não vou te pedir pra acreditar em mim. Deixa eu te mostrar o que aconteceu quando eu dei isso pro primeiro homem.
+Em dias. Não em meses. Qualquer homem, não importa a idade, pode voltar a se sentir um rei na cama. Eu sei como isso soa. Bom demais pra ser verdade. Por isso não vou te pedir pra acreditar em mim. Deixa eu te mostrar o que aconteceu quando eu dei isso pro primeiro homem.
 
 ---
 
