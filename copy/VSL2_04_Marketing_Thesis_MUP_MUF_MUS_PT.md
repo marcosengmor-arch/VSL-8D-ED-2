@@ -36,7 +36,7 @@ E cimento, você sabe o que ele faz? Endurece.
 
 Ele entra pelo bife. Pelo copo d'água. Pelo pão. Pela cerveja de sexta. Até pelo mel de supermercado. E o ataque é silencioso. Não dói. Não inflama. Não dá sintoma. Colágeno não tem nervo: você não sente nada enquanto tá acontecendo. Pode estar acontecendo agora. Cada minuto deste vídeo é mais um pouco de glifosato grudando na esponja do seu pau.
 
-Esponja virando cimento. E cimento não enche. Cimento não endurece. Cimento não bombeia sangue. Cimento não fode. Cimento só fica ali, morto, no meio do seu pau, enquanto você vai procurar a culpa em outro lugar. No estresse. Na idade. Nela. Ela te quer. O seu pau é que não consegue mais.
+Esponja virando cimento. E cimento não enche. Cimento não endurece. Cimento não bombeia sangue. Cimento não fode. Nem meia ereção. Nada. Cimento só fica ali, morto, no meio do seu pau, enquanto você vai procurar a culpa em outro lugar. No estresse. Na idade. Nela. Ela te quer. O seu pau é que não consegue mais.
 
 E não é coincidência que, desde que esse veneno entrou de vez na comida americana, a disfunção erétil em homens com menos de 40 mais do que dobrou. Não é a juventude de hoje, é o cimento endurecendo cada vez mais cedo.
 
@@ -140,7 +140,7 @@ Esse é o primeiro ingrediente. Mas ainda faltava um segundo para completar o se
 
 Não está na ração oficial, nem nas instruções do veterinário. É este pote. Mel escuro, da colmeia que fica ali, dentro da cerca do curral, no pasto da erva do bode. O composto dentro dela tem nome: Icariina. É esse composto que acorda a esponja do bode e não deixa ela cimentar. Só que a erva crua não serve. Nem pro bode, nem pra você: o composto vem preso numa fibra que estômago nenhum quebra. Quem tira ele de lá é a abelha. Ela entrega limpo, no mel. É a única forma certa de comer essa erva.
 
-Três semanas por ano, enquanto a erva floresce, o mel dessa colmeia vem apenas dela, concentrado em icariina como nenhum outro mel do planeta. 84% de concentração. Esse é o segundo ingrediente. Passado de mão em mão, porque quem vive do pau de um bode não entrega o segredo pro vizinho.
+Três semanas por ano, enquanto a erva floresce, o mel dessa colmeia vem apenas dela, concentrado em icariina como nenhum outro mel do planeta. 84% de concentração. Esse mel não é commodity. Não se compra, não se fabrica. Só existe nessa colmeia, dentro dessa cerca. Esse é o segundo ingrediente. Passado de mão em mão, porque quem vive do pau de um bode não entrega o segredo pro vizinho.
 
 Foram esses dois, o pó e o mel, que o personal preparava na caneca, na cozinha do Al, antes de subir. O pó que solta o que grudou. O mel que acorda o que dormiu. O mesmo que mantém esse bode duro aos 18. E o mesmo que dissolve o cimento que a medicina jurou por 30 anos ser impossível.
 
@@ -188,11 +188,11 @@ E ela entrega no mel da colmeia dentro da cerca, a 84%. Cada pote testado pra ic
 
 Ele destrava os receptores que o seu corpo tinha desistido de usar. A TRT aperta o interruptor com o fio cortado. O mel emenda o fio. E com o pó segurando o ácido, ele chega inteiro. E quando os receptores acordam, não é só o seu pau que acorda. É o homem inteiro.
 
-O desejo volta, com força. Você acorda com tesão feito adolescente, olha pra ela, e sente de novo o que achava que a idade tinha levado. O tanque enche. Você goza mais grosso, com mais volume e um jato mais forte, daquele que ela sente e nunca esquece. Semente de homem, não de velho.
+O desejo volta rugindo, tão alto quanto a ereção. Você acorda com tesão feito adolescente, olha pra ela, e sente de novo o que achava que a idade tinha levado. O tanque enche. Você goza mais grosso, com mais volume e um jato mais forte, daquele que ela sente e nunca esquece. Semente de homem, não de velho.
 
 Você solta quando decide, com ela se contorcendo e encharcada no auge de um esguicho. E o resto vem junto: energia, músculo no treino, humor lá em cima. E aquela agressividade boa que faz você voltar a ser o homem que manda na cama, não o que pede desculpa e vira pro lado.
 
-E tem uma coisa que o criador me disse no curral e eu só entendi depois. Na época da monta, as fêmeas não vão atrás do bode novo. Vão atrás do velho. Ele fede a bode, e é esse cheiro que chama. Porque quando os receptores acordam, o corpo volta a bombear testosterona de verdade, e testosterona de verdade solta dois feromônios, androstenona e androstenol, que batem direto no cérebro dela. No bode, chama cem fêmeas. No homem, é a caixa do mercado, a mulher da academia, a amiga da sua esposa te olhando diferente sem saber por quê. Você já viu cara feio, sem dinheiro, com fila de mulher. Agora você sabe o que ele tem. Não é mágica. É biologia de bode.
+E lembra do que o Sanjay te contou, que as fêmeas entram no cio só de sentir o cheiro do bode? Tem uma coisa que o criador me disse no curral e eu só entendi depois. Na época da monta, as fêmeas não vão atrás do bode novo. Vão atrás do velho. Ele fede a bode, e é esse cheiro que chama. Porque quando os receptores acordam, o corpo volta a bombear testosterona de verdade, e testosterona de verdade solta dois feromônios, androstenona e androstenol, que batem direto no cérebro dela. No bode, chama cem fêmeas. No homem, é a caixa do mercado, a mulher da academia, a amiga da sua esposa te olhando diferente sem saber por quê. Você já viu cara feio, sem dinheiro, com fila de mulher. Agora você sabe o que ele tem. Não é mágica. É biologia de bode.
 
 Mas acordada, a esponja ainda está vazia. Cheia de furos. Fraca. Aquele veneno passou 30 anos comendo o colágeno elástico dela. Se você parar aqui, você fica duro. Mas mole, e sem tamanho.
 
@@ -230,7 +230,7 @@ E é aí que a maioria dos homens comete o erro fatal. Acham que acabou. Mas dis
 
 Isto aqui é a mesa do café americano médio. Pão. Aveia. Café. Cerveja. Mel de supermercado. Cada bandeirinha é a quantidade de glifosato que tem ali, tirada dos laudos públicos. O total é a sua dose diária. Ou seja, se você limpa a esponja e deixa ela exposta, em 6 meses o cimento novo já refez metade do dano.
 
-Por isso entra a quarta coisa. Proteger. Lembra da casca que o bode arranca das árvores do pasto? É casca de pinheiro. E o laboratório foi atrás da versão mais estudada do mundo: o Pycnogenol, um extrato concentrado da casca do pinheiro marítimo francês. Ele ocupa o lugar na esponja que o glifosato ia ocupar, e vira um escudo.
+Por isso entra a quarta coisa. Proteger. Lembra da casca que o bode arranca das árvores do pasto? É casca de pinheiro. E o laboratório foi atrás da versão mais estudada do mundo: o Pycnogenol, um extrato concentrado da casca do pinheiro marítimo francês. Ele ocupa o lugar na esponja que o glifosato ia ocupar, e vira um escudo. A esponja fica praticamente blindada contra cimento novo.
 
 O veneno do dia chega, e não encontra onde grudar. Lembra da placa que rachou no recipiente? Olha ela tentando se formar de novo, agora com a casca de pinheiro na água. Na hora. Não gruda. Não é teoria. A Johns Hopkins mediu esse efeito e viu 92% dos homens voltarem a ter ereções normais em três meses, com o índice de função erétil saltando de 15 pra 27. Veja o gráfico.
 
@@ -242,9 +242,9 @@ Sem esperar 40 minutos. Sem hora certa. Sem esse escudo, você está enxugando o
 
 Isto é um monitor de ereção noturna. Essa linha reta é você agora. Noites inteiras sem uma. E esses picos são o que vem a seguir. O seu corpo levantando sozinho no meio da noite, como aos 20.
 
-E é aqui que o truque do mel do bode se fecha. Dissolver, reativar, reconstruir, proteger. Quatro verbos. Na ordem exata. As duas coisas do cocho, a casca e o chifre. Juntos, nas proporções certas, fazem o que nenhuma pílula, nenhuma bomba, nenhuma cirurgia do mundo consegue.
+E é aqui que o truque do mel do bode se fecha. Dissolver, reativar, reconstruir, proteger. Quatro verbos. Na ordem exata. Quatro peças, quatro etapas, uma reversão completa. As duas coisas do cocho, a casca e o chifre. Juntos, nas proporções certas, fazem o que nenhuma pílula, nenhuma bomba, nenhuma cirurgia do mundo consegue.
 
-E fazem rápido. 72 horas, a primeira ereção espontânea ao acordar. 5 dias, o seu pau mais cheio na primeira mijada da manhã. 14 dias, sem Viagra, sem esperar 40 minutos, sem hora certa. 21 dias, crescimento que dá pra medir com régua. 30 dias, a esponja de volta à vida, e as polegadas roubadas de volta.
+E fazem rápido. 72 horas, a primeira ereção espontânea ao acordar. 5 dias, o seu pau mais cheio na primeira mijada da manhã. 14 dias, sem Viagra, sem esperar 40 minutos, sem hora certa. 21 dias, crescimento que dá pra medir com régua. 30 dias, a esponja de volta à vida, e as polegadas roubadas de volta. Como se a impotência nunca tivesse existido.
 
 Em dias. Não em meses. Qualquer homem, não importa a idade, pode voltar a se sentir um rei na cama. Eu sei como isso soa. Bom demais pra ser verdade. Por isso não vou te pedir pra acreditar em mim. Deixa eu te mostrar o que aconteceu quando eu dei isso pro primeiro homem.
 

@@ -23,3 +23,12 @@
 | 17 | A noite: gemido de atriz pornô, horas, cama, parede, chão; gozou até implorar, lençol encharcado, pernas tremendo, não amoleceu (4.4, 5.1) | **Build-up**, 11º dia do Al | Cena do Al com essa densidade, "quase duas horas" no lugar de 3 pela idade; "quando eu gozei, não amoleci" | — |
 
 **Fora, por decisão anterior:** deepfake de celebridade nova (linha Hyman/Pacino/Gupta mantida), pornografia contínua, iate e hostess, bônus "Lesbian Trick" (o "Truque Lésbico" já existia no PL-F4 da VSL 1 com outro formato), contador no canto da tela seguido de "não é contador falso", Kinsey 67% (não pedido; se quiser, entra no PL-X2 como `[VERIFICAR]`).
+
+
+## Passada do swipe (28/10, segunda rodada)
+
+**Tese** (`copy/VSL2_04`): "Nem meia ereção. Nada." no cimento; "Esse mel não é commodity. Não se compra, não se fabrica. Só existe nessa colmeia, dentro dessa cerca." no Gupta; "O desejo volta rugindo, tão alto quanto a ereção." no Reativar; callback "lembra do cheiro que põe as fêmeas no cio?" no feromônio (paga a frase da discovery do Marcos); "praticamente blindada" na Proteger; "Quatro peças, quatro etapas, uma reversão completa." e "Como se a impotência nunca tivesse existido." no fecho do MUS.
+
+**Build-up** (`copy/VSL2_05`): "Mark, eu não quero outra promessa. Eu quero o meu pau de volta. E quero agora."; "Dia 1, nada. Dia 2, nada; ele me ligou pra dizer que aquilo era balela. Dia 4..."; "nunca tinha sido fodida daquele jeito na vida. Nem pelos de 30."; "Alguns por mais de uma hora, literalmente quebrando a cama. E no 7º dia, quem me ligava eram as esposas. Pedindo misericórdia."; a ligação gravada agora é o laboratório dos 47 milhões da discovery, com "só de pílula já são 19; com o resto passa de 40".
+
+**Blocos 1 a 3** (versão oficial do Marcos): 13 sugestões com âncora e frase, no fim de `copy/VSL2_Blocos_1-3_FINAL_PT_Marcos.md`, sem alterar o texto.

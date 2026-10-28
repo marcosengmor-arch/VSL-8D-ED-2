@@ -1,7 +1,7 @@
 # VSL 2 (Goat Honey Trick / IronPulseX) — Product Build Up (v1, 27/10/2026, PT para revisão)
 
 **Modelo:** o Product Build Up refinado da VSL 1 (Texas Bull Trick), parágrafo a parágrafo, no mesmo tamanho. Trocas: Hyman/Al/Beverly Hills; o pote de mel (84%) e o pó no lugar do pó cru de colágeno; a primeira dose na caneca com os 4 (mel, pó, extrato do chifre, casca de pinheiro); **sem reconquista** (decisão: a Noor saiu; no 11º dia o Al não liga pra ela, liga pra outra; a mulher do "depois" é a namorada nova, 27, e a gravidez fica para o close); os dois bodes irmãos; 47 homens (22 pacientes da Function Health + 25 indicados pelo Al); Brandon e Lisa, Donna (mulher do Carl), o do churrasco; `[NOME DO DIRETOR DE P&D]` e `[LABORATÓRIO]` no lugar de David Hartman / Meridian; o Al como sócio com a condição do preço; trial de 1.800 (número decidido no brief; o controle usa 3.000); o selo postal; IronPulseX no fim.
-**Nota (28/10):** enxertos da HoneyFil Male (doc 08d): a ligação do Al às 4 da manhã com a imagem do lençol e "toda santa manhã"; a noite do 11º dia com a densidade da cena (gemido, duas horas, cama, parede, chão, lençol encharcado, não amoleceu); a prova de minutos (Ray, 40 min, `[DECIDIR]`); a oferta de `[VALOR]` pra engavetar a fórmula + a ligação gravada do diretor de laboratório, com o valor vitalício do paciente (40 a 70 mil) e a ameaça (decisão do Marcos, 28/10: entra no product build-up, na dificuldade de achar laboratório, com os dois movimentos: o dinheiro pra calar e a call).
+**Nota (28/10):** enxertos da HoneyFil Male (doc 08d): a ligação do Al às 4 da manhã com a imagem do lençol e "toda santa manhã"; a noite do 11º dia com a densidade da cena (gemido, duas horas, cama, parede, chão, lençol encharcado, não amoleceu); a prova de minutos (Ray, 40 min, `[DECIDIR]`); a ligação gravada do laboratório dos 47 milhões (paga o loop da discovery; 19 mil só de pílula, 40 a 70 mil com tudo, coerente com o ex-executivo) do diretor de laboratório, com o valor vitalício do paciente (40 a 70 mil) e a ameaça (decisão do Marcos, 28/10: entra no product build-up, na dificuldade de achar laboratório, com os dois movimentos: o dinheiro pra calar e a call).
 **Entra depois de:** a tese ("deixa eu te mostrar o que aconteceu quando eu dei isso pro primeiro homem"). **Entrega para:** o bloco de produto.
 **A conferir:** "certificados e aprovados pela FDA" (o controle usa; a regra da VSL 1 era "21 CFR 111, auditado"); nomes institucionais do trial (o controle cita Cedars-Sinai e UT Austin; a decisão do brief era não citar instituição verificável); 1.800 vs 3.000.
 
@@ -15,9 +15,9 @@ Voltei do Hill Country sem uma única goma. Voltei com um pote de vidro no bolso
 
 Liguei pro Al naquela noite. "Al, eu não tenho remédio. Tenho mel e pó pra misturar na mão, do jeito que o criador ensinou. Sem rótulo. Sem certificação. Você quer ser o primeiro?" "A receita do personal?" "A receita do bode. O personal só pegou emprestado."
 
-Ele disse sim antes de eu terminar. Se ia morrer com o pau morto, preferia morrer tentando.
+Ele disse sim antes de eu terminar. "Mark, eu não quero outra promessa. Eu quero o meu pau de volta. E quero agora." Se ia morrer com o pau morto, preferia morrer tentando.
 
-14 de janeiro, 7 da manhã, casa dele em Beverly Hills. Primeira dose numa caneca de água morna, na mesma bancada da câmera: uma colher do mel, uma pitada do pó, o extrato do chifre e a casca de pinheiro, na proporção. Ele tomou na minha frente. 4 dias depois, me ligou às 6:15 da manhã.
+14 de janeiro, 7 da manhã, casa dele em Beverly Hills. Primeira dose numa caneca de água morna, na mesma bancada da câmera: uma colher do mel, uma pitada do pó, o extrato do chifre e a casca de pinheiro, na proporção. Ele tomou na minha frente. Dia 1, nada. Dia 2, nada; ele me ligou pra dizer que aquilo era balela. Dia 4, me ligou às 6:15 da manhã.
 
 **[Al Pacino]**
 
@@ -35,7 +35,7 @@ E não parou aí. No 11º dia, ele não ligou pra Noor. Ligou pra outra. Primeir
 
 Eu fodi uma mulher ontem à noite. Trinta anos. Primeira vez em um ano sem Viagra, sem Cialis, sem plano, sem relógio. Entrei nela na primeira tentativa, Mark. Não ajustei nada. E ela congelou por três segundos, porque ela tinha vindo pra casa de um velho de 86 anos achando que ia cuidar dele.
 
-Aí ela começou a rir no meio. Eu parei. Ela disse: "Não para, Al. Não é graça. É choque." Ela tinha ouvido as fofocas. Todo mundo em Los Angeles tinha ouvido. O Poderoso Chefão não levanta. No segundo em que eu entrei de novo, ela soltou um gemido de atriz pornô. Eu fodi ela por quase duas horas, Mark. Na cama, contra a parede, no chão. Ela gozou de novo e de novo até implorar pra eu parar, encharcando o lençol, com as pernas tremendo tanto que não ficava de pé. E quando eu gozei, não amoleci. Aos 86 anos, ela sentou na minha cara e esguichou como as mulheres esguichavam pra mim em 1983.
+Aí ela começou a rir no meio. Eu parei. Ela disse: "Não para, Al. Não é graça. É choque." Ela tinha ouvido as fofocas. Todo mundo em Los Angeles tinha ouvido. O Poderoso Chefão não levanta. No segundo em que eu entrei de novo, ela soltou um gemido de atriz pornô. Eu fodi ela por quase duas horas, Mark. Na cama, contra a parede, no chão. Ela gozou de novo e de novo até implorar pra eu parar, encharcando o lençol, com as pernas tremendo tanto que não ficava de pé. E quando eu gozei, não amoleci. Aos 86 anos, ela sentou na minha cara e esguichou como as mulheres esguichavam pra mim em 1983. De manhã ela me disse que nunca tinha sido fodida daquele jeito na vida. Nem pelos de 30.
 
 Aquela parte de mim não tinha morrido, tinha sido roubada. E a Noor? Ela me ligou no mês seguinte. Eu não atendi. Quem cansou de fingir fui eu.
 
@@ -69,7 +69,7 @@ Com os resultados do Al, reuni 47 homens, de 44 a 76 anos. 22 pacientes meus da 
 
 Um deles, Ray, 61 anos, me mandou mensagem 40 minutos depois da primeira caneca: "Doutor, que porra é essa? Eu tô na cozinha e ele tá pesado na calça." Em 40 minutos. Não é ereção ainda. É o sangue achando um lugar que passou anos seco. `[DECIDIR: prova de minutos; a HoneyFil usa "menos de 5 minutos" numa goma; aqui 40 minutos na caneca, pra não brigar com o 4º dia do Al]`
 
-No 3º dia, 40 dos 47 me ligaram dizendo que tinham fodido a esposa sem Viagra na noite anterior. Os outros 7 relataram o mesmo no 5º dia. 100% em 5 dias. Aos 30 dias, o crescimento médio entre todos eles foi de 3 a 5 polegadas. Aqui está um deles.
+No 3º dia, 40 dos 47 me ligaram dizendo que tinham fodido a esposa sem Viagra na noite anterior. Os outros 7 relataram o mesmo no 5º dia. 100% em 5 dias. Alguns por mais de uma hora, literalmente quebrando a cama. E no 7º dia, quem me ligava eram as esposas. Pedindo misericórdia. Aos 30 dias, o crescimento médio entre todos eles foi de 3 a 5 polegadas. Aqui está um deles.
 
 **[Depoimento 01 — Brandon, 58]**
 
@@ -111,11 +111,11 @@ Quando o último relatório dos 47 chegou, eu tive que escolher. Fechar a Functi
 
 Bati em 14 laboratórios. 7 recusaram na hora, porque um homem curado é um cliente que desaparece. Os outros 7 queriam 1.500 dólares por mês por paciente, com um argumento que eu não esqueço: "Se vamos perder o cliente pra sempre, tiramos todo o lucro na primeira venda." Rejeitei cada um na cara.
 
-E o 15º não quis fabricar. Quis comprar. O diretor de um dos maiores laboratórios do país, um homem que eu conhecia há 15 anos, me ligou com uma proposta: `[VALOR]` pela fórmula, as ressonâncias e o laudo do mel. Pra colocar tudo numa gaveta e eu nunca mais falar disso. Eu gravei a ligação. Tive que distorcer a voz e esconder o nome, mas ouve o que ele me disse quando eu recusei.
+E o 15º não quis fabricar. Quis comprar. Lembra dos 47 milhões pra engavetar sob NDA? Foi esse. O diretor de um dos maiores laboratórios do país, um homem que eu conhecia há 15 anos. Eu gravei a ligação. Tive que distorcer a voz e esconder o nome, mas ouve o que ele me disse quando eu recusei.
 
 **[Diretor de laboratório, chamada gravada, voz distorcida]**
 
-Mark, vou ser direto. Você entende o que isso faz com o nosso negócio? Um homem com disfunção erétil vale entre 40 e 70 mil dólares pra gente ao longo da vida dele. Viagra, Cialis, a receita de retorno, o remédio pro efeito colateral. Se alguém fabrica uma coisa que resolve pela raiz, isso some da noite pro dia. Por isso a gente paga pra isso não existir.
+Mark, vou ser direto. Você entende o que isso faz com o nosso negócio? Um homem com disfunção erétil vale entre 40 e 70 mil dólares pra gente ao longo da vida dele. Só de pílula já são 19. Com o resto, Cialis, a receita de retorno, a TRT, o remédio pro efeito colateral, passa de 40. Se alguém fabrica uma coisa que resolve pela raiz, isso some da noite pro dia. Por isso a gente paga pra isso não existir.
 
 **[Dr. Mark Hyman]**
 
@@ -127,7 +127,7 @@ Você quer mudar o mundo, Mark. Eu não. Pega o dinheiro. E, sinceramente, eu pe
 
 **[Dr. Mark Hyman]**
 
-Quarenta a setenta mil dólares. É isso que você vale pra eles mole. E `[VALOR]` é quanto vale, pra eles, você nunca ver este vídeo. Eu não peguei. Aquela ligação me tirou o sono. O sistema não quer você curado. Quer você medicado. Todo mês. Pra sempre.
+Quarenta a setenta mil dólares. É isso que você vale pra eles mole. E 47 milhões é quanto vale, pra eles, você nunca ver este vídeo. Eu não peguei. Aquela ligação me tirou o sono. O sistema não quer você curado. Quer você medicado. Todo mês. Pra sempre.
 
 Até que `[NOME DO DIRETOR DE P&D]`, Diretor de P&D do `[LABORATÓRIO]`, me ligou. Laboratório independente em `[ESTADO]`, sem farmacêutica dona. Levei tudo: os estudos enterrados, as ressonâncias do Al, o memorando da Bayer de 1998, o laudo do mel da fazenda.
 

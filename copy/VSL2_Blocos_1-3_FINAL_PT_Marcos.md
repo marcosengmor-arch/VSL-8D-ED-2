@@ -290,3 +290,29 @@ Mas antes disso, eu preciso que você veja o que esse veneno castrador fez, mil�
 15. **"pau mediano"**: planta o tamanho (bom para a tese), mas é o Al Pacino se chamando de mediano. Se mantiver, o espectador aceita; se quiser proteger o ícone, "o meu pau" basta.
 
 **Fatos a conferir:** Ottawa (real), Senado (real: mesa redonda de setembro de 2024), 200 milhões de downloads `[VERIFICAR]`, Top 3 podcast `[VERIFICAR]`, Men's Health (ver item 12), Oscar 1, Emmy 2, Tony 2 (real), Roman quarto filho (real), Mick Jagger ex da Noor (real), 8,7 bilhões do Viagra (herdado da VSL 1; número antigo), chifre de 30 polegadas `[VERIFICAR]`.
+
+
+---
+
+## Sugestões do swipe HoneyFil (28/10, para o Marcos decidir; o texto acima não foi alterado)
+
+Cada item: onde entra (trecho âncora do seu texto) → a frase proposta → de onde veio no swipe. Só onde combinou com o tom do bloco.
+
+| # | Bloco | Âncora (seu texto) | Proposta | Origem |
+|---|---|---|---|---|
+| 1 | Emotional, Al | "Era o meu pau que não estava mais." | + "Eu inundei mulher a vida inteira, Mark. E agora ficava mole em cima da única que importava." | 7:28 "flooding women for 30 years... going flaccid on top of the one who actually mattered" |
+| 2 | Emotional, Al | "Ele trocou a pílula azul pela pílula amarela. Cialis. E dobrou a dose." | + "Ninguém me perguntou nada. Ninguém olhou o que tinha dentro do meu pau. Trocou a cor da pílula e dobrou a dose." | 9:59 "does any doctor ask about your hormone levels?" (ecoa o "algum médico perguntou do seu colágeno?" da tese) |
+| 3 | Emotional, Al | "ir pra cama sem a pílula era ir pra guerra desarmado." | + "E a parte mais nojenta: quanto mais eu tomava, mais mole eu ficava sem ela." | 9:59 "the most disgusting part... more impotent than when they started" |
+| 4 | Emotional, Al | "Não era raiva, não era nojo. Era o olhar de quem não via mais um homem ali." | trocar por: "Não era raiva, não era nojo. Era paciência misturada com confusão. Isso é pior do que qualquer insulto que um homem pode ouvir. Era o olhar de quem não via mais um homem ali." | 7:28 "That mix of patience and confusion, That's worse than any insult" |
+| 5 | Emotional, Al | "Aí voltou pior do que antes." | + "Nenhuma pílula, nenhum médico, nenhum tratamento que o dinheiro comprava. Eu não queria outra promessa. Eu queria o meu pau de volta." | 15:38 "I'd been lied to by every pill, every doctor... I wanted my dick back" (prepara o "de vez" do E1 e a frase dele no build-up) |
+| 6 | Emotional, Noor | "Eu deitava do lado dele e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir." | trocar por: "Eu fingia, dava um beijo de boa noite, esperava ele dormir, e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir." | 48:27 "I'd fake the orgasm, kiss him goodnight, then wait for him to fall asleep" |
+| 7 | Emotional, Noor | "Aquele cara me fudeu duro feito pedra por horas, sem amolecer uma vez, do jeito que o Al não fazia nem no auge dele." | + "E quando ele gozava, não amolecia. Estava pronto de novo." | 16:43 "when I finally came, I didn't go soft" (prepara o "não amoleci" do Al no build-up) |
+| 8 | Emotional, Hyman (podcast) | "Morrem exatamente assim. Em silêncio. Dentro do quarto. E o próximo pode ser o seu." | opcional, `[VERIFICAR]`: + "Um estudo do Instituto Kinsey mediu: 67% das mulheres casadas com homens com disfunção erétil já traíram ou estão pensando nisso. Duas em cada três." | 46:02 Kinsey 67% (só com fonte real) |
+| 9 | Discovery | "Pra eles, você nunca foi paciente. Você é uma assinatura mensal." | + "Todo mês. Pra sempre." | 22:55 "It wants you medicated. Monthly. Forever." |
+| 10 | Discovery, ex-executivo | "O paciente médio rende uns 19 mil dólares ao longo da vida." | manter; a ligação gravada do build-up agora diz "só de pílula já são 19; com o resto passa de 40" (alinhado) | 22:12 "$40,000 to $70,000" |
+| 11 | Discovery | "47 milhões de dólares pela fórmula, num pagamento único, pra engavetar sob NDA permanente. Eu disse não." | + "E eu gravei a ligação. Você vai ouvir daqui a pouco." (abre o loop que o build-up paga com a call) | 21:55 "He recorded the call" |
+| 12 | Discovery, bode | "A capacidade de entrar no curral e as fêmeas entrarem no cio só de sentir o cheiro dele." | manter exatamente; a tese agora paga isso no feromônio ("lembra do cheiro que põe as fêmeas no cio?") | 26:32 androstenona/androstenol |
+| 13 | Discovery | "Essa era a mistura na caneca do personal. O cara não era mais homem do que o Al. Ele só tinha o antídoto." | + "Não é mágica. É biologia de bode." (semente da frase que a tese repete no feromônio) | 26:32 "This isn't magic, it's pure biology" |
+| 14 | Background | "e nunca mais dar aquela desculpa gasta de 'hoje eu só tô cansado'" | + "Nem meia ereção. Nada." não cabe aqui; fica na tese. Sem sugestão pro background: o bloco já está na densidade da HoneyFil (baseball bat, Men's Health, "quem diabos sou eu") | — |
+
+**Alinhamento feito nos outros docs:** a ligação gravada do build-up é o laboratório dos 47 milhões da discovery (loop fechado); o valor por paciente ficou coerente (19 mil só de pílula no ex-executivo; 40 a 70 mil com tudo na call).
