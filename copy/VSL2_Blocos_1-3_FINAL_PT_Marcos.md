@@ -146,7 +146,7 @@ Presta muita atenção no que ela vai dizer. Porque isso não é só sobre o Al.
 
 Promete que não vai me julgar? Eu amava o Al. De verdade. Mas amor não faz uma mulher gozar.
 
-Meu Deus. Eu tinha 28 anos. Eu estava com tesão todo dia. E por um ano, o que ficava entre as pernas do Poderoso Chefão era carne morta. Eu deitava do lado dele e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir.
+Meu Deus. Eu tinha 28 anos. Eu estava com tesão todo dia. E por um ano, o que ficava entre as pernas do Poderoso Chefão era carne morta. Eu fingia, dava um beijo de boa noite, esperava ele dormir, e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir.
 
 E eu tentei. Lingerie nova. Brinquedo. Uma viagem só nós dois. Fui num médico pra saber se o problema era eu. Ele riu. Disse: "o problema não é você." Aí o personal trainer apareceu, e olha, eu nem consigo te explicar o porquê. Eu sempre gostei de caras mais velhos, meu ex era o Mick Jagger.
 
@@ -305,7 +305,7 @@ Cada item: onde entra (trecho âncora do seu texto) → a frase proposta → de 
 | 3 | Emotional, Al | "ir pra cama sem a pílula era ir pra guerra desarmado." | + "E a parte mais nojenta: quanto mais eu tomava, mais mole eu ficava sem ela." | 9:59 "the most disgusting part... more impotent than when they started" |
 | 4 | Emotional, Al | "Não era raiva, não era nojo. Era o olhar de quem não via mais um homem ali." | trocar por: "Não era raiva, não era nojo. Era paciência misturada com confusão. Isso é pior do que qualquer insulto que um homem pode ouvir. Era o olhar de quem não via mais um homem ali." | 7:28 "That mix of patience and confusion, That's worse than any insult" |
 | 5 | Emotional, Al | "Aí voltou pior do que antes." | + "Nenhuma pílula, nenhum médico, nenhum tratamento que o dinheiro comprava. Eu não queria outra promessa. Eu queria o meu pau de volta." | 15:38 "I'd been lied to by every pill, every doctor... I wanted my dick back" (prepara o "de vez" do E1 e a frase dele no build-up) |
-| 6 | Emotional, Noor | "Eu deitava do lado dele e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir." | trocar por: "Eu fingia, dava um beijo de boa noite, esperava ele dormir, e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir." | 48:27 "I'd fake the orgasm, kiss him goodnight, then wait for him to fall asleep" |
+| 6 ✅ aplicada | Emotional, Noor | "Eu deitava do lado dele e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir." | trocar por: "Eu fingia, dava um beijo de boa noite, esperava ele dormir, e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir." | 48:27 "I'd fake the orgasm, kiss him goodnight, then wait for him to fall asleep" |
 | 7 | Emotional, Noor | "Aquele cara me fudeu duro feito pedra por horas, sem amolecer uma vez, do jeito que o Al não fazia nem no auge dele." | + "E quando ele gozava, não amolecia. Estava pronto de novo." | 16:43 "when I finally came, I didn't go soft" (prepara o "não amoleci" do Al no build-up) |
 | 8 | Emotional, Hyman (podcast) | "Morrem exatamente assim. Em silêncio. Dentro do quarto. E o próximo pode ser o seu." | opcional, `[VERIFICAR]`: + "Um estudo do Instituto Kinsey mediu: 67% das mulheres casadas com homens com disfunção erétil já traíram ou estão pensando nisso. Duas em cada três." | 46:02 Kinsey 67% (só com fonte real) |
 | 9 | Discovery | "Pra eles, você nunca foi paciente. Você é uma assinatura mensal." | + "Todo mês. Pra sempre." | 22:55 "It wants you medicated. Monthly. Forever." |
