@@ -11,7 +11,7 @@
 
 **[Dr. Mark Hyman]**
 
-Voltei do Hill Country sem uma única goma. Voltei com um pote de vidro no bolso do casaco. O mel da colmeia, a 84%. E um saquinho do pó, na proporção do criador. Os mesmos dois que o personal preparava na cozinha do Al.
+O Sanjay voltou do Hill Country sem uma única goma. Desceu do avião e veio direto pro meu consultório com um pote de vidro no bolso do casaco. O mel da colmeia, a 84%. E um saquinho do pó, na proporção do criador. Os mesmos dois que o personal preparava na cozinha do Al. Colocou os dois na minha mesa e disse: "Mark, é isso. Agora é com você."
 
 Liguei pro Al naquela noite. "Al, eu não tenho remédio. Tenho mel e pó pra misturar na mão, do jeito que o criador ensinou. Sem rótulo. Sem certificação. Você quer ser o primeiro?" "A receita do personal?" "A receita do bode. O personal só pegou emprestado."
 
