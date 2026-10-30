@@ -65,9 +65,9 @@ E não funciona só no homem comum. Funciona no homem público, que pode pagar q
 
 **[Depoimento - Harrison Ford]**
 
-O Al me ligou em agosto. "Testa isso." Eu confio nele há 40 anos. 30 dias de IronPulseX e voltei a acordar duro feito pedra, como nos anos 80.
+O Al me ligou em agosto. "Testa isso." Eu confio nele há 40 anos. 30 dias de IronPulseX e voltei a acordar duro feito pedra, como nos anos 80. Ontem fodi a minha esposa duas vezes antes do café. Aos 84. Ela gozou até implorar pra eu parar.
 
-E não fui só eu que percebi. As amigas da minha filha, quando dormem lá em casa, não tiram os olhos do volume na minha calça. E a vizinha não para de olhar pra janela do meu quarto. Eu tenho 84 anos e dinheiro pra comprar qualquer coisa. Isto, até 6 meses atrás, dinheiro não comprava.
+E não fui só ela que percebeu. As amigas da minha filha, quando dormem lá em casa, não tiram os olhos do volume na minha calça. E a vizinha não para de olhar pra janela do meu quarto. Eu tenho dinheiro pra comprar qualquer coisa. Isto, até 6 meses atrás, dinheiro não comprava.
 
 **[Dr. Mark Hyman]**
 
