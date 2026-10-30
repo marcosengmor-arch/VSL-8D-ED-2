@@ -1,7 +1,7 @@
 # VSL 2 (Goat Honey Trick / IronPulseX) — Big Offer (v1, 30/10/2026, PT para revisão)
 
 **Modelo:** a Big Offer refinada da VSL 1 (`Big_Offer_Controle.docx`), parágrafo a parágrafo, mesma ordem das 6 partes. **Regra desta versão (decisão do Marcos, 30/10):** nada importante do controle sai; o que a HoneyFil trouxe de melhor entra no lugar da parte fraca quando dá, e empilha quando não dá.
-**Trocas por decisão:** Hyman; IronPulseX; Dissolver → Reativar (mel, icariina 84%) → Reconstruir (núcleo do chifre do bode espanhol) → Proteger; Caldwell Formulations, Round Rock, Texas (nomes sugeridos em 30/10, a confirmar) sob 21 CFR 111; Al (60% aos 86), os 47 (44 a 76), o trial de 1.800 (35 a 70, 94%); sem genérico pela colmeia dentro da cerca + o chifre num único lugar; Harrison Ford e Kevin Costner ("o Al me ligou"); Donna e Carl; 67 frascos com o ritmo da abelha e do bode; a condição do Al; $500 → $147 → paga 3 leva 6; The GOAT Guarantee.
+**Trocas por decisão:** Hyman; IronPulseX; Dissolver → Reativar (mel, icariina 84%) → Reconstruir (núcleo do chifre do bode espanhol) → Proteger; Caldwell Formulations, Round Rock, Texas (nomes sugeridos em 30/10, a confirmar) sob 21 CFR 111; Al (60% aos 86), os 47 (44 a 76), o trial de 1.800 (35 a 70, 94%); sem genérico pela colmeia dentro da cerca + o chifre num único lugar; Harrison Ford (as amigas da filha, a vizinha) e Van Damme (decisão do Marcos, 30/10; "o Al me ligou"); Donna e Carl; 67 frascos com o ritmo da abelha e do bode; a condição do Al; $500 → $147 → paga 3 leva 6; The GOAT Guarantee.
 **Entradas da HoneyFil:** a uróloga (A); o homem da TRT (B); o Dr. Oz testando num voluntário de 79 anos, no lugar do elogio (C); a atriz adulta dentro do viral (D); o Al interrompe com os primeiros 20, o iate, a hostess e o termômetro do botão (D); o Truque Lésbico com as duas mulheres na câmera e a pergunta (E); a garantia que paga $200 e o depoimento de quem acionou antes de abrir (F).
 **Pendências:** `[DECIDIR]` sabor da goma; `[DECIDIR]` Dr. Oz (cargo público) ou outro médico de TV no mesmo papel; `[DECIDIR]` $100 ou $200 na garantia; `[CONFIRMAR]` AUA "14 vezes" e "selo" ficam fora (decisão do 08b); `[VERIFICAR]` "fluxo 20 vezes"; nomes da uróloga e do homem da TRT são fictícios.
 
@@ -67,15 +67,19 @@ E não funciona só no homem comum. Funciona no homem público, que pode pagar q
 
 O Al me ligou num jantar, em agosto. "Testa isso. Não tem mais nada que vá funcionar." Eu confio no Al há 40 anos. Eu já tinha desistido. Então tomei uma goma do IronPulseX por 30 dias. E comecei a acordar com o pau duro feito pedra, como não acordava desde os anos 80.
 
-A minha esposa parou de reclamar que eu viajo demais. Agora reclama que não consegue andar direito no dia seguinte. Eu tenho 84 anos e dinheiro pra comprar qualquer coisa neste mundo. Isto aqui, até 6 meses atrás, dinheiro não comprava.
+E não fui só eu que percebi. As amigas da minha filha, quando vêm passar o fim de semana lá em casa, não conseguem tirar os olhos do volume na minha calça. Vinte e poucos anos, olhando pra um homem de 84 como se eu fosse o namorado de alguma delas. E a vizinha. A vizinha não para de olhar pra janela do meu quarto. Eu tenho 84 anos e dinheiro pra comprar qualquer coisa neste mundo. Isto aqui, até 6 meses atrás, dinheiro não comprava.
 
 **[Dr. Mark Hyman]**
 
-O segundo a aceitar foi Kevin Costner.
+O segundo a aceitar foi Jean-Claude Van Damme.
 
-**[Depoimento - Kevin Costner]**
+**[Depoimento - Jean-Claude Van Damme]**
 
-O Al me ligou em fevereiro. "O IronPulseX me curou, Kevin. Você tem que testar." Eu confio no cara há 40 anos, então tomei. 60 dias depois, duro feito pedra de novo, igualzinho em 1985. Eu acordava no meio da noite já duro e enfiava nela antes de ela abrir os olhos. Aos 71, se funcionou de novo pra mim, vai funcionar pra você.
+50 filmes de ação, 65 anos. E em 2023, o meu corpo me traiu. O pau não respondia mais. Tentei de tudo. TRT, peptídeo de cavalo na Tailândia, exercício de Kegel. Nada funcionou.
+
+Então o meu amigo Al Pacino me ligou. "Jean-Claude, eu testei. Funciona. Estou te mandando hoje." 30 dias depois, estou fodendo como em 2005. A minha mulher parou de reclamar que eu viajo demais. Agora ela reclama que não consegue andar direito no dia seguinte.
+
+Eu sou o Van Damme. Quando eu digo que uma coisa funciona, ela funciona.
 
 **[Dr. Mark Hyman]**
 
@@ -248,7 +252,7 @@ Se eu não tivesse certeza absoluta, eu iria à falência. E antes de você esco
 | Parte | Controle | VSL 2 |
 |---|---|---|
 | A | AUA "14 vezes" + "primeiro selo" | fora (decisão do 08b); no lugar, a Dra. Laura Whitman (uróloga, Houston); + "todo mês, pra sempre"; + o cheiro da testosterona (feromônio) na lista de benefícios; + "não se compra, não se fabrica, só sai de lá" |
-| B | Arnold, Van Damme, Diane | Harrison Ford, Kevin Costner, **+ Ray (TRT, 59)**, Donna |
+| B | Arnold, Van Damme, Diane | Harrison Ford (benefício trocado: as amigas da filha e a vizinha), Van Damme (mantido do controle, com o Al), **+ Ray (TRT, 59)**, Donna |
 | C | Oz elogiando | Oz **testando** no voluntário de 79 anos, diabético, 10 anos sem ereção; "não é maquiagem de pau" no aviso honesto |
 | D | 3 depoimentos narrados no viral; 15 minutos; escada; "pague mais pelo seu próprio pau" | os 3 narrados **+ a atriz adulta em clipe**; 15 minutos mantidos; escada mantida; **+ o Al interrompe** (primeiros 20 com reembolso total do bolso dele, motivo = os 180 dias do trial, iate, hostess, "em vez de 882, 294, 66%"); **+ o termômetro do botão** ($294 / $882); "fodendo feito bode" |
 | E | 6 bônus, Truque Lésbico narrado | 6 bônus mantidos, **Truque Lésbico com as duas na câmera** e a pergunta da fidelidade |
