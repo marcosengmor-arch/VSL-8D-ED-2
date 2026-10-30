@@ -65,9 +65,9 @@ E não funciona só no homem comum. Funciona no homem público, que pode pagar q
 
 **[Depoimento - Harrison Ford]**
 
-O Al me ligou num jantar, em agosto. "Testa isso. Não tem mais nada que vá funcionar." Eu confio no Al há 40 anos. Eu já tinha desistido. Então tomei uma goma do IronPulseX por 30 dias. E comecei a acordar com o pau duro feito pedra, como não acordava desde os anos 80.
+O Al me ligou em agosto. "Testa isso." Eu confio nele há 40 anos. 30 dias de IronPulseX e voltei a acordar duro feito pedra, como nos anos 80.
 
-E não fui só eu que percebi. As amigas da minha filha, quando vêm passar o fim de semana lá em casa, não conseguem tirar os olhos do volume na minha calça. Vinte e poucos anos, olhando pra um homem de 84 como se eu fosse o namorado de alguma delas. E a vizinha. A vizinha não para de olhar pra janela do meu quarto. Eu tenho 84 anos e dinheiro pra comprar qualquer coisa neste mundo. Isto aqui, até 6 meses atrás, dinheiro não comprava.
+E não fui só eu que percebi. As amigas da minha filha, quando dormem lá em casa, não tiram os olhos do volume na minha calça. E a vizinha não para de olhar pra janela do meu quarto. Eu tenho 84 anos e dinheiro pra comprar qualquer coisa. Isto, até 6 meses atrás, dinheiro não comprava.
 
 **[Dr. Mark Hyman]**
 
