@@ -10,16 +10,16 @@ Meta: −2.500 a −3.000 palavras até o "$49" do Pitch, sem corte estrutural (
 | Background Story (Background 628 / Emotional 2.011 / Discovery 1.332) | 4.396 | 3.971 | −425 | 2ª passada, aguardando ok |
 | Marketing Thesis (MUP 1.031 / MUF 1.441 / MUS 1.735) | 4.454 | 4.207 | −247 | aguardando ok |
 | Product Build Up | 2.219 | 2.147 | −72 | aguardando ok |
-| Big Offer até o $49 (Product Presentation + abertura do Pitch) | 2.131 | 1.711 | −420 | abertura + depoimentos enxutos, aguardando ok |
+| Big Offer até o $49 (Product Presentation + abertura do Pitch) | 2.131 | 1.734 | −397 | abertura + depoimentos enxutos, aguardando ok |
 
-Acumulado (até o $49): **−1.399**.
+Acumulado (até o $49): **−1.376**.
 
 ## Resultado final até o $49 (com Lead 01)
 
 | | Antes | Depois |
 |---|---|---|
-| Até o $49 | 13.202 | 11.803 |
-| Corpo inteiro (Lead 01) | 16.825 | 15.426 |
+| Até o $49 | 13.202 | 11.826 |
+| Corpo inteiro (Lead 01) | 16.825 | 15.449 |
 
 Comparação até o $49: Soda Horse 11.650 · Alpha Erec 10.006 · Horse Jelly 9.939 · VSL 1 ~12.390.
 Meta de −2.500 a −3.000 só se fecha com corte estrutural (os 3 blocos redundantes do bode já aprovados em chat renderiam ~−400 a mais).

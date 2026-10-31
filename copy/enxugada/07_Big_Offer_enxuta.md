@@ -1,7 +1,7 @@
 # Big Offer — versão enxuta (copy-revisor-vsl)
 
 > Base: docx final ajustado do Marcos. Compressão só até o "$49" do Pitch (Product Presentation + abertura do Pitch); do $49 em diante o texto está igual ao docx.
-> Contagem (sem tags [ ] e títulos): até o $49 **2131 → 1711** (−420). Product Presentation 2.018 → 1.600.
+> Contagem (sem tags [ ] e títulos): até o $49 **2131 → 1734** (−397). Product Presentation 2.018 → 1.623.
 
 ---
 
