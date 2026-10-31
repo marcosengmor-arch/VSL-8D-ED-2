@@ -4,7 +4,7 @@
 **v3 (31/10):** frase longa e fluida como a do Attia (sem staccato), com cenas sexuais pesadas em cada promessa, sem alongar; estrutura e padrão de escrita da Alpha Erec frase a frase. **v2 (31/10):** reescrita no registro do mercado (frase curta, número no lugar de adjetivo, cena no lugar de promessa, a mulher como prova), com imagem nossa (bode em monta, colmeia, cocho, cimento) em vez de frase emprestada. A v1 ficou no histórico do git.
 **Decisões tomadas por mim, a confirmar:** pré-lead com o Johnny Sins e o apresentador (entra; se não quiser, corta e a lead abre no Hyman); o Hyman conduz sozinho, no cenário do podcast, falando pra câmera, e prova a colherada ele mesmo (sem o Gupta; decisão do Marcos, 31/10); multiplicador "15 vezes mais forte que o tadalafil" (amarra com o Cialis do Al); depoimento curto entre os blocos 2 e 3 (entra).
 **Fora de propósito:** "98% dos americanos" e "83%" do Blue Salt; "testosterona envenenada" do Red Honey (nossa causa é o cimento na esponja); "gotas debaixo da língua" (o nosso ritual se come).
-**Entrega para:** o background ("quem diabos sou eu pra te contar tudo isso?").
+**Entrega para:** o background. Fecho com o bloco de depoimentos (Clooney, cara normal, mulher normal) e o Hyman ("91% até o 5º dia... quem sou eu pra te dizer tudo isso?"), texto do Marcos, 31/10; o "mas primeiro, deixa eu me apresentar" do Red Honey saiu, porque o fecho dele já faz essa função.
 
 ---
 
@@ -52,7 +52,33 @@ A esponja do seu pau virou um bloco de cimento, e cimento não enche, não endur
 
 Então fica comigo. Esta colherada de 30 segundos ao acordar vai garantir que você nunca mais fique deitado no escuro brigando com o seu próprio pau pra ele levantar e não te envergonhar de novo, nunca mais tire a bermuda de costas pra ela, e nunca mais goze em 3 minutos com ela ainda no começo e ouça "tudo bem".
 
-Nos próximos minutos, eu vou revelar o ritual que a indústria pornô usa todo dia e que a farmacêutica paga pra você nunca ver, e exatamente como fazer ele na sua cozinha ainda hoje à noite. Mas primeiro, deixa eu me apresentar rapidamente.
+Nos próximos minutos, eu vou revelar o ritual que a indústria pornô usa todo dia e que a farmacêutica paga pra você nunca ver, e exatamente como fazer ele na sua cozinha ainda hoje à noite. E não sou só eu dizendo.
+
+**[Depoimento - George Clooney]**
+
+Graças a esse ritual do mel do bode, eu tenho a mesma resistência que tinha aos 20 e poucos anos, lá quando ninguém ainda sabia o meu nome. Ontem à noite deixei a Amal encharcada três vezes e mantive a ereção o tempo todo, por mais de duas horas. Nada mal pra um cara da minha idade, né?
+
+**[Depoimento - Cara Normal]**
+
+Eu duvidei dessa merda no começo. Aos 64 anos, eu já tinha tentado de tudo: Viagra, TRT, a bomba, nada funcionava.
+
+Mas depois que o Dr. Mark Hyman me colocou nesse ritual do mel do bode, eu transei com 3 mulheres diferentes em 1 semana. Modelos de 30 anos. Elas imploravam "para", e eu não parava. Quanto mais eu fodo, mais elas voltam. É uma loucura, porra!
+
+**[Depoimento - Mulher Normal]**
+
+Meu namorado começou a consumir esse mel do bode com bicarbonato há 2 semanas. Ontem eu tive o sexo mais brutal da minha vida.
+
+O pau dele cresceu na minha frente pelo menos 2 polegadas. Eu vi. Ele me fodeu 3 vezes seguidas sem amolecer por um segundo. Eu implorei pra ele parar porque estava me machucando de tão grande, e ele não parou. Eu chorei e gozei ao mesmo tempo. Nunca senti isso na minha vida.
+
+**[Dr. Mark Hyman]**
+
+Eu recebo depoimentos como esses diariamente. E a melhor parte é saber que essa solução entrega todos esses resultados de forma 100% natural e livre de efeitos colaterais.
+
+Então se prepare, porque você vai entender o poder desse ritual do mel do bode quando vir o seu pau endurecer como uma barra de aço e vir a sua mulher com a boca cheia d'água e os olhos grudados no volume da sua calça.
+
+Nos próximos minutos, você vai aprender exatamente como usar esse mel do bode com bicarbonato pra deixar o seu pênis grande e duro como uma rocha, e vê-lo crescer de 2 a 4 polegadas nas primeiras semanas.
+
+91% dos homens sentem o efeito até o 5º dia. Finalmente destravando a explosão de orgasmos que a sua mulher sempre desejou. Mas antes de continuarmos, você deve estar se perguntando: quem sou eu pra te dizer tudo isso?
 
 ---
 
