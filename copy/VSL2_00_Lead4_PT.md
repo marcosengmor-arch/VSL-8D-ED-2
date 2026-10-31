@@ -1,6 +1,7 @@
 # VSL 2 (Goat Honey Trick / IronPulseX) — Lead 4 (v1, 31/10/2026, PT para revisão)
 
 **Osso:** a lead da Alpha Erec (pré-lead 1.1 → 1.2 e os blocos 2.1 a 2.4), função por função, com o Dr. Mark Hyman no lugar do Attia. Cenário: o Hyman sozinho no podcast, falando pra câmera. Enxertos: Blue Salt (reação de mulher, maridos de celebridade e Hollywood em segredo, "vídeo retirado do ar", "desligue as distrações", "trava o crescimento desde a adolescência", "vergonha ao tirar a calça", "gozar cedo demais") e Red Honey (a prova na câmera com diálogo, "15 vezes o tadalafil", "parece maior flácido, um galã", o depoimento curto, "ritual proibido… mas primeiro deixa eu me apresentar").
+**v2 (31/10):** reescrita no registro do mercado (frase curta, número no lugar de adjetivo, cena no lugar de promessa, a mulher como prova), com imagem nossa (bode em monta, colmeia, cocho, cimento) em vez de frase emprestada. A v1 ficou no histórico do git.
 **Decisões tomadas por mim, a confirmar:** pré-lead com o Johnny Sins e o apresentador (entra; se não quiser, corta e a lead abre no Hyman); o Hyman conduz sozinho, no cenário do podcast, falando pra câmera, e prova a colherada ele mesmo (sem o Gupta; decisão do Marcos, 31/10); multiplicador "15 vezes mais forte que o tadalafil" (amarra com o Cialis do Al); depoimento curto entre os blocos 2 e 3 (entra).
 **Fora de propósito:** "98% dos americanos" e "83%" do Blue Salt; "testosterona envenenada" do Red Honey (nossa causa é o cimento na esponja); "gotas debaixo da língua" (o nosso ritual se come).
 **Entrega para:** o background ("quem diabos sou eu pra te contar tudo isso?").
@@ -19,41 +20,41 @@ Claro. Pode ir em frente. Vamos fazer o seguinte: a gente roda o vídeo do Dr. M
 
 ---
 
-## Lead 4 (modelo Alpha Erec 2.1 → 2.4)
+## Lead 4 (modelo Alpha Erec 2.1 → 2.4) — v2, 31/10: mesma função, escrita nossa
 
 **[Dr. Mark Hyman, no cenário do podcast, sozinho, falando pra câmera; na mesa, o pote de mel escuro, o pote de pó branco e uma caneca]**
 
-Uma colherada deste mel de bode, com uma pitada deste pó, é até 15 vezes mais forte do que um comprimido inteiro de tadalafil. Comida ao acordar, ela produz uma ereção rígida, pesada, que aguenta horas sem cair. Leva menos de 30 segundos, e você pode fazer hoje, na sua cozinha. Simples assim.
+Isto aqui na minha mão vale 15 comprimidos de tadalafil. Uma colher de mel de bode. Uma pitada de pó. É isso. Você engole ao acordar, e o seu pau passa o dia inteiro de prontidão, feito bode velho em época de monta. Quarenta, cinquenta minutos em cima dela sem cair, e quando você goza, ele continua lá, duro, esperando a próxima. Dá pra fazer hoje, na sua cozinha, em menos tempo do que leva pra escovar os dentes.
 
-Olha. Uma colher do mel. Uma pitada do pó. Água morna. Eu tomo isto todo dia de manhã. É só mel. A língua arde um pouco. Espera até chegar no cérebro.
+Olha. O mel. O pó. Água morna. Eu tomo isto todo dia de manhã, há dois anos. É só mel. A língua formiga. Daqui a 20 minutos, é o seu pau que vai formigar.
 
-Seguindo cada passo e colocando esta colherada no seu café da manhã, você vai ter a ereção mais poderosa e impressionante da sua vida. Uma que você nunca sentiu, nem na puberdade. Daquela que deixa qualquer mulher assim… ou assim…
+Faz isso no café da manhã amanhã e você vai sentir uma ereção que o seu corpo nunca produziu. Nem aos 16, atrás da porta do banheiro. Daquela que faz uma mulher fazer isto… ou isto…
 
 **[Corte: 2 reações de mulher, 1 segundo cada, sem fala]**
 
 **[Dr. Mark Hyman]**
 
-Eu digo isso porque 36.600 americanos já testaram e me relataram uma potência que eu não sei explicar. Homens de 41 e de 79 anos, com genética, rotina e saúde diferentes. Ou seja: isso funciona literalmente em qualquer um.
+Eu sei disso porque 36.600 homens já fizeram e me escreveram depois. Caminhoneiro de 41, juiz aposentado de 79, diabético, hipertenso, gordo, magro. O corpo é diferente, o resultado é o mesmo. Isso funciona em qualquer homem que tenha um pau e um estômago.
 
-Não importa há quanto tempo você luta com a disfunção erétil, nem quanto custa manter o seu pau duro. E tem mais: os atores de ponta da indústria pornô estão comendo esse ritual pra aumentar o fluxo de sangue e a entrega de nutriente ao corpo cavernoso. Não é só a ereção. É crescimento de tecido e retenção de sangue no membro, que deixa ele maior e mais cheio mesmo mole. Aquele volume na calça que uma mulher nota antes de olhar o seu rosto, e que a deixa louca quando passa a mão por cima. Um galã, mesmo de calça.
+Não importa há quantos anos você vem negociando com ele pra levantar. E tem uma coisa que ninguém te contou: os atores de ponta do pornô não comem isso pra ficar duro. Eles já ficam. Comem pra crescer. Mais sangue e mais nutriente chegando na esponja do pau, e a esponja faz o que fazia aos 15: estica. Mais comprido, mais grosso, e mais cheio mesmo mole. Você entra num lugar e o olhar dela cai na sua calça antes de subir pro seu rosto. Ela nem sabe por quê. Você sabe.
 
-Essa colherada simples está transformando ator pornô em máquina de sexo sem freio. E não só eles. Os maridos das celebridades estão usando. Atores de Hollywood, em segredo. É por isso que você vê esses homens em cena com o pau praticamente atravessando a mulher, de tão grande e duro. Eles não foram abençoados, nem passaram por nada caro e perigoso. Eles comem o ritual do mel de bode todo dia. Porque a indústria descobriu que uma colherada é 15 vezes mais forte do que o tadalafil. Além de ereção mais dura e mais longa, é 100% natural e não traz nenhum risco pra sua saúde.
+Isso é o que está transformando ator pornô em máquina de foder. E não parou no set. Os maridos das atrizes de Hollywood estão comendo. Os próprios atores, escondido da esposa. É por isso que você liga a TV e vê homem de 70 em cena com o pau praticamente saindo pelo outro lado da mulher. Eles não nasceram assim. Não pagaram 20 mil dólares em clínica. Eles comem o ritual do mel de bode antes de sair de casa. Porque a indústria fez a conta: uma colherada vale 15 tadalafil, não dá infarto, e não vicia.
 
 **[Depoimento, 20 segundos, homem de 50 e poucos, cozinha]**
 
-Eu estava cético. Uma semana nisso, e a minha ereção ficou mais dura, mais grossa, e durou 40 minutos fácil. A minha esposa não acreditou. Ela me perguntou se eu tinha feito alguma coisa lá embaixo. Eu não fiz nada. É só essa colherada. É loucura.
+Eu achei que era papo. Sete dias depois, eu segurei 40 minutos com a minha mulher e ainda acordei duro no dia seguinte. Ela olhou pra ele e perguntou: "você fez alguma coisa aí embaixo?" Eu só comi mel. Mel, cara. É loucura.
 
 **[Dr. Mark Hyman]**
 
-Zero efeito colateral. Então presta muita atenção. Este vídeo pode ser retirado do ar a qualquer momento. Porque o que eu vou revelar nos próximos minutos tem o poder de derrubar o plano inteiro da indústria por trás do Viagra, do Cialis e de cada "solução" que você já viu por aí. Soluções que te deixam dependente feito droga: pra funcionar, você precisa tomar de novo, e de novo, em dose cada vez maior. Então desliga tudo que possa chamar a sua atenção agora.
+Zero efeito colateral. Então presta atenção, porque este vídeo tem data pra sair do ar, e eu não sei qual é. O que eu vou te mostrar nos próximos minutos tira do bolso da indústria o dinheiro que ela faz com Viagra, Cialis e cada "tratamento" que te empurraram. Tratamentos que funcionam como droga: você toma, passa, toma de novo, e cada vez precisa de mais. O Al Pacino dobrou a dose. Você vai ouvir isso da boca dele. Então desliga o que estiver tocando aí do lado e fica comigo.
 
-A verdade é que nenhuma delas age na causa que está deixando o seu pau adormecido. 73 estudos enterrados de universidades como Stanford e Johns Hopkins, que eu li um por um em 11 semanas, junto com o ensaio clínico que eu mesmo conduzi com 1.800 homens americanos, provaram que a raiz do problema não é idade, não é genética, não é hormônio. É um depósito duro, chamado placa tóxica, que se acumula dentro da esponja de colágeno do seu pau ao longo dos últimos 30 anos, secando feito cimento, e que trava o crescimento dele ainda na adolescência.
+Porque nenhuma pílula chega perto da causa. 73 estudos que eu desenterrei de Stanford e Johns Hopkins, lidos um por um em 11 semanas, e o ensaio que eu mesmo conduzi com 1.800 homens americanos dizem a mesma coisa: não é idade, não é genética, não é hormônio. É placa. Um depósito duro que se forma dentro da esponja de colágeno do seu pau, refeição após refeição, há 30 anos, e seca feito cimento. E cimento não enche, não endurece, não fode. Foi esse cimento que travou o seu pau no tamanho que ele tinha aos 15.
 
-A esponja de colágeno do seu pau virou um bloco de cimento. E cimento não enche, não endurece, não fode. E quem despejou esse cimento em você tem nome. E precisa que você nunca descubra. Como médico há 30 anos, chefe de medicina funcional da Cleveland Clinic, e o homem que sentou na frente do Senado pra dizer isso em voz alta, eu provei tudo em laboratório independente, e vou te mostrar em detalhe neste vídeo.
+E quem despejou esse cimento em você tem nome. Nome de marca. E precisa que você nunca leia esta frase. Eu sou médico há 30 anos. Chefe de medicina funcional da Cleveland Clinic. Sentei na frente do Senado e disse isso em voz alta. E provei em laboratório independente, com ressonância, com régua, com os homens na minha frente. Você vai ver cada exame neste vídeo.
 
-Então fica comigo. Esta colherada de 30 segundos ao acordar vai garantir que você nunca mais brigue mentalmente com o seu amiguinho pra ele levantar e não te envergonhar de novo. Nunca mais vergonha de tirar a calça. Nunca mais ansiedade ou desempenho ruim te fazendo perder mais uma batalha, gozando cedo demais, antes de a sua mulher chegar ao auge do orgasmo.
+Então fica aqui. Uma colherada de manhã, e você nunca mais vai ficar deitado no escuro negociando com o seu próprio pau. Nunca mais vai tirar a bermuda de costas pra ela. Nunca mais vai gozar em 3 minutos, com ela ainda no começo, e ouvir "tudo bem".
 
-Nos próximos minutos, eu vou revelar o ritual proibido que a indústria pornô e a farmacêutica escondem há anos, e exatamente como aplicar isso na sua vida ainda hoje à noite. Mas primeiro, deixa eu me apresentar rapidamente.
+Nos próximos minutos, eu vou te entregar o ritual que a indústria pornô usa todo dia e que a farmacêutica paga pra você não ver, e como fazer ele na sua cozinha ainda hoje à noite. Mas antes, você precisa saber quem está falando com você.
 
 ---
 
