@@ -28,7 +28,7 @@ Because while you hesitate on that couch, another man is already clicking the gr
 
 You're wondering if there's a catch. There isn't. Picture three months from now. Your dick in your hand first thing in the morning, thicker, heavier, harder than it was at 25, throbbing before you even open your eyes.
 
-A rock-hard erection every night, poking her back until she wakes up and climbs on without you even asking. The energy of your 40s back, your body responding at the gym, and when you come… you come, your load tripled.
+A rock-hard erection every night, poking her back until she wakes up and rides you without you even asking. The energy of your 40s back, your body responding at the gym, and when you come… you come, your load tripled.
 
 And your wife, the one who's been turning her back on you for 5 years, who'd already given up on you, getting her panties wet again just hearing the shower turn off, because she knows you're gonna walk out of that bathroom rock hard and fuck her until she can't take it anymore.
 
@@ -48,4 +48,4 @@ And the third is the one that really matters. That woman who's going to sleep ne
 
 The man who made her forget her own name in bed. That man didn't die. He's buried under 30 years of cement, under glyphosate, under 200 dinners where she looked away thinking you didn't notice. But he's still in there, in one piece. Be him again.
 
-You've got 3 reasons to click: logic, mechanics, identity. Pick one, pick all 3. It doesn't matter which one gets you off the couch, what matters is that you get off it. So click the green button below, choose your kit, and become the man she can't take her eyes off. Today.
+You've got 3 reasons to click: logic, mechanics, identity. Pick one, pick all 3. It doesn't matter which one gets you off the couch, what matters is that you get up off it. So click the green button below, choose your kit, and become the man she can't take her eyes off. Today.

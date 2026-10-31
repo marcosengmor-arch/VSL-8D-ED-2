@@ -24,9 +24,9 @@ And it didn't stop there. On day 11, he didn't call Noor. He called someone else
 
 Last night I fucked a dirty 28-year-old model, same age as Noor. First time in a year, no Viagra, no Cialis, no clock. I got in her on the first try, Mark. She froze for three seconds, because she'd come to an 86-year-old man's house thinking she'd be taking care of him. But I'm the one who took care of her.
 
-She was moaning like a porn star on top of my dick. I fucked her for almost two hours. In the bed, against the wall, on the floor. She came until she begged me to stop, soaking the sheets.
+She was moaning like a porn star on top of my dick. I fucked her for almost two hours. On the bed, against the wall, on the floor. She came until she begged me to stop, soaking the sheets.
 
-And when I flooded that hot pussy, I didn't go soft. At 86, she sat on my face and squirted the way women squirted for me in 1983. In the morning she told me she'd never been fucked like that. Not even by the grown men of 30.
+And when I flooded that hot pussy, I didn't go soft. At 86, she sat on my face and squirted the way women squirted for me in 1983. In the morning she told me she'd never been fucked like that. Not even by the 30-year-old studs.
 
 [Dr. Mark Hyman]
 
@@ -46,7 +46,7 @@ And he didn't just fuck me. He got me pregnant. At 86. Here's the pregnancy test
 
 [Dr. Mark Hyman]
 
-And the proof that has no placebo. Two brother goats, on the Hill Country farm. Same age, same pasture, same feed, same glyphosate.
+And here's proof with no placebo. Two brother goats, on the Hill Country farm. Same age, same pasture, same feed, same glyphosate.
 
 The breeder gave the trough mix to one. 30 days later, the one without it was a wreck: stopped breeding, stood in the corner of the pen, and his horn shrank. The one that got the mix was covering 4 does a week. A goat doesn't know what a placebo is. Either it works or it doesn't. And in a man, it turns into this.
 
@@ -86,7 +86,7 @@ And it didn't stay in their bedroom.
 
 [Depoimento 03]
 
-It got to the point where my own buddies started offering me their wives at the barbecue. The women couldn't take their eyes off the bulge in my pants, and I'll admit I took up more than one.
+It got to the point where my own buddies started offering me their wives at the barbecue. The women couldn't take their eyes off the bulge in my pants, and I'll admit I took more than one of them up on it.
 
 This one here. The man in those pictures is her husband. Now she sneaks out of the house 3 times a week to see me and always comes back for more.
 

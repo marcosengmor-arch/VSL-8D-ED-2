@@ -16,7 +16,7 @@ Top porn actors eat this spoonful to boost blood flow and nutrient delivery to t
 
 Making it longer, thicker and fuller even when soft. That bulge in your pants a woman notices before she looks at your face, and that gets her wet just running her hand over it.
 
-That's why you see 70-year-old men on camera with their dicks practically splitting the woman in two, her eyes rolled back and her legs wobbly. They weren't born that way, and they didn't pay $20,000 at a clinic. They eat the ritual every day, because the industry did the math: one spoonful is worth 15 tadalafil, it's 100% natural, it won't give you a heart attack and it's not addictive.
+That's why you see 70-year-old men on camera with their dicks practically going right through the woman, her eyes rolled back and her legs wobbly. They weren't born that way, and they didn't pay $20,000 at a clinic. They eat the ritual every day, because the industry did the math: one spoonful is worth 15 tadalafil, it's 100% natural, it won't give you a heart attack and it's not addictive.
 
 Pay close attention, because this video could be taken down at any moment.
 
@@ -50,7 +50,7 @@ Then Dr. Mark Hyman put me on this ritual, and in one week I fucked three differ
 
 My boyfriend started eating this goat honey with baking soda 2 weeks ago. Last night I had the most brutal sex of my life. His dick grew right in front of me. At least 2 inches, I saw it with my eyes and felt it with everything else.
 
-He fucked me 3 times in a row without going soft for a second, and on the third I begged him to stop because he was tearing me apart he was so big, and he didn't stop. I cried and came at the same time, with the sheets soaked under me. I've never felt that in my life.
+He fucked me 3 times in a row without going soft for a second, and on the third I begged him to stop because he was so big he was tearing me open, and he didn't stop. I cried and came at the same time, with the sheets soaked under me. I've never felt that in my life.
 
 [Dr. Mark Hyman]
 

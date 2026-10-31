@@ -2,17 +2,17 @@
 
 [Abella Danger]
 
-This is the real Goat Honey Ritual that keeps a 60-year-old dick standing all night inside a woman, and it doesn't go down even after he comes. You've come looking at me more than at your own wife, I know it, so lock the door before she catches you here.
+This is the real Goat Honey Ritual that keeps a 60-year-old dick standing all night inside a woman, and it won't go soft even after you come. You've come watching me more times than you've come for your own wife, I know it, so lock the door before she catches you watching this.
 
-Today I'm gonna teach you the ritual that's giving 70-year-old grown men a dick like an axe handle. Because every week I get the same DM: "my wife left me for a 20-year-old kid because I went limp."
+Today I'm gonna teach you the ritual that's giving 70-year-old men a dick hard as an axe handle. Because every week I get the same DM: "my wife left me for a 20-year-old kid because I went limp."
 
-Went limp once, went limp twice, and the third time she was already riding someone else. Jesus Christ. They're the reason I'm recording this.
+Went limp once, went limp twice, and by the third time she was already riding someone else. Jesus Christ. They're the reason I'm recording this.
 
-After this honey and baking soda ritual, your wife is the one who's gonna beg for mercy, with you on top of her hour after hour, hard in the same spot, while she soaks the sheets.
+After this honey and baking soda ritual, your wife is the one who's gonna beg for mercy, with you on top of her hour after hour, still rock hard, not going anywhere, while she soaks the sheets.
 
-It's the same mix adult actors swallow before they walk on set to keep their dicks big, thick and hard scene after scene, without going down once.
+It's the same mix adult actors swallow before they walk on set to keep their dicks big, thick and hard scene after scene, without going soft once.
 
-If you wanna be the man who leaves a woman unable to walk straight the next day again, don't go anywhere: a friend of mine is in a goat pen in Texas right now, with one of her fans, proving it on camera.
+If you wanna be that man again, the one who leaves a woman unable to walk straight the next day, don't go anywhere: a friend of mine is in a goat pen in Texas right now, with one of her fans, proving it on camera.
 
 [Kendra Lust]
 
@@ -20,7 +20,7 @@ I'm gonna prove, right in front of you, the secret every top porn actor uses to 
 
 So sweet. Here. Now we just wait for it to kick in.
 
-This man turned 61 today and showed up here soft, with 5 inches and 4 years without getting hard. I just gave him the ritual, and he's walking out of this pen with a dick that won't fit in the underwear he came in. Julia Ann's the one testing how long he lasts in bed.
+This man turned 61 today and showed up here soft, with 5 inches and 4 years without getting hard. I just gave him the ritual, and he's walking out of this pen with a dick that won't fit in the underwear he showed up in. Julia Ann's the one testing how long he lasts in bed.
 
 In the next few minutes you're gonna see what regular guys are swallowing to stay rock hard for hours, with their wives screaming, eyes rolling back, squirting 3 times in one night, and gaining 3 to 4 inches in under 12 days.
 
@@ -28,7 +28,7 @@ Not a day goes by that I don't get a video from some 40-, 50-year-old guy who wa
 
 It's not a pump, it's not a pill, it's not surgery. It's what the actors do every day, and nobody off set knew. I've turned down money and I've gotten threats to keep this from going out for free. Fuck them.
 
-I came like crazy on set, on men who broke me in half, and at home I couldn't be hardcore: I faked the finish so he'd stop, he knew it, and we almost broke up over it.
+I came like crazy on set, with men who broke me in half, and at home I couldn't be hardcore: I faked coming so he'd stop, he knew it, and we almost broke up over it.
 
 He was sure he was born that size and would die that size. He'd already tried everything. We gave it a deadline: one month. If nothing changed, we'd go our separate ways.
 
@@ -46,7 +46,7 @@ Since then it's become a habit among the actors. But go easy on the dose, or you
 
 Even a trans woman got famous from how much she grew. It was so far out of the ordinary that it leaked, and everyone realized it wasn't genetics. There was something more, and that something was in a goat's feed trough.
 
-A discreet ritual of goat honey and baking soda, one spoonful. I'll show you how to stay up for hours, hard as steel, and double the size of your dick so you never shrink in the locker room again.
+A discreet ritual of goat honey and baking soda, one spoonful. I'll show you how to keep it standing for hours, hard as steel, and double the size of your dick so you never shrink back in the locker room again.
 
 And if you come in the first 20 minutes, the blood keeps rushing in so hard you go straight into round two and three with her still shaking. In the morning, morning wood wakes you up before the alarm.
 

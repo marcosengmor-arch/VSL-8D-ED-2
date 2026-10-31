@@ -14,7 +14,7 @@ With the cement dissolved, blood flow to your dick goes up 20 times: rock-hard e
 
 With the horn collagen, at least 3 more inches in a few weeks, with bulging veins and the girth that makes any woman submissive and obsessed with you. And without the glyphosate, control over when you come and the energy you had as a teenager.
 
-Bottom line, this goat gummy is for the man who wants to make any woman come like crazy, soak the sheets and cry with pleasure while she screams his name and begs on her knees for one more round.
+Bottom line, this goat gummy is for you if you want to make any woman come like crazy, soak the sheets and cry with pleasure while she screams your name and begs on her knees for one more round.
 
 And with consistent use, you add at least 3 inches to your penis in a few weeks. Bigger, with bulging veins, length and thickness that make any woman submissive and obsessed with you.
 
@@ -84,9 +84,9 @@ Now hear it from a woman, because the woman is the one who feels it, who notices
 
 [Depoimento - Elisa Sanches ]
 
-My name is Diane, I'm 56, married to Ray for 32 years. Ray went 6 years without fucking me right. We slept in the same room, but it was friendship. On day 12 of the trial, he woke me up at 4 in the morning, rock hard against my ass.
+My name is Diane, I'm 56, married to Ray for 32 years. Ray went 6 years without fucking me right. We slept in the same room, but we were just friends. On day 12 of the trial, he woke me up at 4 in the morning, rock hard against my ass.
 
-In 6 years, that hadn't happened. He put it in me from behind, on our sides, and fucked me for 40 minutes. I cried. Not from pain. From missing it. He got bigger, thicker, harder, at 62. Nobody's paying me to say this. IronPulseX gave me my husband back.
+In 6 years, that hadn't happened. He put it in me spooning and fucked me for 40 minutes. I cried. Not from pain. From missing him. He got bigger, thicker, harder, at 62. Nobody's paying me to say this. IronPulseX gave me my husband back.
 
 [Dr. Mark Hyman]
 
@@ -178,7 +178,7 @@ If you're not in the first 20, you still walk away with the deal of a lifetime. 
 
 [Dr. Mark Hyman]
 
-And because I want you to walk into your wife's bedroom tonight and take her like she's never been taken before, anyone who grabs the 6-bottle package today walks away with 5 exclusive gifts, all free.
+And because I want you to walk into your wife's bedroom tonight and dominate her like she's never been dominated before, anyone who grabs the 6-bottle package today walks away with 5 exclusive gifts, all free.
 
 The first is The Johnny Sins Manual: How to Use Your New Dick, a technical guide made with the biggest porn star in the world.
 

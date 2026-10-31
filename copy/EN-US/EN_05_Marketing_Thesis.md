@@ -4,7 +4,7 @@
 
 You already know who did it. Now you need to see what they did inside you. And for that, you need to understand what no doctor ever sat you down to explain: what your dick looks like on the inside.
 
-It's not muscle, it's not bone. It's a sponge. It has a name, the corpus cavernosum, and under a microscope that's what it is: full of holes, made of collagen, 70 to 80% of the structure, with one single job. Soak up blood when you want to fuck, swell, and keep you rock hard until you finish.
+It's not muscle, it's not bone. It's a sponge. It has a name, the corpus cavernosum, and under a microscope that's what it is: full of holes, made of collagen, 70 to 80% of the structure, with one single job. Soak up blood when you want to fuck, swell, and keep you rock hard until you're done.
 
 What gives it that power is an elastic protein: type III collagen. Not the kind in those wrinkle jars. It lets the sponge do 2 things at once: soak up blood and swell to full size. Loose and healthy, it swells, grows, gets rock hard and goes back into place. Documented since 1993 in The Journal of Urology.
 
@@ -20,7 +20,7 @@ The type III collagen sponge. And it sticks to it 14 times harder than to anythi
 
 And the reason is brutally simple. Collagen is the scaffolding your body almost never replaces. Whatever sticks to it, sticks forever. That's how, meal after meal, for 40 years, glyphosate got in and never left.
 
-Drying in there, layer after layer, like cement. And cement, you know what it does? It hardens. And the attack is silent. It doesn't hurt. It doesn't swell. No symptoms. Every minute of this video is more glyphosate sticking to the sponge in your dick.
+Drying in there, layer after layer, like cement. And cement, you know what it does? It hardens. And the attack is silent. It doesn't hurt. No inflammation. No symptoms. Every minute of this video is more glyphosate sticking to the sponge in your dick.
 
 Sponge turning to cement. And cement doesn't fill. Cement doesn't get hard. Cement doesn't pump blood. Cement doesn't fuck. Cement just sits there, dead, in the middle of your dick, while you look for someone to blame. Stress. Age. Her. She wants you. It's your dick that can't anymore.
 
@@ -104,13 +104,13 @@ The first thing I saw when I got here was this bucket marked "Soda" next to the 
 
 Hold on to that line. That's the first ingredient. But there was a second one missing, and that one isn't on any label, not on the official feed, not in the vet's instructions.
 
-It's this jar. Dark honey, from the hive right there, inside the pen fence, in the pasture of the goat weed. The compound inside it has a name: icariin. That's what wakes up the goat's sponge and keeps it from cementing. Except the raw weed is toxic, it's no good for the goat or for you.
+It's this jar. Dark honey, from the hive right there, inside the pen fence, in the pasture where the goat weed grows. The compound inside it has a name: icariin. That's what wakes up the goat's sponge and keeps it from cementing. Except the raw weed is toxic, it's no good for the goat or for you.
 
-The one who pulls the compound out of it is the bee, and delivers it clean, in the honey: the only way to take it in without the toxicity. Three weeks a year, while the weed is in bloom, this hive's honey comes from that alone, concentrated in icariin like no other honey on the planet: 84%.
+It's the bee that pulls the compound out of it and delivers it clean, in the honey: the only way to take it in without the toxicity. Three weeks a year, while the weed is in bloom, this hive's honey comes from that alone, concentrated in icariin like no other honey on the planet: 84%.
 
 That's the second ingredient. Passed hand to hand, because a man who lives off a goat's dick doesn't give the secret away to his neighbor. Those two, baking soda and icariin-concentrated honey, are what the trainer fixed in the bowl, in Al's kitchen, before he went upstairs.
 
-The powder that loosens what's stuck. The honey that wakes up what's asleep. The same thing that keeps this goat hard at 18. And the same thing that dissolves the cement medicine swore for 30 years was impossible.
+The powder that loosens what's stuck. The honey that wakes up what's asleep. The same thing that keeps this goat hard at 18. And the same thing that dissolves the cement that medicine swore for 30 years was impossible to dissolve.
 
 [Dr. Mark Hyman]
 
@@ -144,7 +144,7 @@ And a bonus the breeders know about: this powder keeps the goat going through br
 
 But dissolving is only the first step. A clean sponge is still a silenced sponge. During those years of cement, the testosterone receptors inside it went quiet. They didn't die. They went silent, because they stopped being used. And a silenced sponge doesn't swell or soak up anything you give it.
 
-That's why the second thing: reactivate. And that's icariin's job, the compound in the honey you just saw in Dr. Gupta's hand. Icariin switches back on the receptors the cement shut up.
+That's why the second thing: reactivate. And that's icariin's job, the compound in the honey you just saw in Dr. Gupta's hand. Icariin switches back on the receptors the cement silenced.
 
 It's not testosterone. It's not TRT. It doesn't overload your liver. It doesn't turn into estrogen. It unlocks what your body had given up on using. And in seven days, your free testosterone goes up 28 to 40%. And when it goes up like that, it's not just your dick that wakes up. It's the whole man.
 
@@ -154,7 +154,7 @@ And you come thicker, with more volume and a stronger shot, the kind she feels a
 
 And the rest comes with it: energy, muscle at the gym, mood through the roof. And that good aggression of the man who runs things in bed, not the one who apologizes and rolls over.
 
-This is a nocturnal erection monitor. That flat line is you now. Whole nights without one. And these spikes are what comes next: your body getting up on its own in the middle of the night, like at 20.
+This is a nocturnal erection monitor. That flat line is you now. Whole nights without one. And these spikes are what comes next: your body rising on its own in the middle of the night, like at 20.
 
 But reactivating is only the second step. On their own, baking soda and icariin don't give you your size back. Because even without cement and with the receptors switched on, the sponge is still empty. Full of holes. Weak. That poison spent 30 years eating its elastic collagen. Stop here, and you get hard, but with no size.
 

@@ -36,7 +36,7 @@ God. It took me 20 years in the industry to realize it was the same thing the 60
 
 The whole porn industry runs on this ritual now, as routine as brushing your teeth.
 
-They threw Viagra and Cialis in the trash: with the goat ritual there's no heart attack risk, no soft scenes, no actor losing it with the actress on all fours waiting. Just thick dick, full of veins, ready to destroy whoever's on set, until she begs for mercy.
+They threw Viagra and Cialis in the trash: with the goat ritual there's no heart attack risk, no soft scenes, no actor losing his hard-on with the actress on all fours waiting. Just thick dick, full of veins, ready to destroy whoever's on set, until she begs for mercy.
 
 [Brandi Love]
 
@@ -56,7 +56,7 @@ The second they catch your scent, they go wild and find a way to corner you alon
 
 Beyond the porn actors, this ritual has already given their dicks back to over 15,000 American men over 50. And now it's the wives calling in sick, walking funny and texting their friends: something brought their husband back to 30.
 
-The U.S. Army has used this ritual for over 40 years to raise soldiers' testosterone without wrecking their hearts. A strong, instant erection was the side effect nobody complained about. 230,000 veterans went through the protocol since 1982, without a single cardiac incident.
+The U.S. Army has used this ritual for over 40 years to raise soldiers' testosterone without wrecking their hearts. Strong, instant hard-ons were the side effect nobody complained about. 230,000 veterans went through the protocol since 1982, without a single cardiac incident.
 
 Dr. Mark Hyman spent months locked in his lab in Beverly Hills refining this ritual. He never planned on putting it out like this. But when he found out what Pfizer would do to bury it, he thought "to hell with them" and leaked the recording on social media.
 

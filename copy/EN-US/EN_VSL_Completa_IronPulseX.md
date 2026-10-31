@@ -2,17 +2,17 @@
 
 [Abella Danger]
 
-This is the real Goat Honey Ritual that keeps a 60-year-old dick standing all night inside a woman, and it doesn't go down even after he comes. You've come looking at me more than at your own wife, I know it, so lock the door before she catches you here.
+This is the real Goat Honey Ritual that keeps a 60-year-old dick standing all night inside a woman, and it won't go soft even after you come. You've come watching me more times than you've come for your own wife, I know it, so lock the door before she catches you watching this.
 
-Today I'm gonna teach you the ritual that's giving 70-year-old grown men a dick like an axe handle. Because every week I get the same DM: "my wife left me for a 20-year-old kid because I went limp."
+Today I'm gonna teach you the ritual that's giving 70-year-old men a dick hard as an axe handle. Because every week I get the same DM: "my wife left me for a 20-year-old kid because I went limp."
 
-Went limp once, went limp twice, and the third time she was already riding someone else. Jesus Christ. They're the reason I'm recording this.
+Went limp once, went limp twice, and by the third time she was already riding someone else. Jesus Christ. They're the reason I'm recording this.
 
-After this honey and baking soda ritual, your wife is the one who's gonna beg for mercy, with you on top of her hour after hour, hard in the same spot, while she soaks the sheets.
+After this honey and baking soda ritual, your wife is the one who's gonna beg for mercy, with you on top of her hour after hour, still rock hard, not going anywhere, while she soaks the sheets.
 
-It's the same mix adult actors swallow before they walk on set to keep their dicks big, thick and hard scene after scene, without going down once.
+It's the same mix adult actors swallow before they walk on set to keep their dicks big, thick and hard scene after scene, without going soft once.
 
-If you wanna be the man who leaves a woman unable to walk straight the next day again, don't go anywhere: a friend of mine is in a goat pen in Texas right now, with one of her fans, proving it on camera.
+If you wanna be that man again, the one who leaves a woman unable to walk straight the next day, don't go anywhere: a friend of mine is in a goat pen in Texas right now, with one of her fans, proving it on camera.
 
 [Kendra Lust]
 
@@ -20,7 +20,7 @@ I'm gonna prove, right in front of you, the secret every top porn actor uses to 
 
 So sweet. Here. Now we just wait for it to kick in.
 
-This man turned 61 today and showed up here soft, with 5 inches and 4 years without getting hard. I just gave him the ritual, and he's walking out of this pen with a dick that won't fit in the underwear he came in. Julia Ann's the one testing how long he lasts in bed.
+This man turned 61 today and showed up here soft, with 5 inches and 4 years without getting hard. I just gave him the ritual, and he's walking out of this pen with a dick that won't fit in the underwear he showed up in. Julia Ann's the one testing how long he lasts in bed.
 
 In the next few minutes you're gonna see what regular guys are swallowing to stay rock hard for hours, with their wives screaming, eyes rolling back, squirting 3 times in one night, and gaining 3 to 4 inches in under 12 days.
 
@@ -28,7 +28,7 @@ Not a day goes by that I don't get a video from some 40-, 50-year-old guy who wa
 
 It's not a pump, it's not a pill, it's not surgery. It's what the actors do every day, and nobody off set knew. I've turned down money and I've gotten threats to keep this from going out for free. Fuck them.
 
-I came like crazy on set, on men who broke me in half, and at home I couldn't be hardcore: I faked the finish so he'd stop, he knew it, and we almost broke up over it.
+I came like crazy on set, with men who broke me in half, and at home I couldn't be hardcore: I faked coming so he'd stop, he knew it, and we almost broke up over it.
 
 He was sure he was born that size and would die that size. He'd already tried everything. We gave it a deadline: one month. If nothing changed, we'd go our separate ways.
 
@@ -46,7 +46,7 @@ Since then it's become a habit among the actors. But go easy on the dose, or you
 
 Even a trans woman got famous from how much she grew. It was so far out of the ordinary that it leaked, and everyone realized it wasn't genetics. There was something more, and that something was in a goat's feed trough.
 
-A discreet ritual of goat honey and baking soda, one spoonful. I'll show you how to stay up for hours, hard as steel, and double the size of your dick so you never shrink in the locker room again.
+A discreet ritual of goat honey and baking soda, one spoonful. I'll show you how to keep it standing for hours, hard as steel, and double the size of your dick so you never shrink back in the locker room again.
 
 And if you come in the first 20 minutes, the blood keeps rushing in so hard you go straight into round two and three with her still shaking. In the morning, morning wood wakes you up before the alarm.
 
@@ -99,7 +99,7 @@ God. It took me 20 years in the industry to realize it was the same thing the 60
 
 The whole porn industry runs on this ritual now, as routine as brushing your teeth.
 
-They threw Viagra and Cialis in the trash: with the goat ritual there's no heart attack risk, no soft scenes, no actor losing it with the actress on all fours waiting. Just thick dick, full of veins, ready to destroy whoever's on set, until she begs for mercy.
+They threw Viagra and Cialis in the trash: with the goat ritual there's no heart attack risk, no soft scenes, no actor losing his hard-on with the actress on all fours waiting. Just thick dick, full of veins, ready to destroy whoever's on set, until she begs for mercy.
 
 [Brandi Love]
 
@@ -119,7 +119,7 @@ The second they catch your scent, they go wild and find a way to corner you alon
 
 Beyond the porn actors, this ritual has already given their dicks back to over 15,000 American men over 50. And now it's the wives calling in sick, walking funny and texting their friends: something brought their husband back to 30.
 
-The U.S. Army has used this ritual for over 40 years to raise soldiers' testosterone without wrecking their hearts. A strong, instant erection was the side effect nobody complained about. 230,000 veterans went through the protocol since 1982, without a single cardiac incident.
+The U.S. Army has used this ritual for over 40 years to raise soldiers' testosterone without wrecking their hearts. Strong, instant hard-ons were the side effect nobody complained about. 230,000 veterans went through the protocol since 1982, without a single cardiac incident.
 
 Dr. Mark Hyman spent months locked in his lab in Beverly Hills refining this ritual. He never planned on putting it out like this. But when he found out what Pfizer would do to bury it, he thought "to hell with them" and leaked the recording on social media.
 
@@ -154,7 +154,7 @@ Top porn actors eat this spoonful to boost blood flow and nutrient delivery to t
 
 Making it longer, thicker and fuller even when soft. That bulge in your pants a woman notices before she looks at your face, and that gets her wet just running her hand over it.
 
-That's why you see 70-year-old men on camera with their dicks practically splitting the woman in two, her eyes rolled back and her legs wobbly. They weren't born that way, and they didn't pay $20,000 at a clinic. They eat the ritual every day, because the industry did the math: one spoonful is worth 15 tadalafil, it's 100% natural, it won't give you a heart attack and it's not addictive.
+That's why you see 70-year-old men on camera with their dicks practically going right through the woman, her eyes rolled back and her legs wobbly. They weren't born that way, and they didn't pay $20,000 at a clinic. They eat the ritual every day, because the industry did the math: one spoonful is worth 15 tadalafil, it's 100% natural, it won't give you a heart attack and it's not addictive.
 
 Pay close attention, because this video could be taken down at any moment.
 
@@ -188,7 +188,7 @@ Then Dr. Mark Hyman put me on this ritual, and in one week I fucked three differ
 
 My boyfriend started eating this goat honey with baking soda 2 weeks ago. Last night I had the most brutal sex of my life. His dick grew right in front of me. At least 2 inches, I saw it with my eyes and felt it with everything else.
 
-He fucked me 3 times in a row without going soft for a second, and on the third I begged him to stop because he was tearing me apart he was so big, and he didn't stop. I cried and came at the same time, with the sheets soaked under me. I've never felt that in my life.
+He fucked me 3 times in a row without going soft for a second, and on the third I begged him to stop because he was so big he was tearing me open, and he didn't stop. I cried and came at the same time, with the sheets soaked under me. I've never felt that in my life.
 
 [Dr. Mark Hyman]
 
@@ -275,7 +275,7 @@ At first it was just the look. I'd come out of the shower with my robe open and 
 
 What the hell is going on? I'd ask the ceiling, Mark. Every night. The first time, you believe it. When it keeps happening, you get it: a 28-year-old woman doesn't lose her fire. Her fire was there. It was my dick that wasn't anymore.
 
-I flooded women my whole life, I've got 4 kids, and I'd go soft on top of the only one who mattered. Every time my average dick slipped out in the basic positions, I saw the frustration on her. I'd try to save it with my tongue, with my fingers, and she'd fake an orgasm just to get it over with.
+I filled women up my whole life, I've got 4 kids, and I'd go soft on top of the only one who mattered. Every time my average dick slipped out in the basic positions, I saw the frustration on her. I'd try to save it with my tongue, with my fingers, and she'd fake an orgasm just to get it over with.
 
 I noticed. And it hurt. No matter how much I made up for it with gifts, trips, designer clothes, nothing replaces a hard, thick dick for a woman. Diamonds don't come. Dick comes.
 
@@ -293,13 +293,13 @@ Then, in the 4th month, came the night that broke me. A Tuesday. She made a wond
 
 When I went upstairs, Noor was in lingerie, on all fours on the bed, a real little nympho. I came up behind her, pulled her panties to the side and put my hand there. Wet. Soaking wet. She wanted it. She arched her ass up at me and bit the pillow, waiting.
 
-But when I pressed the head of my dick against her, it bent. It didn't go soft slowly. It bent like a goddamn wet noodle. I tried to push, thought it'd still go in. It slipped out. I held it in my hand and rubbed it on her to see if it'd get up.
+But when I pressed the head of my dick right at her opening, it bent. It didn't go soft slowly. It bent like a goddamn wet noodle. I tried to push, thought it'd still go in. It slipped out. I held it in my hand and rubbed it on her to see if it'd get up.
 
 It didn't. I rubbed a dead dick on a soaking-wet 28-year-old woman, with both pills in my blood. Noor stayed still about 5 seconds, let out a deep sigh, turned around and sat on the edge of the bed.
 
 And I'll never forget that look. It wasn't anger, it wasn't disgust. It was the look of someone who didn't see a man there anymore. And my dick in my hand, soft, warm from a drug that never got where it needed to go.
 
-Then she said: it's okay, Al, we'll try another day. It's okay. It was the most castrating thing I've ever heard in my life. A week later I went after testosterone replacement. 3 months of TRT, my liver showed up on the bloodwork, and the doctor made me stop. It came back worse than before. Dead dick. At 84.
+Then she said: it's okay, Al, we'll try another day. It's okay. It was the most castrating thing I've ever heard in my life. A week later I went after testosterone replacement. 3 months of TRT, my liver numbers came back bad, and the doctor made me stop. It came back worse than before. Dead dick. At 84.
 
 [Dr. Mark Hyman]
 
@@ -357,7 +357,7 @@ And I tried. New lingerie. Toys. A trip just the two of us. I went to a doctor t
 
 But from the day I saw the bulge of his dick in his pants, my mind started picturing things it hadn't pictured in years. I'd catch myself staring at the front of his pants in the middle of a workout, wet before he'd even touched me. And when it happened, he filled me up completely. Every inch.
 
-And he made me squirt like I hadn't squirted in years. And it wasn't just once. That guy fucked me rock hard for hours, the way Al never did, not even in his prime.
+And he made me squirt like I hadn't squirted in years. And it wasn't just once. That guy fucked me for hours, rock hard, the way Al never did, not even in his prime.
 
 In Al's bed. Against the wall. On the floor. I came until I begged him to stop, my legs shaking so hard I couldn't stand. And when he came, he didn't go soft.
 
@@ -453,9 +453,9 @@ Noor had given me the thread. The uncle. The goat farm. I handed it to the one p
 
 He pulled it, and the thread led to a world I didn't even know existed. Hill Country. Spanish goat breeding, in the number 1 goat state in America. What he found there I'll give you the short version of, because that's where it all connects.
 
-A Spanish breeding buck covers 100 does every 45 days, at 18, 20 years old, the equivalent of a 75-year-old man. 180 kids. And out there, a male's worth is counted in offspring. That's why Hill Country breeders have always kept a secret under lock and key. It's not medicine. It's not a shot.
+A Spanish breeding buck covers 100 does every 45 days, at 18, 20 years old, the equivalent of a 75-year-old man. 180 kids. And out there, vigor is counted in offspring. That's why Hill Country breeders have always kept a secret under lock and key. It's not medicine. It's not a shot.
 
-It's food: a strange mix of honey and a white powder they feed the goat in secret. The same mix in the trainer's bowl. He just had the antidote. That's when the last piece fell into place, and I was pissed. Because while Al was paying $20,000 for shockwaves, the answer was sitting in a feed trough.
+It's food: a strange mix of honey and a white powder they feed the goat in secret. The same mix in the trainer's bowl. He simply had the antidote. That's when the last piece fell into place, and I was pissed. Because while Al was paying $20,000 for shockwaves, the answer was sitting in a feed trough.
 
 And here's what doesn't add up: there's far more glyphosate in the goat's feed than in yours. Even so, goats don't get ED. The goat gets away. Why?
 
@@ -470,7 +470,7 @@ Hold on to that question, because the answer is exactly what's going to bring yo
 
 You already know who did it. Now you need to see what they did inside you. And for that, you need to understand what no doctor ever sat you down to explain: what your dick looks like on the inside.
 
-It's not muscle, it's not bone. It's a sponge. It has a name, the corpus cavernosum, and under a microscope that's what it is: full of holes, made of collagen, 70 to 80% of the structure, with one single job. Soak up blood when you want to fuck, swell, and keep you rock hard until you finish.
+It's not muscle, it's not bone. It's a sponge. It has a name, the corpus cavernosum, and under a microscope that's what it is: full of holes, made of collagen, 70 to 80% of the structure, with one single job. Soak up blood when you want to fuck, swell, and keep you rock hard until you're done.
 
 What gives it that power is an elastic protein: type III collagen. Not the kind in those wrinkle jars. It lets the sponge do 2 things at once: soak up blood and swell to full size. Loose and healthy, it swells, grows, gets rock hard and goes back into place. Documented since 1993 in The Journal of Urology.
 
@@ -486,7 +486,7 @@ The type III collagen sponge. And it sticks to it 14 times harder than to anythi
 
 And the reason is brutally simple. Collagen is the scaffolding your body almost never replaces. Whatever sticks to it, sticks forever. That's how, meal after meal, for 40 years, glyphosate got in and never left.
 
-Drying in there, layer after layer, like cement. And cement, you know what it does? It hardens. And the attack is silent. It doesn't hurt. It doesn't swell. No symptoms. Every minute of this video is more glyphosate sticking to the sponge in your dick.
+Drying in there, layer after layer, like cement. And cement, you know what it does? It hardens. And the attack is silent. It doesn't hurt. No inflammation. No symptoms. Every minute of this video is more glyphosate sticking to the sponge in your dick.
 
 Sponge turning to cement. And cement doesn't fill. Cement doesn't get hard. Cement doesn't pump blood. Cement doesn't fuck. Cement just sits there, dead, in the middle of your dick, while you look for someone to blame. Stress. Age. Her. She wants you. It's your dick that can't anymore.
 
@@ -570,13 +570,13 @@ The first thing I saw when I got here was this bucket marked "Soda" next to the 
 
 Hold on to that line. That's the first ingredient. But there was a second one missing, and that one isn't on any label, not on the official feed, not in the vet's instructions.
 
-It's this jar. Dark honey, from the hive right there, inside the pen fence, in the pasture of the goat weed. The compound inside it has a name: icariin. That's what wakes up the goat's sponge and keeps it from cementing. Except the raw weed is toxic, it's no good for the goat or for you.
+It's this jar. Dark honey, from the hive right there, inside the pen fence, in the pasture where the goat weed grows. The compound inside it has a name: icariin. That's what wakes up the goat's sponge and keeps it from cementing. Except the raw weed is toxic, it's no good for the goat or for you.
 
-The one who pulls the compound out of it is the bee, and delivers it clean, in the honey: the only way to take it in without the toxicity. Three weeks a year, while the weed is in bloom, this hive's honey comes from that alone, concentrated in icariin like no other honey on the planet: 84%.
+It's the bee that pulls the compound out of it and delivers it clean, in the honey: the only way to take it in without the toxicity. Three weeks a year, while the weed is in bloom, this hive's honey comes from that alone, concentrated in icariin like no other honey on the planet: 84%.
 
 That's the second ingredient. Passed hand to hand, because a man who lives off a goat's dick doesn't give the secret away to his neighbor. Those two, baking soda and icariin-concentrated honey, are what the trainer fixed in the bowl, in Al's kitchen, before he went upstairs.
 
-The powder that loosens what's stuck. The honey that wakes up what's asleep. The same thing that keeps this goat hard at 18. And the same thing that dissolves the cement medicine swore for 30 years was impossible.
+The powder that loosens what's stuck. The honey that wakes up what's asleep. The same thing that keeps this goat hard at 18. And the same thing that dissolves the cement that medicine swore for 30 years was impossible to dissolve.
 
 [Dr. Mark Hyman]
 
@@ -610,7 +610,7 @@ And a bonus the breeders know about: this powder keeps the goat going through br
 
 But dissolving is only the first step. A clean sponge is still a silenced sponge. During those years of cement, the testosterone receptors inside it went quiet. They didn't die. They went silent, because they stopped being used. And a silenced sponge doesn't swell or soak up anything you give it.
 
-That's why the second thing: reactivate. And that's icariin's job, the compound in the honey you just saw in Dr. Gupta's hand. Icariin switches back on the receptors the cement shut up.
+That's why the second thing: reactivate. And that's icariin's job, the compound in the honey you just saw in Dr. Gupta's hand. Icariin switches back on the receptors the cement silenced.
 
 It's not testosterone. It's not TRT. It doesn't overload your liver. It doesn't turn into estrogen. It unlocks what your body had given up on using. And in seven days, your free testosterone goes up 28 to 40%. And when it goes up like that, it's not just your dick that wakes up. It's the whole man.
 
@@ -620,7 +620,7 @@ And you come thicker, with more volume and a stronger shot, the kind she feels a
 
 And the rest comes with it: energy, muscle at the gym, mood through the roof. And that good aggression of the man who runs things in bed, not the one who apologizes and rolls over.
 
-This is a nocturnal erection monitor. That flat line is you now. Whole nights without one. And these spikes are what comes next: your body getting up on its own in the middle of the night, like at 20.
+This is a nocturnal erection monitor. That flat line is you now. Whole nights without one. And these spikes are what comes next: your body rising on its own in the middle of the night, like at 20.
 
 But reactivating is only the second step. On their own, baking soda and icariin don't give you your size back. Because even without cement and with the receptors switched on, the sponge is still empty. Full of holes. Weak. That poison spent 30 years eating its elastic collagen. Stop here, and you get hard, but with no size.
 
@@ -695,9 +695,9 @@ And it didn't stop there. On day 11, he didn't call Noor. He called someone else
 
 Last night I fucked a dirty 28-year-old model, same age as Noor. First time in a year, no Viagra, no Cialis, no clock. I got in her on the first try, Mark. She froze for three seconds, because she'd come to an 86-year-old man's house thinking she'd be taking care of him. But I'm the one who took care of her.
 
-She was moaning like a porn star on top of my dick. I fucked her for almost two hours. In the bed, against the wall, on the floor. She came until she begged me to stop, soaking the sheets.
+She was moaning like a porn star on top of my dick. I fucked her for almost two hours. On the bed, against the wall, on the floor. She came until she begged me to stop, soaking the sheets.
 
-And when I flooded that hot pussy, I didn't go soft. At 86, she sat on my face and squirted the way women squirted for me in 1983. In the morning she told me she'd never been fucked like that. Not even by the grown men of 30.
+And when I flooded that hot pussy, I didn't go soft. At 86, she sat on my face and squirted the way women squirted for me in 1983. In the morning she told me she'd never been fucked like that. Not even by the 30-year-old studs.
 
 [Dr. Mark Hyman]
 
@@ -717,7 +717,7 @@ And he didn't just fuck me. He got me pregnant. At 86. Here's the pregnancy test
 
 [Dr. Mark Hyman]
 
-And the proof that has no placebo. Two brother goats, on the Hill Country farm. Same age, same pasture, same feed, same glyphosate.
+And here's proof with no placebo. Two brother goats, on the Hill Country farm. Same age, same pasture, same feed, same glyphosate.
 
 The breeder gave the trough mix to one. 30 days later, the one without it was a wreck: stopped breeding, stood in the corner of the pen, and his horn shrank. The one that got the mix was covering 4 does a week. A goat doesn't know what a placebo is. Either it works or it doesn't. And in a man, it turns into this.
 
@@ -757,7 +757,7 @@ And it didn't stay in their bedroom.
 
 [Depoimento 03]
 
-It got to the point where my own buddies started offering me their wives at the barbecue. The women couldn't take their eyes off the bulge in my pants, and I'll admit I took up more than one.
+It got to the point where my own buddies started offering me their wives at the barbecue. The women couldn't take their eyes off the bulge in my pants, and I'll admit I took more than one of them up on it.
 
 This one here. The man in those pictures is her husband. Now she sneaks out of the house 3 times a week to see me and always comes back for more.
 
@@ -826,7 +826,7 @@ With the cement dissolved, blood flow to your dick goes up 20 times: rock-hard e
 
 With the horn collagen, at least 3 more inches in a few weeks, with bulging veins and the girth that makes any woman submissive and obsessed with you. And without the glyphosate, control over when you come and the energy you had as a teenager.
 
-Bottom line, this goat gummy is for the man who wants to make any woman come like crazy, soak the sheets and cry with pleasure while she screams his name and begs on her knees for one more round.
+Bottom line, this goat gummy is for you if you want to make any woman come like crazy, soak the sheets and cry with pleasure while she screams your name and begs on her knees for one more round.
 
 And with consistent use, you add at least 3 inches to your penis in a few weeks. Bigger, with bulging veins, length and thickness that make any woman submissive and obsessed with you.
 
@@ -896,9 +896,9 @@ Now hear it from a woman, because the woman is the one who feels it, who notices
 
 [Depoimento - Elisa Sanches ]
 
-My name is Diane, I'm 56, married to Ray for 32 years. Ray went 6 years without fucking me right. We slept in the same room, but it was friendship. On day 12 of the trial, he woke me up at 4 in the morning, rock hard against my ass.
+My name is Diane, I'm 56, married to Ray for 32 years. Ray went 6 years without fucking me right. We slept in the same room, but we were just friends. On day 12 of the trial, he woke me up at 4 in the morning, rock hard against my ass.
 
-In 6 years, that hadn't happened. He put it in me from behind, on our sides, and fucked me for 40 minutes. I cried. Not from pain. From missing it. He got bigger, thicker, harder, at 62. Nobody's paying me to say this. IronPulseX gave me my husband back.
+In 6 years, that hadn't happened. He put it in me spooning and fucked me for 40 minutes. I cried. Not from pain. From missing him. He got bigger, thicker, harder, at 62. Nobody's paying me to say this. IronPulseX gave me my husband back.
 
 [Dr. Mark Hyman]
 
@@ -990,7 +990,7 @@ If you're not in the first 20, you still walk away with the deal of a lifetime. 
 
 [Dr. Mark Hyman]
 
-And because I want you to walk into your wife's bedroom tonight and take her like she's never been taken before, anyone who grabs the 6-bottle package today walks away with 5 exclusive gifts, all free.
+And because I want you to walk into your wife's bedroom tonight and dominate her like she's never been dominated before, anyone who grabs the 6-bottle package today walks away with 5 exclusive gifts, all free.
 
 The first is The Johnny Sins Manual: How to Use Your New Dick, a technical guide made with the biggest porn star in the world.
 
@@ -1093,7 +1093,7 @@ Because while you hesitate on that couch, another man is already clicking the gr
 
 You're wondering if there's a catch. There isn't. Picture three months from now. Your dick in your hand first thing in the morning, thicker, heavier, harder than it was at 25, throbbing before you even open your eyes.
 
-A rock-hard erection every night, poking her back until she wakes up and climbs on without you even asking. The energy of your 40s back, your body responding at the gym, and when you come… you come, your load tripled.
+A rock-hard erection every night, poking her back until she wakes up and rides you without you even asking. The energy of your 40s back, your body responding at the gym, and when you come… you come, your load tripled.
 
 And your wife, the one who's been turning her back on you for 5 years, who'd already given up on you, getting her panties wet again just hearing the shower turn off, because she knows you're gonna walk out of that bathroom rock hard and fuck her until she can't take it anymore.
 
@@ -1113,7 +1113,7 @@ And the third is the one that really matters. That woman who's going to sleep ne
 
 The man who made her forget her own name in bed. That man didn't die. He's buried under 30 years of cement, under glyphosate, under 200 dinners where she looked away thinking you didn't notice. But he's still in there, in one piece. Be him again.
 
-You've got 3 reasons to click: logic, mechanics, identity. Pick one, pick all 3. It doesn't matter which one gets you off the couch, what matters is that you get off it. So click the green button below, choose your kit, and become the man she can't take her eyes off. Today.
+You've got 3 reasons to click: logic, mechanics, identity. Pick one, pick all 3. It doesn't matter which one gets you off the couch, what matters is that you get up off it. So click the green button below, choose your kit, and become the man she can't take her eyes off. Today.
 
 
 ---

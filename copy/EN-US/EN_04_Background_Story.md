@@ -70,7 +70,7 @@ At first it was just the look. I'd come out of the shower with my robe open and 
 
 What the hell is going on? I'd ask the ceiling, Mark. Every night. The first time, you believe it. When it keeps happening, you get it: a 28-year-old woman doesn't lose her fire. Her fire was there. It was my dick that wasn't anymore.
 
-I flooded women my whole life, I've got 4 kids, and I'd go soft on top of the only one who mattered. Every time my average dick slipped out in the basic positions, I saw the frustration on her. I'd try to save it with my tongue, with my fingers, and she'd fake an orgasm just to get it over with.
+I filled women up my whole life, I've got 4 kids, and I'd go soft on top of the only one who mattered. Every time my average dick slipped out in the basic positions, I saw the frustration on her. I'd try to save it with my tongue, with my fingers, and she'd fake an orgasm just to get it over with.
 
 I noticed. And it hurt. No matter how much I made up for it with gifts, trips, designer clothes, nothing replaces a hard, thick dick for a woman. Diamonds don't come. Dick comes.
 
@@ -88,13 +88,13 @@ Then, in the 4th month, came the night that broke me. A Tuesday. She made a wond
 
 When I went upstairs, Noor was in lingerie, on all fours on the bed, a real little nympho. I came up behind her, pulled her panties to the side and put my hand there. Wet. Soaking wet. She wanted it. She arched her ass up at me and bit the pillow, waiting.
 
-But when I pressed the head of my dick against her, it bent. It didn't go soft slowly. It bent like a goddamn wet noodle. I tried to push, thought it'd still go in. It slipped out. I held it in my hand and rubbed it on her to see if it'd get up.
+But when I pressed the head of my dick right at her opening, it bent. It didn't go soft slowly. It bent like a goddamn wet noodle. I tried to push, thought it'd still go in. It slipped out. I held it in my hand and rubbed it on her to see if it'd get up.
 
 It didn't. I rubbed a dead dick on a soaking-wet 28-year-old woman, with both pills in my blood. Noor stayed still about 5 seconds, let out a deep sigh, turned around and sat on the edge of the bed.
 
 And I'll never forget that look. It wasn't anger, it wasn't disgust. It was the look of someone who didn't see a man there anymore. And my dick in my hand, soft, warm from a drug that never got where it needed to go.
 
-Then she said: it's okay, Al, we'll try another day. It's okay. It was the most castrating thing I've ever heard in my life. A week later I went after testosterone replacement. 3 months of TRT, my liver showed up on the bloodwork, and the doctor made me stop. It came back worse than before. Dead dick. At 84.
+Then she said: it's okay, Al, we'll try another day. It's okay. It was the most castrating thing I've ever heard in my life. A week later I went after testosterone replacement. 3 months of TRT, my liver numbers came back bad, and the doctor made me stop. It came back worse than before. Dead dick. At 84.
 
 [Dr. Mark Hyman]
 
@@ -152,7 +152,7 @@ And I tried. New lingerie. Toys. A trip just the two of us. I went to a doctor t
 
 But from the day I saw the bulge of his dick in his pants, my mind started picturing things it hadn't pictured in years. I'd catch myself staring at the front of his pants in the middle of a workout, wet before he'd even touched me. And when it happened, he filled me up completely. Every inch.
 
-And he made me squirt like I hadn't squirted in years. And it wasn't just once. That guy fucked me rock hard for hours, the way Al never did, not even in his prime.
+And he made me squirt like I hadn't squirted in years. And it wasn't just once. That guy fucked me for hours, rock hard, the way Al never did, not even in his prime.
 
 In Al's bed. Against the wall. On the floor. I came until I begged him to stop, my legs shaking so hard I couldn't stand. And when he came, he didn't go soft.
 
@@ -248,9 +248,9 @@ Noor had given me the thread. The uncle. The goat farm. I handed it to the one p
 
 He pulled it, and the thread led to a world I didn't even know existed. Hill Country. Spanish goat breeding, in the number 1 goat state in America. What he found there I'll give you the short version of, because that's where it all connects.
 
-A Spanish breeding buck covers 100 does every 45 days, at 18, 20 years old, the equivalent of a 75-year-old man. 180 kids. And out there, a male's worth is counted in offspring. That's why Hill Country breeders have always kept a secret under lock and key. It's not medicine. It's not a shot.
+A Spanish breeding buck covers 100 does every 45 days, at 18, 20 years old, the equivalent of a 75-year-old man. 180 kids. And out there, vigor is counted in offspring. That's why Hill Country breeders have always kept a secret under lock and key. It's not medicine. It's not a shot.
 
-It's food: a strange mix of honey and a white powder they feed the goat in secret. The same mix in the trainer's bowl. He just had the antidote. That's when the last piece fell into place, and I was pissed. Because while Al was paying $20,000 for shockwaves, the answer was sitting in a feed trough.
+It's food: a strange mix of honey and a white powder they feed the goat in secret. The same mix in the trainer's bowl. He simply had the antidote. That's when the last piece fell into place, and I was pissed. Because while Al was paying $20,000 for shockwaves, the answer was sitting in a feed trough.
 
 And here's what doesn't add up: there's far more glyphosate in the goat's feed than in yours. Even so, goats don't get ED. The goat gets away. Why?
 
