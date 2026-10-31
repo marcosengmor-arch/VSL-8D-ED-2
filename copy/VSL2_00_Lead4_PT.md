@@ -56,29 +56,29 @@ Nos próximos minutos, eu vou revelar o ritual que a indústria pornô usa todo 
 
 **[Depoimento - George Clooney]**
 
-Graças a esse ritual do mel do bode, eu tenho a mesma resistência que tinha aos 20 e poucos anos, lá quando ninguém ainda sabia o meu nome. Ontem à noite deixei a Amal encharcada três vezes e mantive a ereção o tempo todo, por mais de duas horas. Nada mal pra um cara da minha idade, né?
+Graças a esse ritual do mel de bode, eu tenho a resistência que tinha aos 20 e poucos, lá quando ninguém sabia o meu nome. Ontem à noite a Amal esguichou três vezes, a última com a cara enterrada no travesseiro, e eu continuei dentro dela, duro, por mais de duas horas, até ela me empurrar rindo. Nada mal pra um cara de 64, né?
 
 **[Depoimento - Cara Normal]**
 
-Eu duvidei dessa merda no começo. Aos 64 anos, eu já tinha tentado de tudo: Viagra, TRT, a bomba, nada funcionava.
+Eu duvidei dessa merda. Aos 64 anos eu já tinha jogado dinheiro em Viagra, TRT e bomba, e o meu pau continuava dormindo em cima da mulher.
 
-Mas depois que o Dr. Mark Hyman me colocou nesse ritual do mel do bode, eu transei com 3 mulheres diferentes em 1 semana. Modelos de 30 anos. Elas imploravam "para", e eu não parava. Quanto mais eu fodo, mais elas voltam. É uma loucura, porra!
+Aí o Dr. Mark Hyman me colocou nesse ritual do mel de bode, e em uma semana eu comi três mulheres diferentes. Modelos de 30 anos. Duas implorando "para, para", e eu não parando. Uma delas me ligou no dia seguinte pedindo de novo. Quanto mais eu fodo, mais elas voltam. É uma loucura, porra.
 
 **[Depoimento - Mulher Normal]**
 
-Meu namorado começou a consumir esse mel do bode com bicarbonato há 2 semanas. Ontem eu tive o sexo mais brutal da minha vida.
+Meu namorado começou a comer esse mel de bode com bicarbonato há 2 semanas. Ontem eu tive o sexo mais brutal da minha vida.
 
-O pau dele cresceu na minha frente pelo menos 2 polegadas. Eu vi. Ele me fodeu 3 vezes seguidas sem amolecer por um segundo. Eu implorei pra ele parar porque estava me machucando de tão grande, e ele não parou. Eu chorei e gozei ao mesmo tempo. Nunca senti isso na minha vida.
+O pau dele cresceu na minha frente. Umas 2 polegadas, no mínimo, eu vi com os meus olhos e senti com o resto. Ele me fodeu 3 vezes seguidas sem amolecer um segundo, e na terceira eu implorei pra ele parar porque estava me rasgando de tão grande, e ele não parou. Eu chorei e gozei ao mesmo tempo, com o lençol encharcado embaixo de mim. Nunca senti isso na minha vida.
 
 **[Dr. Mark Hyman]**
 
-Eu recebo depoimentos como esses diariamente. E a melhor parte é saber que essa solução entrega todos esses resultados de forma 100% natural e livre de efeitos colaterais.
+Eu recebo depoimentos como esses todo dia. E a melhor parte é que essa solução entrega tudo isso 100% natural, sem um único efeito colateral, no corpo de um homem de 64 e no de um de 30.
 
-Então se prepare, porque você vai entender o poder desse ritual do mel do bode quando vir o seu pau endurecer como uma barra de aço e vir a sua mulher com a boca cheia d'água e os olhos grudados no volume da sua calça.
+Então se prepara, porque você vai entender o poder desse ritual do mel de bode quando sentir o seu pau endurecer feito barra de aço na sua mão, e vir a sua mulher com a boca cheia d'água e os olhos grudados no volume da sua calça, antes mesmo de você abrir o zíper.
 
-Nos próximos minutos, você vai aprender exatamente como usar esse mel do bode com bicarbonato pra deixar o seu pênis grande e duro como uma rocha, e vê-lo crescer de 2 a 4 polegadas nas primeiras semanas.
+Nos próximos minutos, você vai aprender exatamente como usar esse mel de bode com bicarbonato pra deixar o seu pau grande e duro feito rocha, e vê-lo crescer de 2 a 4 polegadas nas primeiras semanas, medindo com régua, não com esperança.
 
-91% dos homens sentem o efeito até o 5º dia. Finalmente destravando a explosão de orgasmos que a sua mulher sempre desejou. Mas antes de continuarmos, você deve estar se perguntando: quem sou eu pra te dizer tudo isso?
+91% dos homens sentem o efeito até o 5º dia. E aí a sua mulher finalmente recebe a explosão de orgasmos que ela esperou calada por anos. Mas antes de continuarmos, você deve estar se perguntando: quem sou eu pra te dizer tudo isso?
 
 ---
 
