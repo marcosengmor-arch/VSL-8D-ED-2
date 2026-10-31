@@ -28,7 +28,7 @@ Uma colherada deste mel de bode, com uma pitada deste pó, é até 15 vezes mais
 
 Olha aqui. Uma colher do mel. Uma pitada do pó. Água morna. Eu tomo isto todo dia de manhã, e o gosto é só de mel, com a língua formigando um pouco depois. Em 20 minutos, quem formiga é o seu pau.
 
-Seguindo todos os passos e colocando esta colherada no seu café da manhã, você vai sentir a ereção mais poderosa e impressionante da sua vida. Uma ereção que você nunca teve, nem mesmo na puberdade. Daquelas que fazem uma mulher morder o travesseiro, esguichar no lençol e implorar pelo seu pau com a voz falhando, assim… ou assim…
+Seguindo todos os passos e colocando esta colherada no seu café da manhã, você vai sentir a ereção mais poderosa e impressionante da sua vida. Uma ereção que você nunca teve, nem mesmo na puberdade. Daquelas que fazem uma mulher morder o travesseiro, esguichar no lençol e implorar por misericórdia com a voz falhando, assim… ou assim…
 
 **[Corte: 2 reações de mulher, 1 segundo cada, sem fala]**
 
@@ -40,15 +40,15 @@ Esta colherada simples está transformando ator pornô em máquina de foder sem 
 
 **[Depoimento, 20 segundos, homem de 50 e poucos, cozinha]**
 
-Eu achei que era papo. Sete dias depois eu comi a minha mulher por 40 minutos, ela gozou três vezes e ainda acordei duro no dia seguinte. Ela olhou pra ele e perguntou se eu tinha feito alguma coisa aí embaixo. Eu só comi mel. É loucura.
+Eu achei que era papo. Sete dias depois eu comi a minha mulher por 40 minutos, ela gozou três vezes e ainda acordei duro no dia seguinte. Ela olhou pra ele e perguntou se eu tinha feito alguma coisa aí embaixo. Eu só comi mel. Jesus Cristo, é loucura.
 
 **[Dr. Mark Hyman]**
 
-Completamente livre de efeito colateral. Então presta muita atenção, porque este vídeo pode ser retirado do ar a qualquer momento. O que eu vou revelar nos próximos minutos tem o poder de derrubar o plano inteiro da indústria por trás do Viagra, do Cialis e de cada "tratamento" que te empurraram, soluções que te deixam dependente feito droga: você toma, passa, toma de novo, e cada vez precisa de uma dose maior. O Al Pacino dobrou a dose e acabou com o pau mole na mão, e você vai ouvir isso da boca dele. Então desliga tudo que possa chamar a sua atenção agora, porque nenhuma dessas pílulas age na causa que está deixando o seu pau adormecido.
+Completamente livre de efeito colateral. Então presta muita atenção, porque este vídeo pode ser retirado do ar a qualquer momento. Danem-se os advogados deles: o que eu vou revelar nos próximos minutos tem o poder de derrubar o plano inteiro da indústria corrupta por trás do Viagra, do Cialis e de cada "tratamento" que te empurraram, soluções que te deixam dependente feito droga: você toma, passa, toma de novo, e cada vez precisa de uma dose maior. O Al Pacino dobrou a dose e acabou com o pau mole na mão, e você vai ouvir isso da boca dele. Então desliga tudo que possa chamar a sua atenção agora, porque nenhuma dessas pílulas age na causa que está deixando o seu pau adormecido.
 
 Mais de 73 estudos enterrados de universidades como Stanford e Johns Hopkins, que eu li um por um em 11 semanas, junto com o ensaio clínico que eu mesmo conduzi com 1.800 homens americanos, provaram que a raiz do problema não é idade, não é genética e não são os seus hormônios, mas um depósito rígido chamado placa tóxica que se acumula dentro da esponja de colágeno do seu pau ao longo dos últimos 30 anos, secando feito cimento e travando o crescimento dele ainda na adolescência.
 
-A esponja do seu pau virou um bloco de cimento, e cimento não enche, não endurece e não fode. Quem despejou esse cimento em você tem nome, e precisa que você nunca descubra. Como médico há 30 anos, chefe de medicina funcional da Cleveland Clinic e o homem que sentou na frente do Senado pra dizer isso em voz alta, eu provei tudo em laboratório independente, com ressonância e com régua, e vou te mostrar cada exame em detalhe neste vídeo.
+A esponja do seu pau virou um bloco de cimento, e cimento não enche, não endurece e não fode. Quem despejou esse cimento em você tem nome, e precisa que você nunca descubra. Como médico há 30 anos, chefe de medicina funcional da Cleveland Clinic e o homem que sentou na frente do Senado pra dizer isso em voz alta, papo reto, eu provei tudo em laboratório independente, com ressonância e com régua, e vou te mostrar cada exame em detalhe neste vídeo.
 
 Então fica comigo. Esta colherada de 30 segundos ao acordar vai garantir que você nunca mais fique deitado no escuro brigando com o seu próprio pau pra ele levantar e não te envergonhar de novo, nunca mais tire a bermuda de costas pra ela, e nunca mais goze em 3 minutos com ela ainda no começo e ouça "tudo bem".
 
