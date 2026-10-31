@@ -12,9 +12,9 @@
 
 O que está nesta bancada é o ritual do mel de bode de verdade, o que faz um pau de 60 anos ficar de pé a noite inteira dentro de uma mulher e não cair nem depois de gozar. Você já gozou olhando pra mim mais vezes do que olhando pra sua própria mulher, eu sei disso, então fecha a porta antes de ela te pegar aqui.
 
-Hoje eu vou te ensinar o ritual que está deixando marmanjo de 70 anos com o pau em pé feito cabo de machado, porque toda semana chega mensagem igual na minha caixa: "ela foi embora com um moleque de 20 porque eu broxei". Broxou uma vez, broxou duas, e na terceira ela já estava sentando em outro. É por esses homens que eu estou gravando isto.
+Hoje eu vou te ensinar o ritual que está deixando marmanjo de 70 anos com o pau em pé feito cabo de machado, porque toda semana chega mensagem igual na minha caixa: "ela foi embora com um moleque de 20 porque eu broxei". Broxou uma vez, broxou duas, e na terceira ela já estava sentando em outro. Jesus Cristo. É por esses homens que eu estou gravando isto.
 
-Depois desse ritual, é ela que vai pedir arrego, com você em cima dela hora após hora e o pau no mesmo lugar, duro, enquanto ela encharca o lençol pela terceira vez. É a mesma colherada que os atores adultos engolem antes de entrar no set pra aguentar cena atrás de cena sem cair uma vez.
+Depois desse ritual, é ela que vai implorar por misericórdia, com você em cima dela hora após hora e o pau no mesmo lugar, duro, enquanto ela encharca o lençol pela terceira vez. É a mesma colherada que os atores adultos engolem antes de entrar no set pra aguentar cena atrás de cena sem cair uma vez.
 
 Então, se você quer voltar a ser o homem que deixa a mulher sem andar direito no dia seguinte, não sai daqui, porque uma amiga minha está, neste minuto, num curral no Texas, com um fã dela, provando isso na frente da câmera.
 
@@ -28,7 +28,7 @@ Esse homem fez 61 anos hoje e chegou aqui com 5 polegadas. Eu dei o ritual do me
 
 Nos próximos minutos, você vai ver como homem comum está ganhando 3 polegadas em 21 dias, e o que ele está engolindo pra foder por uma hora e meia sem perder a dureza nem depois de gozar.
 
-Não passa um dia sem eu receber vídeo de homem de 40, 50 anos querendo entrar na indústria, vídeo dele arrombando uma garota de 20, três orgasmos seguidos, com um pau que ele não tinha no mês passado. E não é bomba, não é comprimido, não é cirurgia, nem nada que te faça parecer iludido. É o que os atores fazem todo dia, e ninguém fora do set sabia até hoje. Eu já recusei dinheiro, e já recebi ameaça, pra não abrir isto de graça aqui.
+Não passa um dia sem eu receber vídeo de homem de 40, 50 anos querendo entrar na indústria, vídeo dele arrombando uma garota de 20, três orgasmos seguidos, com um pau que ele não tinha no mês passado. E não é bomba, não é comprimido, não é cirurgia, nem nada que te faça parecer iludido. É o que os atores fazem todo dia, e ninguém fora do set sabia até hoje. Eu já recusei dinheiro, e já recebi ameaça, pra não abrir isto de graça aqui. Que se fodam.
 
 Eu casei com um homem normal, um cara comum com um pau comum, e eu nunca me acostumei. Eu vinha de set, de homem que me quebrava ao meio, e em casa não dava pra ser hardcore: eu fingia o fim pra ele parar, ele sabia, e a gente quase terminou por isso. Ele tinha certeza de que nasceu daquele tamanho e ia morrer daquele tamanho, já tinha tentado tudo que vendem por aí, e a gente deu um prazo de um mês. Se não mudasse, cada um pro seu lado.
 
@@ -36,7 +36,7 @@ Foi aí que apareceu um vídeo do Dr. Mark Hyman, o médico que os poderosos de 
 
 Quase todo homem acha que pau pequeno é herança de família, e é mentira. O pau dele foi sabotado, como o de todo americano nascido depois dos anos 70, por um veneno que está em 97% do que você come, que endurece o tecido por dentro e trava o crescimento ainda na puberdade. Em outras palavras, você devia estar fodendo a sua mulher até ela não conseguir sentar, mas o seu pau foi travado por dentro aos 15 anos e nunca mais cresceu.
 
-Com o ritual do mel de bode, o pau do meu marido ganhou 3,5 polegadas e virou um dos maiores que eu já tive dentro de mim, e eu já tive muitos. Eu nunca tinha visto um pau tão grosso e tão duro quanto naquela noite, em que ele me fez gozar até eu pedir pra parar pela primeira vez na vida. Hoje ele é o cara que as minhas amigas da indústria pedem pra gravar. Era óbvio o que faltava nele, e você vai fazer exatamente a mesma coisa nos próximos minutos.
+Com o ritual do mel de bode, o pau do meu marido ganhou 3,5 polegadas e virou um dos maiores que eu já tive dentro de mim, e eu já tive muitos. Meu Deus, eu nunca tinha visto um pau tão grosso e tão duro quanto naquela noite, em que ele me fez gozar até eu pedir pra parar pela primeira vez na vida. Hoje ele é o cara que as minhas amigas da indústria pedem pra gravar. Era óbvio o que faltava nele, e você vai fazer exatamente a mesma coisa nos próximos minutos.
 
 De lá pra cá, virou hábito entre os atores, mas vai com calma na dose, senão você vai passar vergonha de outro jeito. Tem homem que dobrou a colherada e tomou de manhã e de noite, e ficou feio, parecendo bode reprodutor de leilão. Até mulher trans ficou famosa de tanto que cresceu. Foi tão fora do normal que o ritual vazou, e aí todo mundo entendeu que não era genética. Tinha alguma coisa a mais, e essa coisa estava num cocho de bode.
 

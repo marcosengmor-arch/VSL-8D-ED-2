@@ -32,11 +32,11 @@ Todo homem que não aguenta 5 minutos dentro de uma mulher precisa ouvir essa hi
 
 Ela entregou, sem rodeio, o ritual do mel de bode que todo ator pornô acima de 50 usa pra comer 4 mulheres numa noite sem amolecer uma vez, e ela sabe do que fala, porque gravou com todos eles.
 
-E eu sei de onde esse ritual veio, porque eu cresci no Hill Country, no Texas, entre curral e cocho, com um pai que criava bode. Eu vi com estes olhos um bode de 18 anos cobrir 100 fêmeas enquanto os novos ficavam olhando da cerca, e eu vi o que o criador punha no cocho dele todo dia de monta. Levei 20 anos de indústria pra entender que era a mesma coisa que os atores de 60 estavam comendo antes da cena, e é por causa desse ritual que os atores mais famosos do Pornhub ficam cada vez mais potentes aos 50 e aos 60 anos, igual bode velho.
+E eu sei de onde esse ritual veio, porque eu cresci no Hill Country, no Texas, entre curral e cocho, com um pai que criava bode. Eu vi com estes olhos um bode de 18 anos cobrir 100 fêmeas enquanto os novos ficavam olhando da cerca, e eu vi o que o criador punha no cocho dele todo dia de monta. Deus do céu, levei 20 anos de indústria pra entender que era a mesma coisa que os atores de 60 estavam comendo antes da cena, e é por causa desse ritual que os atores mais famosos do Pornhub ficam cada vez mais potentes aos 50 e aos 60 anos, igual bode velho.
 
 **[Violet Myers]**
 
-A indústria pornô inteira vive desse ritual do mel de bode agora, e pra eles é tão rotina quanto escovar os dentes. Todo estúdio grande já usa. Largaram o Viagra e o Cialis no lixo, porque com o ritual não tem risco de infarto, não tem cena mole, não tem ator perdendo a ereção com a atriz de quatro esperando. Só pau grosso, cheio de veia, pronto pra destruir quem estiver no set naquele dia.
+A indústria pornô inteira vive desse ritual do mel de bode agora, e pra eles é tão rotina quanto escovar os dentes. Todo estúdio grande já usa. Largaram o Viagra e o Cialis no lixo, porque com o ritual não tem risco de infarto, não tem cena mole, não tem ator perdendo a ereção com a atriz de quatro esperando. Só pau grosso, cheio de veia, pronto pra destruir quem estiver no set naquele dia, até ela implorar por misericórdia.
 
 **[Brandi Love]**
 
@@ -52,9 +52,9 @@ Se você é casado, cuidado com a mulher da academia, com a do escritório, com 
 
 O Exército dos EUA usa esse ritual há mais de 40 anos pra subir a testosterona dos soldados sem detonar o coração, e ereção forte e instantânea foi o efeito colateral de que ninguém reclamou. 230.000 veteranos selecionados passaram pelo protocolo entre 1982 e o ano passado, e nem um único incidente cardíaco foi registrado.
 
-O Dr. Mark Hyman passou meses trancado no próprio laboratório, em Beverly Hills, refinando esse ritual do mel de bode, e nunca pensou em soltar desse jeito. Mas quando descobriu o que a Pfizer faria pra enterrar isso, ele mesmo vazou a gravação nas redes sociais, e as ações da Pfizer sangraram 3,2 bilhões de dólares em 48 horas. Na mesma semana, o laboratório dele virou cinza de madrugada, com as amostras, as ressonâncias e seis meses de trabalho dentro. Ele sobreviveu. O técnico de plantão não.
+O Dr. Mark Hyman passou meses trancado no próprio laboratório, em Beverly Hills, refinando esse ritual do mel de bode, e nunca pensou em soltar desse jeito. Mas quando descobriu o que a Pfizer faria pra enterrar isso, ele pensou "danem-se" e vazou a gravação nas redes sociais, e as ações da Pfizer sangraram 3,2 bilhões de dólares em 48 horas. Na mesma semana, o laboratório dele virou cinza de madrugada, com as amostras, as ressonâncias e seis meses de trabalho dentro. Ele sobreviveu. O técnico de plantão não.
 
-O corpo de bombeiros fechou o caso em 72 horas e escreveu "curto-circuito" no laudo. Foi aí que o Hyman decidiu gravar um segundo vídeo, de um lugar que ele não revela, indo muito além do que vazou da primeira vez.
+O corpo de bombeiros fechou o caso em 72 horas e escreveu "curto-circuito" no laudo. Curto-circuito, porra. Foi aí que o Hyman decidiu gravar um segundo vídeo, de um lugar que ele não revela, indo muito além do que vazou da primeira vez.
 
 Agora você pode dizer adeus a um pau mole e morto, e começar a ficar duro feito pedra por horas, fazendo a sua esposa gritar o seu nome, revirar os olhos e esguichar 3 vezes numa única noite de tão fundo que você estava abrindo ela. Nunca mais ouvir "não se preocupa, é normal, a gente tenta outra hora", e em vez disso ouvir toda noite "por favor, me fode forte como da última vez", engasgando, babando, abrindo aquele rabinho apertado com as duas mãos pra você gozar dentro. Pra você engravidar ela, se quiser, como o Al fez.
 

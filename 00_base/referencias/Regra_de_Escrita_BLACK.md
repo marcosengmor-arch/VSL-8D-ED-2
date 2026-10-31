@@ -15,6 +15,8 @@
 9. **A prova aponta pra frente da VSL.** "O Al dobrou a dose, você vai ouvir da boca dele", "com ressonância e com régua, você vai ver cada exame".
 10. **Mesma função frase a frase do controle, outra escrita.** Ao modelar, cada frase ocupa a função da original (promessa, dose, massa, prova, vilão, credencial, fecho), mas com outras palavras, outro benefício, outro efeito. Nunca a frase do controle com o substantivo trocado.
 
+11. **Palavras e frases de poder como picos.** Do swipe (`Swipe_Frases_de_Poder.md`, 3 guias + 20 palavras): "Jesus Cristo", "Deus", "Meu Deus", "implorar por misericórdia", "pedir arrego", "que se foda", "que se dane", "danem-se", "porra", "filho da puta", "papo reto", "de vez". Entram como pico de ritmo, uma a cada bloco ou cena forte, na voz certa (Hyman: alerta e raiva contra a indústria; Al e depoimentos masculinos: interjeição e palavrão; mulheres: confissão e "Deus"). Nunca duas no mesmo parágrafo, nunca como enfeite: cada uma marca o ponto em que a frase explode. (Acrescentado em 31/10 a pedido do Marcos: "picos de dopamina na cabeça de quem assiste".)
+
 ## Como aplicar ao modelar um bloco
 
 - Ler o bloco do controle e anotar a função de cada frase.
