@@ -1,7 +1,7 @@
 # Big Offer — versão enxuta (copy-revisor-vsl)
 
 > Base: docx final ajustado do Marcos. Compressão só até o "$49" do Pitch (Product Presentation + abertura do Pitch); do $49 em diante o texto está igual ao docx.
-> Contagem (sem tags [ ] e títulos): aba **4178 → 4109** (−69). Até o $49: **2131 → 2062**. Product Presentation 2.018 → 1.951.
+> Contagem (sem tags [ ] e títulos): até o $49 **2131 → 1830** (−301). Product Presentation 2.018 → 1.719. Abertura do Hyman (até o Oz) 779 → 547.
 
 ---
 
@@ -9,27 +9,19 @@
 
 [Dr. Mark Hyman]
 
-É com muita alegria que hoje eu te apresento o IronPulseX. E a melhor parte, pra todo homem que ainda está comigo: montei uma oferta que pode te deixar sair desta página com até três frascos dessa gummy do bode de graça. Já chego nisso. Mas antes de levar isso pra sua casa, você precisa saber exatamente o que é.
+É com muita alegria que hoje eu te apresento o IronPulseX. E a melhor parte, pra todo homem que ainda está comigo: montei uma oferta que pode te deixar sair desta página com até três frascos dessa gummy do bode de graça. Já chego nisso. Mas antes, você precisa saber exatamente o que é.
 
-IronPulseX é a primeira e única fórmula clinicamente comprovada que dissolve o cimento da sua esponja, acorda os receptores de testosterona que ficaram mudos por 30 anos, reconstrói o colágeno que o veneno comeu, e bloqueia o glifosato que continua entrando amanhã de manhã.
+IronPulseX é a primeira e única fórmula clinicamente comprovada que dissolve o cimento da sua esponja, acorda os receptores de testosterona que ficaram mudos por 30 anos, reconstrói o colágeno que o veneno comeu, e bloqueia o glifosato que continua entrando amanhã de manhã. Dissolver. Reativar. Reconstruir. Proteger. As 4 coisas ao mesmo tempo, numa goma de sabor de mel por dia, sem receita.
 
-Dissolver. Reativar. Reconstruir. Proteger. Fabricado pela Caldwell BioSciences sob a classificação federal 21 CFR 111, com auditoria obrigatória de pureza, rotulagem e segurança. 100% seguro, sem efeitos colaterais. Sem receita, uma goma de manhã, e pronto.
-
-Com o cimento dissolvido, o fluxo de sangue no seu pau aumenta 20 vezes: ereções duras como pedra sempre que você quiser, pelo resto da vida. Com os receptores religados, o desejo sobe na hora e o seu corpo volta a bombear testosterona de verdade, a que ela sente no cheiro, como a fêmea sente o bode velho na monta. Com o colágeno do chifre, o pau fica mais largo e grosso a cada dia. E sem o glifosato, mais controle sobre a ejaculação, e a energia e a confiança de quando você era adolescente.
-
-Resumindo, essa fórmula é pra quem quer fazer qualquer mulher gozar loucamente, molhar os lençóis e chorar de prazer enquanto grita seu nome e implora de joelhos por mais uma rodada, porque você acabou de dar a ela um orgasmo digno de estrela pornô que ela nunca sentiu antes, com uma goma de sabor de mel por dia. E com o uso consistente, você aumenta o seu pênis em pelo menos 3 polegadas em poucas semanas. Maior, com veias salientes, comprimento e espessura que deixam qualquer mulher submissa e obcecada por você.
+Com o cimento dissolvido, o fluxo de sangue no seu pau aumenta 20 vezes: ereções duras como pedra sempre que você quiser, pelo resto da vida. Com os receptores religados, o desejo sobe na hora e o seu corpo volta a bombear a testosterona que ela sente no cheiro, como a fêmea sente o bode velho na monta. Com o colágeno do chifre, pelo menos 3 polegadas a mais em poucas semanas, com veias salientes e a grossura que deixa qualquer mulher submissa e obcecada por você. E sem o glifosato, controle sobre a ejaculação e a energia de quando você era adolescente. Resumindo: é pra quem quer fazer qualquer mulher gozar loucamente, molhar os lençóis e chorar de prazer enquanto grita seu nome e implora de joelhos por mais uma rodada.
 
 Não importa quem você é. Não importa se você tem diabetes, pressão alta, problema de coração ou de próstata. Não importa a sua idade, o seu tamanho hoje, nem quantas coisas você já tentou e viu falhar. Porque o Al tinha 60% de cimento aos 86 anos. Funcionou. Os 117 voluntários tinham de 44 a 76. Funcionou. Os 3.000 homens do trial iam de 35 a 70. Funcionou em 94% deles até agora.
 
-Nenhuma farmacêutica do mundo vai te oferecer isso enquanto o Viagra gera 32 bilhões de dólares por ano, porque homem curado não paga assinatura mensal. Todo mês. Pra sempre. O IronPulseX não encobre o sintoma. Ataca a placa tóxica na origem. O bicarbonato preparado dissolve a placa e segura o ácido pra tudo chegar inteiro. A icariina do mel, a 84%, acorda os receptores. O colágeno do núcleo do chifre reconstrói a esponja com fibra nova. O Pycnogenol blinda contra o glifosato de todo dia. Dissolver, reativar, reconstruir, proteger.
+E não vai existir genérico no mercado americano pelos próximos 5 anos, porque esse mel sai de uma única colmeia, dentro de uma única cerca no planeta, e o chifre do bode espanhol é processado num único lugar: o Hill Country, Texas.
 
-É o único produto do mundo que faz as 4 coisas ao mesmo tempo, e não vai existir genérico no mercado americano pelos próximos 5 anos, porque esse mel sai de uma única colmeia, dentro de uma única cerca no planeta, e o chifre do bode espanhol é processado num único lugar: o Hill Country, Texas.
+Você toma uma goma de manhã, em jejum, com água. Em jejum porque, com o estômago vazio, o ácido está mais fraco, o bicarbonato preparado segura ele com folga, e a absorção sobe até 40%. Sem aplicar, sem injetar, sem cronometrar 40 minutos antes do sexo. Fabricado pela Caldwell BioSciences, no Texas, sob a classificação federal 21 CFR 111, com auditoria obrigatória de pureza, rotulagem e segurança. 100% natural. Sem transgênicos. Sem estimulante. Sem dependência. Sem tolerância. Sem sobrecarga no coração. Sem virar estrogênio. Sem peso no fígado. Sem inchar a próstata. Certificado, travado numa goma e enviado até a sua porta.
 
-Você toma uma goma de manhã, em jejum, com água. E tem um motivo pra ser em jejum: com o estômago vazio, o ácido está mais fraco, o bicarbonato preparado segura ele com folga, e a absorção dos compostos sobe até 40%. Sem ritual, sem aplicar, sem injetar, sem cronometrar 40 minutos antes do sexo. O IronPulseX trabalha em segundo plano. Você acorda, toma a goma, vai trabalhar, e em três dias o seu pau te acorda duro feito pedra no meio da noite sem você pedir. Igual aos 20.
-
-Fabricado no Texas, em ambiente estéril, 100% natural. Sem transgênicos. Sem estimulante. Sem toxina. Sem dependência. Sem tolerância. Sem sobrecarga no coração. Sem virar estrogênio. Sem peso no fígado. Sem inchar a próstata. Sem receita. A combinação que a medicina jurou por 30 anos ser impossível, certificada, travada numa goma e enviada até a sua porta.
-
-E não é por acaso. Antes de chegar na sua porta, esse frasco passou pelas mãos do médico mais cético que eu conheço. O Dr. Mehmet Oz. Um grande amigo meu, e o homem que mais viu promessa furada de ereção nos últimos 20 anos. Reunimos cada pedaço da pesquisa, as ressonâncias do Al, os laudos do mel, o depoimento dos voluntários, e entreguei pessoalmente um frasco pra ele. Ele disse que testaria num voluntário antes de apoiar a fórmula publicamente. 3 semanas depois, nos mandou um vídeo.
+E não é por acaso. Antes de chegar na sua porta, esse frasco passou pelas mãos do médico mais cético que eu conheço. O Dr. Mehmet Oz. Um grande amigo meu, e o homem que mais viu promessa furada de ereção nos últimos 20 anos. Entreguei pessoalmente um frasco pra ele, com as ressonâncias do Al e os laudos do mel. Ele disse que só apoiaria a fórmula depois de testar num voluntário. 3 semanas depois, nos mandou um vídeo.
 
 [Dr. Mehmet Oz]
 
