@@ -1,7 +1,7 @@
 # VSL 2 (Goat Honey Trick / IronPulseX) — Lead 4 (v1, 31/10/2026, PT para revisão)
 
-**Osso:** a lead da Alpha Erec (pré-lead 1.1 → 1.2 e os blocos 2.1 a 2.4), função por função, com o Dr. Mark Hyman no lugar do Attia. Enxertos: Blue Salt (reação de mulher, maridos de celebridade e Hollywood em segredo, "vídeo retirado do ar", "desligue as distrações", "trava o crescimento desde a adolescência", "vergonha ao tirar a calça", "gozar cedo demais") e Red Honey (a prova na câmera com diálogo, "15 vezes o tadalafil", "parece maior flácido, um galã", o depoimento curto, "ritual proibido… mas primeiro deixa eu me apresentar").
-**Decisões tomadas por mim, a confirmar:** pré-lead com o Johnny Sins e o apresentador (entra; se não quiser, corta e a lead abre no Hyman); quem prova com o Hyman é o Gupta; multiplicador "15 vezes mais forte que o tadalafil" (amarra com o Cialis do Al); depoimento curto entre os blocos 2 e 3 (entra).
+**Osso:** a lead da Alpha Erec (pré-lead 1.1 → 1.2 e os blocos 2.1 a 2.4), função por função, com o Dr. Mark Hyman no lugar do Attia. Cenário: o Hyman sozinho no podcast, falando pra câmera. Enxertos: Blue Salt (reação de mulher, maridos de celebridade e Hollywood em segredo, "vídeo retirado do ar", "desligue as distrações", "trava o crescimento desde a adolescência", "vergonha ao tirar a calça", "gozar cedo demais") e Red Honey (a prova na câmera com diálogo, "15 vezes o tadalafil", "parece maior flácido, um galã", o depoimento curto, "ritual proibido… mas primeiro deixa eu me apresentar").
+**Decisões tomadas por mim, a confirmar:** pré-lead com o Johnny Sins e o apresentador (entra; se não quiser, corta e a lead abre no Hyman); o Hyman conduz sozinho, no cenário do podcast, falando pra câmera, e prova a colherada ele mesmo (sem o Gupta; decisão do Marcos, 31/10); multiplicador "15 vezes mais forte que o tadalafil" (amarra com o Cialis do Al); depoimento curto entre os blocos 2 e 3 (entra).
 **Fora de propósito:** "98% dos americanos" e "83%" do Blue Salt; "testosterona envenenada" do Red Honey (nossa causa é o cimento na esponja); "gotas debaixo da língua" (o nosso ritual se come).
 **Entrega para:** o background ("quem diabos sou eu pra te contar tudo isso?").
 
@@ -21,19 +21,13 @@ Claro. Pode ir em frente. Vamos fazer o seguinte: a gente roda o vídeo do Dr. M
 
 ## Lead 4 (modelo Alpha Erec 2.1 → 2.4)
 
-**[Dr. Mark Hyman, bancada de laboratório: pote de mel escuro, pote de pó branco, caneca; o Dr. Sanjay Gupta ao lado]**
+**[Dr. Mark Hyman, no cenário do podcast, sozinho, falando pra câmera; na mesa, o pote de mel escuro, o pote de pó branco e uma caneca]**
 
 Uma colherada deste mel de bode, com uma pitada deste pó, é até 15 vezes mais forte do que um comprimido inteiro de tadalafil. Comida ao acordar, ela produz uma ereção rígida, pesada, que aguenta horas sem cair. Leva menos de 30 segundos, e você pode fazer hoje, na sua cozinha. Simples assim.
 
-Olha. Uma colher do mel. O pó. Água morna. Sanjay, prova.
+Olha. Uma colher do mel. Uma pitada do pó. Água morna. Eu tomo isto todo dia de manhã. É só mel. A língua arde um pouco. Espera até chegar no cérebro.
 
-**[Dr. Sanjay Gupta]**
-
-É mais do que eu tomei da última vez. Hm. O gosto é bom. É só mel. Agora a língua tá pegando fogo.
-
-**[Dr. Mark Hyman]**
-
-Espera até chegar no cérebro. Seguindo cada passo e colocando esta colherada no seu café da manhã, você vai ter a ereção mais poderosa e impressionante da sua vida. Uma que você nunca sentiu, nem na puberdade. Daquela que deixa qualquer mulher assim… ou assim…
+Seguindo cada passo e colocando esta colherada no seu café da manhã, você vai ter a ereção mais poderosa e impressionante da sua vida. Uma que você nunca sentiu, nem na puberdade. Daquela que deixa qualquer mulher assim… ou assim…
 
 **[Corte: 2 reações de mulher, 1 segundo cada, sem fala]**
 
@@ -69,7 +63,7 @@ Nos próximos minutos, eu vou revelar o ritual proibido que a indústria pornô 
 |---|---|---|
 | 1.1 ator ex-Brazzers: "foda-se, eu vou contar", antebraço, genética, diretores proíbem comprimido, receita de 2 minutos, 2 horas, o médico | Johnny Sins, mesma função, com "colherada de mel de bode com pó" e "um ator infarta, a produção acaba" | — |
 | 1.2 apresentador: "roda o vídeo do Dr. Brazza" | "roda o vídeo do Dr. Mark Hyman" | — |
-| 2.1 "uma colherada… 6x o Viagra; ao acordar; 30 segundos; simples assim; a ereção mais poderosa, nem na puberdade; 36.600; 40 a 79; qualquer um" | mesma função; 15x o tadalafil | Red Honey: a prova na câmera com o Gupta ("mais do que eu tomei", "língua pegando fogo", "espera chegar no cérebro"); Blue Salt: "qualquer mulher assim… ou assim…" |
+| 2.1 "uma colherada… 6x o Viagra; ao acordar; 30 segundos; simples assim; a ereção mais poderosa, nem na puberdade; 36.600; 40 a 79; qualquer um" | mesma função; 15x o tadalafil | Red Honey: a prova na câmera, o próprio Hyman ("é só mel", "a língua arde", "espera até chegar no cérebro"); Blue Salt: "qualquer mulher assim… ou assim…" |
 | 2.2 "não importa há quanto tempo; superstars do pornô; fluxo e nutrientes; crescimento; maior mesmo mole; volume na calça; máquinas de sexo; 6x; natural" | mesma função | Blue Salt: maridos das celebridades, Hollywood em segredo, "atravessando a mulher", "não foram abençoados"; Red Honey: "um galã, mesmo de calça" |
 | (sem) | depoimento de 20 s | Red Honey |
 | 2.3 "zero efeito colateral; derrubar o plano corrupto; dependente feito droga; 193 artigos + trial de 3.000; placas tóxicas no tecido cavernoso há 30 anos" | "73 estudos enterrados em 11 semanas + trial de 1.800; placa tóxica na esponja de colágeno, cimento, 30 anos" | Blue Salt: "retirado do ar a qualquer momento", "desliga tudo que chame a sua atenção", "trava o crescimento na adolescência" |
