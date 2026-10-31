@@ -1,7 +1,7 @@
 # Big Offer — versão enxuta (copy-revisor-vsl)
 
 > Base: docx final ajustado do Marcos. Compressão só até o "$49" do Pitch (Product Presentation + abertura do Pitch); do $49 em diante o texto está igual ao docx.
-> Contagem (sem tags [ ] e títulos): até o $49 **2131 → 1830** (−301). Product Presentation 2.018 → 1.719. Abertura do Hyman (até o Oz) 779 → 547.
+> Contagem (sem tags [ ] e títulos): até o $49 **2131 → 1711** (−420). Product Presentation 2.018 → 1.600.
 
 ---
 
@@ -35,19 +35,19 @@ Todas as soluções que você já tentou tratam só o sintoma. IronPulseX revert
 
 [Depoimento - Atriz Pornô]
 
-É insano o que aconteceu com os atores desde que começaram a tomar IronPulseX. Ontem gravei com um cara de 60 e poucos anos. Ele tomou IronPulseX e me fez esguichar 4 vezes neste sofá. Toda cena que eu gravo agora termina comigo pingando. Minhas amigas que gravam com esses caras dizem a mesma coisa. Os paus estão mais grossos, com mais veias, e ficam duros por 2 horas seguidas socando sem perder o ritmo. O Viagra nunca fez isso.
+É insano o que aconteceu com os atores desde que começaram a tomar IronPulseX. Ontem gravei com um cara de 60 e poucos anos, e ele me fez esguichar 4 vezes neste sofá. Toda cena agora termina comigo pingando. Os paus estão mais grossos, com mais veias, e ficam duros por 2 horas seguidas socando sem perder o ritmo. O Viagra nunca fez isso.
 
 [Depoimento - Jhonny Sins]
 
-Eu dependia do Viagra, mas era um pesadelo. A tontura, as palpitações. Eu tinha medo de ter um infarto no meio da cena. Depois que o Elon me deu um frasco de IronPulseX, estou gravando 4 cenas seguidas. Antes, mal conseguia fazer 2. Meu pau, que não era pequeno, ganhou 2 polegadas. Mais grosso, com mais veias.
+Eu dependia do Viagra, e era um pesadelo. Tontura, palpitação, medo de infartar no meio da cena. Com o IronPulseX, estou gravando 4 cenas seguidas. Antes, mal fazia 2. E o meu pau, que não era pequeno, ganhou 2 polegadas. Mais grosso, com mais veias.
 
 [Dr. Mark Hyman]
 
-E a notícia não ficou no set pornô. Vazou pra Hollywood. Em duas semanas, o telefone do Al não parava: os amigos dele queriam saber o que os caras do pornô estavam tomando pra foder duas horas aos 60. Homens que podem pagar qualquer coisa neste mundo, e que até então não tinham nada que funcionasse. O primeiro que testou foi o Harrison Ford.
+E a notícia não ficou no set pornô. Vazou pra Hollywood. Em duas semanas, o telefone do Al não parava: homens que podem pagar qualquer coisa neste mundo querendo saber o que os caras do pornô estavam tomando pra foder duas horas aos 60. O primeiro que testou foi o Harrison Ford.
 
 [Depoimento - Harrison Ford]
 
-Ouvi num jantar que os caras do pornô estavam fodendo duas horas aos 60 com uma goma do Al. Liguei pra ele na mesma noite. “Al, me manda isso.” Eu confio nele há 40 anos. 30 dias de IronPulseX e voltei a acordar duro feito pedra, como nos anos 80. Ontem fodi a minha esposa duas vezes antes do café. Aos 84. Ela gozou até implorar pra eu parar. E não foi só ela que percebeu. As amigas da minha filha, quando dormem lá em casa, não tiram os olhos do volume na minha calça. Até a vizinha não para de olhar pra janela do meu quarto.
+Ouvi num jantar que os caras do pornô estavam fodendo duas horas aos 60 com uma goma do Al. Liguei pra ele na mesma noite: "Al, me manda isso." 30 dias de IronPulseX e voltei a acordar duro feito pedra, como nos anos 80. Ontem fodi a minha esposa duas vezes antes do café. Aos 84. Ela gozou até implorar pra eu parar. E não foi só ela que percebeu. As amigas da minha filha, quando dormem lá em casa, não tiram os olhos do volume na minha calça. Até a vizinha não para de olhar pra janela do meu quarto.
 
 [Dr. Mark Hyman]
 
@@ -55,15 +55,15 @@ O segundo a ligar foi Jean-Claude Van Damme.
 
 [Depoimento - Jean-Claude Van Damme]
 
-50 filmes de ação, 65 anos. E em 2023, o meu corpo me traiu. O pau não respondia mais. Tentei de tudo. TRT, peptídeo de cavalo na Tailândia, exercício de Kegel. Nada funcionou. Então o Harrison me contou no set que o Al estava mandando uma gominha de bode pros amigos. Liguei pro Al. Peguei o IronPulseX. 30 dias depois, estou fodendo como em 2005. A minha mulher parou de reclamar que eu viajo demais. Agora reclama que não consegue andar direito no dia seguinte. Eu sou o Van Damme. Quando eu digo que uma coisa funciona, ela funciona.
+50 filmes de ação, 65 anos, e em 2023 o meu pau não respondia mais. TRT, peptídeo de cavalo na Tailândia, Kegel. Nada funcionou. Então o Harrison me contou no set da gominha de bode do Al. 30 dias depois, estou fodendo como em 2005. A minha mulher parou de reclamar que eu viajo demais. Agora reclama que não consegue andar direito no dia seguinte. Eu sou o Van Damme. Quando eu digo que uma coisa funciona, ela funciona.
 
 [Dr. Mark Hyman]
 
-Agora ouça de uma mulher, porque é a mulher que sente. Diane Holloway, esposa de Ray Holloway, 62 anos, contador aposentado em Tulsa, Oklahoma. O Ray entrou no ensaio dos 3.000. A Diane gravou pra mim na semana passada.
+Agora ouça de uma mulher, porque é a mulher que sente. Diane Holloway, esposa do Ray, 62 anos, contador aposentado em Tulsa, Oklahoma, um dos 3.000 do ensaio.
 
 [Depoimento - Elisa Sanches ]
 
-Meu nome é Diane, 56 anos, casada com o Ray há 32. O Ray ficou 6 anos sem me foder direito. A gente dormia no mesmo quarto, mas era amizade. Em agosto, ele entrou no ensaio do Dr. Mark. No 12º dia, ele me acordou, 4 da manhã. Eu virei e ele estava duro como pedra contra a minha bunda sem nem ter pensado nisso. Em 6 anos, aquilo não tinha acontecido. Ele botou em mim de lado e me fodeu por 40 minutos. Eu chorei. Não de dor. De saudade. Ele ficou maior, mais grosso, mais duro. E ele tem 62 anos. Eu não sou paga pra dizer isso. O IronPulseX me devolveu o meu marido.
+Casada com o Ray há 32 anos, e 6 anos sem ele me foder direito. A gente dormia no mesmo quarto, mas era amizade. No 12º dia do ensaio, ele me acordou às 4 da manhã, duro como pedra contra a minha bunda, sem nem ter pensado nisso. Em 6 anos, aquilo não tinha acontecido. Ele botou em mim de lado e me fodeu por 40 minutos. Eu chorei. Não de dor. De saudade. Ele ficou maior, mais grosso, mais duro, aos 62 anos. Eu não sou paga pra dizer isso. O IronPulseX me devolveu o meu marido.
 
 [Dr. Mark Hyman]
 
