@@ -38,9 +38,9 @@ Day 1, 60% cement. That scan you saw in the thesis was his. 30 days later, 28%. 
 
 Everybody asks me what I'm doing with a man my grandfather's age. Screw them. I went to Al Pacino's house thinking I'd be taking care of an old man: he's 86, I keep him company, he goes to bed early.
 
-The first night he put me on all fours and fucked me for two hours. Jesus Christ. I didn't go there to take care of anybody. I got taken care of. He wakes up hard every morning, pressing that dick against my ass, looking for my pussy, which is already wet before I open my eyes.
+The first night he put me on all fours and fucked me for two hours. Jesus Christ. I didn't go there to take care of anybody. I got taken care of. He wakes up hard every morning, pressing that cock against my ass, looking for my pussy, which is already wet before I open my eyes.
 
-And the craziest part: week after week his dick got thicker and longer. I felt the difference in my jaw and in my pussy, filled up more and more. Every inch. God, I'm coming more than twice a day, soaking the sheets all the way to the floor. The 30-year-old guys I dated were nothing next to this.
+And the craziest part: week after week his cock got thicker and longer. I felt the difference in my jaw and in my pussy, filled up more and more. Every inch. God, I'm coming more than twice a day, soaking the sheets all the way to the floor. The 30-year-old guys I dated were nothing next to this.
 
 And he didn't just fuck me. He got me pregnant. At 86. Here's the pregnancy test. I'm 28 and I'm carrying Al Pacino's fifth child. That's my man. And I wouldn't trade him for any 30-year-old.
 

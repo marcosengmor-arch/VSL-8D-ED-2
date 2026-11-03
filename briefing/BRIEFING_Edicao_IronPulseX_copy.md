@@ -9,9 +9,9 @@
 
 *(Flashes explícitos de 1–2 s do acervo licenciado da Abella intercalados com ela falando na bancada; legenda palavra a palavra, emojis pontuais como na RED HORSE)*
 
-This is the real Goat Honey Ritual that keeps a 60-year-old dick standing all night inside a woman, and it won't go soft even after you come. You've come watching me more times than you've come for your own wife, I know it, so lock the door before she catches you watching this.
+This is the real Goat Honey Ritual that keeps a 60-year-old cock standing all night inside a woman, and it won't go soft even after you come. You've come watching me more times than you've come for your own wife, I know it, so lock the door before she catches you watching this.
 
-Today I'm gonna teach you the ritual that's giving 70-year-old men a dick hard as an axe handle. Because every week I get the same DM: "my wife left me for a 20-year-old kid because I went limp."
+Today I'm gonna teach you the ritual that's giving 70-year-old men a cock hard as an axe handle. Because every week I get the same DM: "my wife left me for a 20-year-old kid because I went limp."
 
 Went limp once, went limp twice, and by the third time she was already riding someone else. Jesus Christ. They're the reason I'm recording this.
 
@@ -21,7 +21,7 @@ After this honey and baking soda ritual, your wife is the one who's gonna beg fo
 
 *(Abella pega uma colherada de mel, mistura uma pitada de bicarbonato na tigela e mostra pra câmera)*
 
-It's the same mix adult actors swallow before they walk on set to keep their dicks big, thick and hard scene after scene, without going soft once.
+It's the same mix adult actors swallow before they walk on set to keep their cocks big, thick and hard scene after scene, without going soft once.
 
 > **[Referência Visual de B-Rolls de Edição a ser usada - bodes espanhóis no curral do Hill Country, bode velho de chifre grande, cocho (no lugar do cavalo da RED HORSE)]**  ·  imagens: rh_horse
 
@@ -33,7 +33,7 @@ If you wanna be that man again, the one who leaves a woman unable to walk straig
 
 **[Kendra Lust]**
 
-I'm gonna prove, right in front of you, the secret every top porn actor uses to have an 8, 9-inch dick and make a woman come on top of him until the sun comes up. No fingers, no oil, no vibrator. Just this.
+I'm gonna prove, right in front of you, the secret every top porn actor uses to have an 8, 9-inch cock and make a woman come on top of him until the sun comes up. No fingers, no oil, no vibrator. Just this.
 
 *(Kendra mergulha o dedo na tigela, prova o mel, passa a tigela pro fã, que come uma colherada)*
 
@@ -41,7 +41,7 @@ So sweet. Here. Now we just wait for it to kick in.
 
 > **[Referência Visual de B-Rolls de Edição a ser usada - close na calça jeans do fã ainda sem volume; lettering "61 YEARS · 5 INCHES · 4 YEARS SOFT"]**
 
-This man turned 61 today and showed up here soft, with 5 inches and 4 years without getting hard. I just gave him the ritual, and he's walking out of this pen with a dick that won't fit in the underwear he showed up in. Julia Ann's the one testing how long he lasts in bed.
+This man turned 61 today and showed up here soft, with 5 inches and 4 years without getting hard. I just gave him the ritual, and he's walking out of this pen with a cock that won't fit in the underwear he showed up in. Julia Ann's the one testing how long he lasts in bed.
 
 *(Corte rápido: depoimentos UGC de homens 50–70 + flashes do acervo das atrizes, 1,5–2 s cada)*
 
@@ -49,13 +49,13 @@ In the next few minutes you're gonna see what regular guys are swallowing to sta
 
 > **[Referência Visual de B-Rolls de Edição a ser usada - celular com caixa de DMs e vídeos recebidos (mockup), homens de 40–50 anos]**
 
-Not a day goes by that I don't get a video from some 40-, 50-year-old guy who wants to get into the industry, wrecking a 20-year-old girl, three orgasms in a row, with a dick he didn't have last month.
+Not a day goes by that I don't get a video from some 40-, 50-year-old guy who wants to get into the industry, wrecking a 20-year-old girl, three orgasms in a row, with a cock he didn't have last month.
 
 It's not a pump, it's not a pill, it's not surgery. It's what the actors do every day, and nobody off set knew. I've turned down money and I've gotten threats to keep this from going out for free. Fuck them.
 
 *(Kendra baixa o tom, confessional, encostada na cerca)*
 
-I came like crazy on set, with men who broke me in half, and at home I couldn't be hardcore: I faked coming so he'd stop, he knew it, and we almost broke up over it.
+I married a normal guy, a regular guy with a regular 6-inch dick, and I never got used to it. I came like crazy on set, with men who broke me in half, and at home I couldn't be hardcore: I faked coming so he'd stop, he knew it, and we almost broke up over it.
 
 He was sure he was born that size and would die that size. He'd already tried everything. We gave it a deadline: one month. If nothing changed, we'd go our separate ways.
 
@@ -71,11 +71,11 @@ This ritual blew up online the day Al Pacino sat down across from Hyman and told
 
 Almost every man thinks a small dick runs in the family, and it's a lie. His dick was sabotaged, like every American man's born after the '70s, by a poison that's in 97% of what you eat and hardens the tissue from the inside.
 
-You should be fucking your wife until she can't sit down, but your dick got locked up from the inside at 15 and never grew again. With the Goat Honey Ritual, my husband's dick gained 3.5 inches and turned into one of the biggest I've ever had inside me. And I've had a lot.
+You should be fucking your wife until she can't sit down, but your dick got locked up from the inside at 15 and never grew again. With the Goat Honey Ritual, my husband's cock gained 3.5 inches and turned into one of the biggest I've ever had inside me. And I've had a lot.
 
 *(Flash do acervo licenciado da Kendra com o marido; ele sempre de costas)*
 
-My God, I'd never seen a dick that thick and that hard. That night he made me come until I begged him to stop, the first time in my life. Today he's the guy my friends in the industry ask to shoot with. And you're gonna do the same thing in the next few minutes.
+My God, I'd never seen a cock that thick and that hard. That night he made me come until I begged him to stop, the first time in my life. Today he's the guy my friends in the industry ask to shoot with. And you're gonna do the same thing in the next few minutes.
 
 > **[Referência Visual de B-Rolls de Edição a ser usada - pai buscando o filho na escola, volume marcando na calça (enquadrado, sem nudez), mães olhando]**
 
@@ -112,7 +112,7 @@ And while you watch, I'm gonna finish what I started in this pen. Look at his pa
 
 **[Lily Philips]**
 
-Jesus Christ. I'm pregnant by an 86-year-old man with an 8-inch dick, who kept my legs spread all night because of a goddamn goat honey ritual he makes in the kitchen before he takes me to bed.
+Jesus Christ. I'm pregnant by an 86-year-old man with an 8-inch cock, who kept my legs spread all night because of a goddamn goat honey ritual he makes in the kitchen before he takes me to bed.
 
 > **[Referência Visual de B-Rolls de Edição a ser usada - colher de mel + pitada de pó branco na cozinha]**  ·  imagens: hf_soda
 
@@ -172,7 +172,7 @@ The whole porn industry runs on this ritual now, as routine as brushing your tee
 
 > **[Referência Visual de B-Rolls de Edição a ser usada - caixas de Viagra e Cialis caindo no lixo, X vermelho]**
 
-They threw Viagra and Cialis in the trash: with the goat ritual there's no heart attack risk, no soft scenes, no actor losing his hard-on with the actress on all fours waiting. Just thick dick, full of veins, ready to destroy whoever's on set, until she begs for mercy.
+They threw Viagra and Cialis in the trash: with the goat ritual there's no heart attack risk, no soft scenes, no actor losing his hard-on with the actress on all fours waiting. Just thick cock, full of veins, ready to destroy whoever's on set, until she begs for mercy.
 
 **[Brandi Love]**
 
@@ -184,9 +184,9 @@ It's a discreet homemade ritual you eat: the goats' honey and a white powder tha
 
 On day two you wake up with your dick so hard it lifts the sheets. Thick, heavy, throbbing against the mattress before you even open your eyes.
 
-It's the ritual the actors I shot with did before every scene. The reason their dicks were so thick I drooled just trying to get them in my mouth, and why Johnny Sins and Mick Blue still come 3 times a session past 50, no pill and no pump.
+It's the ritual the actors I shot with did before every scene. The reason their cocks were so thick I drooled just trying to get them in my mouth, and why Johnny Sins and Mick Blue still come 3 times a session past 50, no pill and no pump.
 
-Their dicks throb harder at 60 than any boyfriend I had at 20. I spent my whole career obsessed with finding out what these men eat to fuck like animals. It's not age, it's not genetics, it's not testosterone shots. It's what they eat.
+Their cocks throb harder at 60 than any boyfriend I had at 20. I spent my whole career obsessed with finding out what these men eat to fuck like animals. It's not age, it's not genetics, it's not testosterone shots. It's what they eat.
 
 Do this and you'll fuck all night, stretching her so deep she bites the pillow. Even the hottest 22-year-old slut in your town is gonna tap out before she squirts on you the third time.
 
@@ -1076,9 +1076,9 @@ Day 1, 60% cement. That scan you saw in the thesis was his. 30 days later, 28%. 
 
 Everybody asks me what I'm doing with a man my grandfather's age. Screw them. I went to Al Pacino's house thinking I'd be taking care of an old man: he's 86, I keep him company, he goes to bed early.
 
-The first night he put me on all fours and fucked me for two hours. Jesus Christ. I didn't go there to take care of anybody. I got taken care of. He wakes up hard every morning, pressing that dick against my ass, looking for my pussy, which is already wet before I open my eyes.
+The first night he put me on all fours and fucked me for two hours. Jesus Christ. I didn't go there to take care of anybody. I got taken care of. He wakes up hard every morning, pressing that cock against my ass, looking for my pussy, which is already wet before I open my eyes.
 
-And the craziest part: week after week his dick got thicker and longer. I felt the difference in my jaw and in my pussy, filled up more and more. Every inch. God, I'm coming more than twice a day, soaking the sheets all the way to the floor. The 30-year-old guys I dated were nothing next to this.
+And the craziest part: week after week his cock got thicker and longer. I felt the difference in my jaw and in my pussy, filled up more and more. Every inch. God, I'm coming more than twice a day, soaking the sheets all the way to the floor. The 30-year-old guys I dated were nothing next to this.
 
 And he didn't just fuck me. He got me pregnant. At 86. Here's the pregnancy test. I'm 28 and I'm carrying Al Pacino's fifth child. That's my man. And I wouldn't trade him for any 30-year-old.
 

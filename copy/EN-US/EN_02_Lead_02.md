@@ -2,7 +2,7 @@
 
 [Lily Philips]
 
-Jesus Christ. I'm pregnant by an 86-year-old man with an 8-inch dick, who kept my legs spread all night because of a goddamn goat honey ritual he makes in the kitchen before he takes me to bed.
+Jesus Christ. I'm pregnant by an 86-year-old man with an 8-inch cock, who kept my legs spread all night because of a goddamn goat honey ritual he makes in the kitchen before he takes me to bed.
 
 If your dick isn't what it used to be, pay attention: I've shot with the biggest names in the industry and none of them made me come like this old man did. You just mix a spoonful of goat honey with a pinch of a white powder that's already in your kitchen, eat it before bed, and no woman will ever let go of you.
 
@@ -36,7 +36,7 @@ God. It took me 20 years in the industry to realize it was the same thing the 60
 
 The whole porn industry runs on this ritual now, as routine as brushing your teeth.
 
-They threw Viagra and Cialis in the trash: with the goat ritual there's no heart attack risk, no soft scenes, no actor losing his hard-on with the actress on all fours waiting. Just thick dick, full of veins, ready to destroy whoever's on set, until she begs for mercy.
+They threw Viagra and Cialis in the trash: with the goat ritual there's no heart attack risk, no soft scenes, no actor losing his hard-on with the actress on all fours waiting. Just thick cock, full of veins, ready to destroy whoever's on set, until she begs for mercy.
 
 [Brandi Love]
 
@@ -44,9 +44,9 @@ It's a discreet homemade ritual you eat: the goats' honey and a white powder tha
 
 On day two you wake up with your dick so hard it lifts the sheets. Thick, heavy, throbbing against the mattress before you even open your eyes.
 
-It's the ritual the actors I shot with did before every scene. The reason their dicks were so thick I drooled just trying to get them in my mouth, and why Johnny Sins and Mick Blue still come 3 times a session past 50, no pill and no pump.
+It's the ritual the actors I shot with did before every scene. The reason their cocks were so thick I drooled just trying to get them in my mouth, and why Johnny Sins and Mick Blue still come 3 times a session past 50, no pill and no pump.
 
-Their dicks throb harder at 60 than any boyfriend I had at 20. I spent my whole career obsessed with finding out what these men eat to fuck like animals. It's not age, it's not genetics, it's not testosterone shots. It's what they eat.
+Their cocks throb harder at 60 than any boyfriend I had at 20. I spent my whole career obsessed with finding out what these men eat to fuck like animals. It's not age, it's not genetics, it's not testosterone shots. It's what they eat.
 
 Do this and you'll fuck all night, stretching her so deep she bites the pillow. Even the hottest 22-year-old slut in your town is gonna tap out before she squirts on you the third time.
 
